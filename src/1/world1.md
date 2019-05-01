@@ -631,4 +631,410 @@ Initiating World's **Overwrite**
 
 -------------------------------------------------------------------------------
 
+As storm's winds calmed down, Kay regained his consciousness and found himself at the same crossing near 9th terminal.
+Alone.
+Jeanne, who has been right before his eyes, is no longer here.
+Dozens of passerbyes and hundreds of people who were going in and out of shops, too were gone.
 
+"...What's going on!? Hey, Jeanne? Jeanne, it is not funny how you're hiding to scare me!"
+
+The 9th Terminal is completely empty.
+Just what happened here.
+The road under his foot were crashed, as if something ridiculously heavy steeped on it.
+There is huge crater by road instead of trees.
+Most of the buildings had broken windows, and buildings themself were on a verge of collapsing
+It looks just like ruins.
+The landscape around 9th Terminal transformed into post-apocalyptic world.
+
+"What's happening here...? Jeanne, everyone vanished..."
+
+There is not even a single living soul.
+It is just too strange.
+In this absurd situation, Kay looked at metallic case on his shoulder.
+There is MDA's <span title="jp. 銃剣 I choose to call it bayonet, but it is basically combination of sword with gun">"bayonet</span>.
+Kay's instincts tell him that he needs a means of self-defence, but the case cannot be opened without key from Urza's HQ.
+Looking for Jeanne and others can wait for now.
+
+"It is not quite close from here, I need to hurry..." - he said and headed in direction of Urza's HQ.
+
+At that time Kay could hear some stone being thrown in shadows of the building behind.
+
+"Some noise? Is there someone!?"
+
+Even if it would be only cat or dog, that's alone would be his relief.
+After all if there is something alive, then it means this place is still inhabited by someone.
+Which means eventually he'll be able to meet people here.
+
+"Hey, anyone...?"
+
+From the building's shadows, _that_ has appeared.
+It was neither a cat or dog.
+Seeing this thing, Kay became speechless.
+
+"Eh?"
+
+The create that stood on two feets was over two meters tall.
+Its body was pitch black, as if covered in armour.
+On its back could be seen big black wings, and there below was snake-like tail.
+Its head's shape was triangular, which definitely couldn't  belong to a human.
+And its eyes pupils were pure white.
+
+..._Just like 10 years ago_.
+
+...It is like these creatures from graveyard in which he fell.
+
+Even since he became a soldier, he never ever forget about it.
+Since that time, he always thought that one day these monsters may crawl out of graveyard.
+
+Jet black demons.
+
+As Kay looked up, before his eyes was standing big monster.
+
+..._It is not a mech doll_
+
+..._Just like that in the middle of street_
+
+There is no for a machine, that could be only activated at MDA's training grounds, to be standing here.
+
+"H-hu...ma..." - unpleasant demon voice reached his ears. _TL Note_: a bit of improvisation.
+
+It is been difficult to understand, but for certain it was a human speech.
+
+"...A human? Here at this land?"
+
+"It spoke!?"
+
+It is been knows that demons, <span title="A bit unsure if 悪魔族をはじめ四種族の英雄は means `and`">and</span> heroes of four races were able to understand human language.
+But to Kay's knowledge, at most handful were able to to speak it.
+
+"Human... soldier..."
+
+Light shines.
+From the <span title="Something like protuberance">curves</span> of demon's wings light started to appear.
+And gradually it started to become bigger in the middle of air.
+
+"Die"
+
+It started to fire like a machine gun.
+While being slightly grazed, Kay quickly jumped to hide behind building's wall.
+The wall became scorched black from its fire.
+If he wouldn't be able to react, then likely Kay's whole body would shot, by these fire bullets, full of holes. _TL Note:_ to be honest I think there wouldn't be much left
+
+"Magic!?"
+
+He was able to leap back just in time.
+<span title="jp. 法術 - Magic arts, but Magic for short">Magic</span> is a generally how people called miracle, or maybe sorcery, in ancient times.
+Any powerful magic could rival power of humans most powerful heavy weaponry.
+And there were <span title="To be honest it might be monstreous magic rain too?">monsters</span> among high ranking demons that were able to continuously fire rains of such magic.
+It is first time Kay could witness _real thing_
+Being able to evade its attack <span title="Even though his equipment is slightly grazed ;0">without a scratch</span> is not coincidence.
+...His body moved on its own.
+In anticipation of this moment, Kay spent countless hours in trainings to fight against demons.
+Thanks to that his body adopted reflexes that saved him this time.
+
+"...I have no idea what happened, but..."
+
+He was certain of one thing.
+This demon is definitely not a machine, and clearly wants to bring harm to him.
+
+"Bring it on!"
+
+With a <span "jp. バチン No idea how to call it in english">smack</span> metal lock has been opened
+Demon's fire bullet wasn't able to hit Kay, but instead hit lock on bayonet's case.
+Thanks to broken lock, Kay is able to take out his bayonet.
+
+"I'll be your opponent" - said Kay, while taking his bayonet, pointing its gun toward demon and placing his finger on trigger.
+
+All-purpose assault bayonet "Drake Nail".
+This weapon has been developed by MDA against non-human races using records from Great War.
+And it is been modelled after Drake's <span title="Not sure if you can call it nail though...">nail</span> from Cryptid race.
+
+"...Humans..."
+
+Traces of fire could be seen in air around demon again.
+Using its powerful magic demon created several times bigger "Fire bullets"
+
+"are eyesore!"
+
+<span title="jp. 略式エルフ弾 - Regardless how you try to translate it, sounds lame">Simplified elvish bullet</span>.
+
+White light sparks.
+A bullet, that Kay fired, is semi-transparent and shines like a fragment of crystal.
+On its way, it disperse fire bullets entirely.
+
+"!?" - Demon eyes widens in shock.
+
+"Elvish magic!?"
+
+"No, it is fruits of mankind's knowledge"
+
+Following Great War mankind created experimental weapon.
+Using special ore that could disperse magic, they created bullets which could disperse magic when they hit it.
+Literally erasing magic.
+
+"During Great War, Elfs used tools such as these, aren't they?"
+
+But their magic tools were created using their own magic power.
+Since humans lacked magic powers, they had to replace it with a _simplified_ version of elven bullet.
+From that came this name.
+
+"Let's go"
+
+As Kay was running through ruined road, all of the sudden a red circle appears under his feet.
+Its diameter was around 5 meters and it encircled Kay.
+Bright red tongue could be seen under there.
+
+"Burn!"
+
+Pillar of fire arisen from within a circle and burned everything within it.
+There is no time to fire Simplified Elf Bullet.
+Kay judged so, and jumped from circle with a kick.
+
+"...Evaded it!?"
+
+"I've been training to fight against you demons!"
+
+Kay slipped into demon's flank and dived his Drake Nail into it.
+Explosive burst.
+At where Drake Nail pointed, like a blooming red flower, a fire has sparked.
+Demon's gigantic body trembled under the attack and smoke, from its attack, covered demon.
+
+"Let me tell you one thing.
+Mankind invented more than just Elf Bullet."
+
+Demon fell.
+First time in history this bullet being used against non-human races.
+Its name is <span title="Yeah, humans are not very original jp. 略式ドレイク弾">Simplified Drake Bullet</span>.
+The idea behind this attack is to mimic actual Drake's fire breath.
+Once Drake Nail touches the target, a explosive attack fires off.
+And at this short range it should defeat non-human races.
+_TL note:_ To be honest I think it should be actually pretty dangerous attack even for wielder of this weapon...
+
+"...[Heavy breathing]"
+
+Demon shown no sign of getting up.
+Kay looked at his numb, from the explosive attack, hand and heavily breathed.
+...Just from shooting Elf and Drake bullets alone.
+...His whole body have been trembled from the tension.
+His first _real_ fight, and first time he saw actual magic.
+If he'd hesitated even for a second, the fire magic wouldn't leave him with just a scratch.
+
+"But it worked!"
+
+All of his training until today finally paid off.
+
+"I can do it... Even if it is a demon I can fight!"
+
+Kay still couldn't comprehend just what happened here today.
+But one has become clear.
+With training even human could fight against mighty demons.
+
+"You bastard, what are you?" - all of the sudden could be heard.
+
+Weird noise of flapping wings abruptly ended Kay's joy of victory.
+Above his head could be heard a buzz from wings, it was much louder than that of some bird.
+
+"Human...? Human who could defeat... my kin?"
+
+Second one, it wasn't much different in its appearance aside from being _smaller_.
+With a height, comparable to Kay's own, it didn't look all that strong comparing to previous one.
+...But what with this this pressure.
+...Size-wise previous was certainly a winner, but its speech shows a intelligence of a whole new level.
+
+"What are you"
+
+"As you can see, just a human"
+
+Kay's instincts were telling that this one is far more dangerous.
+So he carefully gave his reply.
+
+"And you're surprisingly versed in human language, aren't you?"
+
+The thin figure of demon was just looking at him from above.
+While remaining still in the air, its mouth that span from cheek to check moved.
+
+"For us, as well as other races, using human language is convenient"
+
+What it means by that?
+As if mocking Kay's questioning look, it continued:
+
+"The best way to order around your slave, is to use their language"
+
+"...!?"
+
+Humans are slaves?
+
+These words...
+Were the best proof as to why world has been in such cruel state.
+And answered any questions about source of this change.
+
+We(humans) lost to non-humans?
+
+"Her Majesty Vanessa said we already has more than enough slaves"
+
+"Vanessa?" - Kay frowned upon hearing familiar name.
+
+The Dark Empress.
+There is no mistake, it is the name of demon's leader and hero.
+
+"...Dark Empress Vanessa!? That <span title="jp. 大悪">heinous</span> demon?"
+
+"Human, you smell like a danger. Die"
+
+From the tip of demon's finger, light appears.
+Then sinister looking purple magic circle manifests itself.
+And from there lighting emerges.
+
+"...Close your eyes!" - he heard a familiar voice.
+
+In a instance he recognized the owner of this voice.
+And at the same time a strong light started piercing his eyes, which clouded his vision.
+
+"[groan]!"
+
+Demon's groans could be heard.
+It seems its eyes were suffering from directly looking at the light.
+_TL note:_ The text doesn't say, but I assume Kay was able to cover his eyes in time
+
+"...Flashbang!?"
+
+It is officially adopted by MDA.
+Flashbang is presumed to be effective against most of non-humans, with sole exceptions of spirits that hold special eyes
+_TL note:_ the wording in original text is a bit weird here
+But <span title="Yeah, let's forget that you heard familiar voice">who</span> threw it?
+
+"Here! We should leave soon, otherwise we're going to get overrun by demons!"
+
+Human?
+Turning his back to blinding light, Kay run toward a beckoning figure.
+
+"Get on! It might be strong, but it cannot lasts more than 10 seconds"
+
+_TL note:_ To be pedantic, in reality the flashbang light disappears immediately after initial _bang_
+And aside from blinding eyes, it actually also uses very strong noise to affect your hearing.
+So actual flashbang would not only blind immediately but also make him unable to hear anything.
+
+In his still blurry vision, a figure of girl, extending her hand, emerged.
+And then he has been pulled inside armoured vehicle.
+
+"Got wandering guy. Ashlan, let's go!"
+
+"On it!"
+
+Wheels are starting to <span title="Not sure about right term in english">rotate</span> at high speed.
+And vehicle starts getting away from demon with terrific speed and noise.
+
+"These demons may be able to fly, but their flying speed is not great.
+There is no way for it to catch up with this car...
+So you can relax now...
+But oh well... I think we might lose few years of life"
+
+Girl moved to nearby seat and let out a big sigh.
+
+"But really, do you even value your life?
+Where are you from?
+Did you escape from demons?
+Your clothes certainly doesn't look like they belong to prisoner.
+Rather than prisoner, you look more like us."
+
+"...Saki!?"
+
+"Eh? You know me?"
+
+The girl looked puzzled and amazed.
+She should be around the same age as Kay.
+With a look of natural airhead, she had short orange hair and big eyes like that of cat.
+Small <span title="jp. 八重歯 Double tooth, I assume author means fangs here">fangs</span> could be seen in the corners of her mouth.
+And she has freckles on her cheeks.
+
+![Saki and Ashlan](./p055.jpg)
+
+There is no mistake about it, she is one of his colleagues from the same unit.
+
+"What do you mean by do I know you? It's me!
+You saved me here, Saki.
+I have no idea what's going on."
+
+"I mean, who are you exactly?"
+
+"...Eh?"
+
+Both of them are looking at each other.
+Just yesterday she was training together with him.
+There is no way he could mistake her for someone else.
+
+"You're Saki, aren't you? Saki <span title="I have no idea, so I just let Google-kun to translate her last name">Miscotti</span>... right?"
+
+"Yeah"
+
+"You're currently undergoing military service in MDA..."
+
+"What's that?"
+
+She titled her head in puzzlement and then lifted her gaze towards driver's seat.
+
+"Hey, Ashlan, did you hear about it? This MDA, is there something like that in Urza Federation?"
+
+"Nope, never heard about it" - answered a young man, while easily handling car.
+
+Looking at him, there was no mistake. It is the same Ashlan from his unit.
+
+"Hey, Ashlan, you're Ashlan Highrol, right?
+Stop with this awful joke.
+It's me, Kay Sakuravent!"
+
+"Did we meet somewhere in past?"
+
+"..."
+
+He was speechless.
+There was no better words to describe his current state.
+
+"You really... don't remember me?"
+
+"Did you actually meet me somewhere? But well, you know my name though." _TL note:_ Saki's line
+
+But of course.
+They've been together in the same unit more than a year by now.
+
+"You like gums with orange flavour.
+And you hate coffee flavour.
+You're also proud about how flexible is your body.
+And that you can spread your legs in 190 degree splits."
+
+"Eh!? Wait a minute, how you know about me that much?"
+
+"As for Ashlan, you always have been having troubles with motion sickness.
+So you never would get into car without getting pill before that.
+Despite that you're driving..."
+
+As Kay started to say, he suddenly noticed it.
+Ashlan is driving?
+That's impossible.
+It is always been him or Saki who would drive us to graveyard,
+while Ashlan himself would just take a nap in passenger's seat.
+
+"Ashlan... What about your motion sickness?"
+
+"Huh? I got over it long ago, obviously"
+
+Their armoured vehicle has been going on high speed through these ruins.
+He is been driving skilfully on this ruined road, full of wreckage.
+It could be that Ashlan is even better than Kay himself at driving now.
+
+"In this world, not being able to drive car will easily get you captured and enslaved by demons, you know?
+Talking about motion sickness in such situation...
+Eh? Hey, how do you know about me having <span title="JFYI: motion sickness occurs when inner ear are too stimulated. Since being in car or any other transport confuses brain with information about movement, people that have weak semicircular canals are always affected in transport despite them not moving">weak semicircular canals</span>?"
+
+"Knowing about my favourite flavour of gum is quite weird too" - Saki nods in agreement.
+
+"Just who are you?"
+
+"...You really don't remember me"
+
+These two are without doubt Saki and Ashlan, and it doesn't seem like their memories were altered.
+Despite that...
+
+"Just wait a minute... What is going on here?"
+
+Only he alone has been forgotten.
