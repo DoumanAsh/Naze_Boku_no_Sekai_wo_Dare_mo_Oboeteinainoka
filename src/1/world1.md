@@ -900,8 +900,8 @@ _TL note:_ The text doesn't say, but I assume Kay was able to cover his eyes in 
 
 It is officially adopted by MDA.
 Flashbang is presumed to be effective against most of non-humans, with sole exceptions of spirits that hold special eyes
-_TL note:_ the wording in original text is a bit weird here
 But <span title="Yeah, let's forget that you heard familiar voice">who</span> threw it?
+_TL note:_ the wording in original text is a bit weird here
 
 "Here! We should leave soon, otherwise we're going to get overrun by demons!"
 
