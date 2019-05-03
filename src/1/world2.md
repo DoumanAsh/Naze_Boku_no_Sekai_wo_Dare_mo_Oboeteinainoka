@@ -22,7 +22,7 @@ Looking at it now, there were just piles of pebbles from destroyed buildings nea
 
 "Oh? You know about this place?"
 
-"You're real mystery. Do you leave nearby?"
+"You're real mystery. Do you live nearby?"
 
 Said Ashlan and Saki who came out from car.
 
@@ -48,12 +48,12 @@ Kay's coat of arm belonged to MDA, but these two had something different.
 "<span title="For some reason all organizations want to put humanity/mankind into their names">Mankind</span> Resistance Army?"
 
 "Ah that's... Rather than confused, you seem like to suffer from temporary amnesia.
-There are no one out there who doesn't know about <span title="From now on, I'll shorten Mankind Resistance Army as it is also furigana that author uses">Resistance</span>"
+There are no one out there who doesn't know about <span title="From now on, I'll shorten Mankind Resistance Army, besides furigana for it is Resist">Resistance</span>"
 
 In response to Ashlan, Saki only gave a shrug.
 
-"Anyway, let's go in. If we're going to remain here, we might be discovered by demon patrols
-We have some business in underground. I mean this Terminal's underground."
+"Anyway, let's go in. If we're going to remain here, we might be discovered by demon patrols.
+We have some business underground. I mean this Terminal's underground."
 
 Ashlan guided Kay, who walked alongside Saki.
 The Terminal's doors seem to be blown off with by impact of explosion.
@@ -63,7 +63,7 @@ Passing through crashed entrance, they started to descent to underground.
 
 "I'm pretty sure you can guess just by looking, but do you think there is any electricity left?"
 
-Ashlan pointed towards dark passage with his <span title="If it sounds weird, blame author :)">jaw</span>
+Ashlan pointed towards dark passage with his <span title="If it sounds weird, blame author :)">chin</span>
 It certainly would be pitch black, if not for sun's light that is coming from broken windows.
 
 "You know, I have a favour to ask..."
@@ -120,15 +120,15 @@ Kay could see parents with their children walking around and soldiers that were 
 Everything here fits well together.
 Despite it looking different, it was certainly human city. _TL Note:_ The wording here is a bit weird ここには、人間の都市が姿を変えながら確かに存在していた。
 
-"Welcome to <span title="It sounds weird, but author likes to be specific about race">human</span> city _New Vishal_.
+"Welcome to <span title="It sounds weird, but author likes to be specific about race">human</span> city _Neo Vishal_.
 All unused underground space has been remodelled to create this city.
 It is quite a sight, isn't it?"
 
 Originally, Vishal is the name of ward where was 10th Terminal.
-Naming city the New Vishal, most likely was in place of conquered city on surface.
+Naming city the Neo Vishal, most likely was in place of conquered city on surface.
 
 "Since demons took away our city and made their nests on its territory,
-it makes sense for us to hide underground, what do you thinl?"
+it makes sense for us to hide underground, what do you think?"
 
 "...It is really great, to develop it to such extent"
 
@@ -282,7 +282,7 @@ To that Ashlan only shrugged.
 That's our great leader.
 Young, excellent and as you can see quite popular."
 
-"...<span title="jp. 霊光の騎士 Rather than trying to translate, I decided to use good analogy. Literal translation would Knight of Holy/Spirit Light or something">Paladin<span>" -
+"...<span title="jp. 霊光の騎士 Rather than trying to translate, I decided to use good analogy. Literal translation would Knight of Holy/Spirit Light or something">Paladin</span>" -
 muttered Saki.
 
 "Symbol of hope that Urza Federation will be liberated.
@@ -414,13 +414,13 @@ _TL note:_ the first sentence is a bit difficult so I tried my best to catch its
 "...!?"
 
 He said in voice that could be only heard by Jeanne.
-And it seemed that Resistance's commander shoulders became somewhat lowered...
+And it seemed that Resistance's commander shoulders dropped down a bit...
 Or so it seemed to Kay.
 But in that instance.
 
 "Bastard, what are you doing to Jeanne!"
 
-"Get away! Jeanne-sama, you're all right?"
+"Get away! Jeanne-sama, are you all right?"
 
 Kay has been taken by shoulders and dragged away from Jeanne by her subordinates.
 
@@ -431,6 +431,99 @@ We're really sorry, Jeanne-sama.
 He is not bad guy, really!"
 
 While being hold between Saki and Ashlan, Kay could only watch Resistance's Commander leaving with dumbfounded look on his face.
+
+-------------------------------------------------------------------------------
+
+Night has fallen upon Neo Vishal.
+In this underground city, the daylight has been replaced by lights from ceiling.
+And at the midnight, to match night from surface, city's lights were on only around roads.
+
+"..."
+
+At a certain hotel, in dimly lighted room.
+Key were sitting in front of desks full of various documents and maps, that he borrowed from Resistance with help of Saki and Ashlan.
+
+"...How could it happen"
+
+
+Before long, he became too tired to neither sigh or even show a bitter smile. _TL Note:_ weird original line `やがて。溜息とも苦笑ともつかない、疲労まじりの息がこぼれた。`
+
+"If this is a _general knowledge_ of this world... Then history of this world is certainly different from what I remember"
+
+In Kay's world history, humans won in Five Races Great War.
+But it was different here.
+
+"We lost in Great War.
+And it happened just 30 years ago."
+
+But except for history, everything else matches Kay's memories, including continent geography.
+And the same could be said about people.
+Among citizens of this city Kay was able to find familiar names of his neighbourhood.
+Even currency that were used here, was the same as the one Kay got from his old world.
+
+...There are some minor differences like Ashlan getting over his motion sickness.
+
+...But other than that, people here are more or less how he remembered them.
+
+The only mystery is why both Kay and Prophet Sid have been forgotten.
+Both of them never ever existed in first place.
+As if they are erased from history.
+
+"...Just why"
+
+It is understandable why Prophet Sid would cease to exist from this world.
+After all, human hero is the sole reason mankind won Great War.
+That he could understand.
+
+"But why I no longer exist...!?"
+
+_TL Note:_ I wonder if Kay really would love meet himself in this alternative world :D
+
+Even his friends from MDA are here.
+Yet despite that why he is the only one who has been forgotten?
+And what about his parents or relatives?
+Although he couldn't find their records in Neo Vishal, it is possible that they could escape to a different ward.
+So for now he can be certain that only he and Prophet Sid are no longer exist.
+
+"Are there any... clues?
+Since there is no Prophet Sid, mankind is now dominated by other races.
+Are there any other changes aside from that!?"
+
+He continued to look through every history book and map.
+
+"Urza Federation has been defeated by demon's hero.
+Obviously, since Sid is no longer here.
+Is there something else that differs from my memory!?
+Damn, even the graveyards are the same black pyramids.
+How about history of governing <span title"jp. 総督 It is more akin to governor-general">generals</span>..."
+
+In that instance he felt strange.
+After turning page, Kay felt that he should go to previous one.
+Urza Federation map.
+There was a photo of black pyramid.
+Demons graveyard.
+
+...Wait a second, could it be I made mistake.
+
+...I have feeling I overlooked something regarding this graveyard.
+
+"Right! How I could forget about it!?"
+
+Kay vigorously stood up from his chair.
+
+"This graveyard... For _this world_ existence of this thing is just weird!"
+
+After winning Great War, mankind creates graveyards to seal away non-human races.
+But in this world we have been defeated.
+
+"There is no Sid in this world... And despite the fact that we lost, these things still there."
+
+If humans would lose, then no one would create graveyards to seal away non-human races.
+Isn't that a contradiction in this world's history?
+
+"..."
+
+Within dim lights, Kay bitten his lips.
 
 -------------------------------------------------------------------------------
 
