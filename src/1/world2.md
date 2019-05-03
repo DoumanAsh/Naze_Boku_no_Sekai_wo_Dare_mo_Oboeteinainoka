@@ -527,4 +527,229 @@ Within dim lights, Kay bitten his lips.
 
 -------------------------------------------------------------------------------
 
+On next morning.
+Kay spread map before two of them, and they gave quick answer.
 
+"Uhhh... graveyard? What's that? Never heard of it"
+
+"Same here, first time seeing it.
+What with this creepy triangular build..
+Guess demons made it, right?
+The guy who made this photo, most likely thought so too."
+
+"...Ok, I see. Thanks"
+
+As expected, both Saki and Ashlan have no idea about graveyard.
+No matter how you look at it, it is strange that graveyard is still standing, despite humans losing Great War.
+It might be worthwhile to investigate it.
+
+"Ashlan, are there any car available?"
+
+"M? Do you want me to take you somewher?
+But you remember that main body of army came yesterday.
+For now both me and Saki got to attend meetings, so we cannot move"
+
+"I understand that" - said Kay and extend his hand toward Ashlan.
+
+"I can go on my own, so lend me keys.
+If I'll go at highest speed, I'll be able come back by noon,
+so I want you to lend me Resistance's car"
+
+-------------------------------------------------------------------------------
+
+Graveyard's wasteland.
+In previous world, Kay were scouting this place together with Saki and Ashlan for year and a half.
+
+"First time I'm coming here alone"
+
+Kay looked up from his armoured car.
+Among winds with sands were standing black pyramid.
+
+"Demons occupied Urza's capital and placed patrols all over the place..."
+
+The demons he encountered at 9th Terminal were part of these patrols.
+And on his way here, he often could catch sight of demons.
+With each encounter he had to take a detour, but finally he was able to arrive here.
+
+"...Let's go"
+
+He finally came to this 200 meters tall building.
+Taking his drake nail, he took off from driver's seat.
+
+"Entrance seems to fine. Well, that's to be expected."
+
+The sole entrance inside is through this door.
+And MDA is the only one who posses key to open it.
+
+_I was able to enter once 10 years ago._
+
+_When Jeanne's father was Urza's HQ chief, he was allowed to come together for a learning experience._
+
+Afterwards he fell into it.
+
+"No, right now, it doesn't matter"
+
+He slowly walked over graveyard's perimeter.
+Under blazing sun, he felt pain all over his skin.
+With sweat all over his forehead, he moved towards graveyard's rear.
+And there Kay saw something unbelievable.
+
+"The <span title="jp. 封鎖石 a bit unusure how to call it.">sealing stone</span>... is out of place!?"
+
+The huge circular boulder has rolled down away from graveyard's walls.
+It was a special equipment that served as a barrier to prevent demons escape.
+Slightly greenish patterns were visible on its surface, which was proof of it being functional.
+
+"For demons locked inside to remove this barrier and escape... That's impossible I guess.
+Besides if it would happen, I'd expect both Saki and Ashlan say that demons escaped from graveyard"
+
+It could be that sealing stone was left like that since no one sealed demons inside 100 years ago.
+If you think like that, it sounds logical.
+
+"First time I'm entering from this entrance..."
+
+He goes inside graveyard.
+Instead of front entrance, now he went through hole in rear that was blocked by sealing stone.
+And it is directly connected to the room where demons were sealed.
+Ten years ago when Kay fell inside at the bottom of it instead.
+_TL Note:_ to be honest the whole situation feels weird, because main entrance is kinda on ground level too, not sure how exactly he could even fall inside per se.
+
+_But when I feel inside, I lost my consciousness almost immediately._
+
+_And I woke up already outside of it._
+
+He remembered being surrounded by enormous horde of demons.
+And there he found Prophet Sid's legendary "Shining sword"
+But while trying to grab it... Kay lost his consciousness.
+
+Sunlight cannot reach graveyard's insides and as he enters, Kay feels chills down his spine.
+And further inside...
+
+"What's that?"
+
+There was light, coming from far away corner of passage.
+
+_That light... what is it?_
+
+_It feels... nostalgic._
+
+Not even thinking about it, Kay run towards source of light.
+And further there was big open space...
+In the middle of it was shining sword, stuck into the ground.
+
+Legendary sword of Prophet Sid that he used to crush non-human races.
+But as there were no records left of his heroics, people came up with lots of fantasies about him.
+And this hero sword was once again before his eyes.
+
+"...Sid's sword...?"
+
+It is a sword whose light was on par with surface's sunlight.
+Capable of brightening the night.
+The Sid's sword that continued to shine like a sun.
+_TL note:_ I tired my best, but it is hard `それは、地上すべてにふりそそぐ太陽の光を凝縮したかのような剣だった。夜を照らす暁の色調──陽光色に輝き続けるシドの剣。`
+
+It could be said that it looked as if God's halo.
+_TL note:_ Another weird thingy `喩えるならば神の後光とも言うべき神聖さ。`
+
+And another wondrous thing about it is that the sword was transparent like a crystal.
+Even sword's grip and guard were transparent.
+
+"...It's a real thing, right?"
+
+Like he remembered 10 years ago.
+Hero sword actually existed.
+
+"That's right! It is after all a real thing, Sid's legendary sword!"
+
+Like 10 years ago Kay rushed toward sword in order to get hold of it.
+And then deep voice of old man resonated through whole graveyard.
+
+_The one who were entangled by a hateful fate, do not let go of this sword._
+
+_<span title="jp. 世界座標 but I use its furigana">Code Holder</span>'s key..._
+
+"...Code Holder's key?"
+
+Before Kay's eyes, shining sword risen slightly.
+From the tip of the sword a very dim light fired off, slicing the empty air and leaving tracks of light.
+The light took form of a door.
+And this door started to open.
+
+"...Some...one... please...help...me..."
+
+Now Kay heard a different from before voice.
+Barely he could hear a voice of young girl.
+At that moment the light door opened, and Kay started being pulled inside whirlpool of light.
+
+"Ugh!? Hey... that voice, who are you!?"
+
+While being pulled inside this light,
+Kay was certain that he heard some girl's voice.
+And then he shouted with all he got.
+
+_I'm certain there is someone._
+
+_That lamenting voice is asking for help._
+
+That's all he could understand.
+Kay, while holding hero's sword, went toward the place where _young girl_ was waiting.
+
+When he realized, Kay found himself in the middle of sea of clouds.
+
+"This is... not a graveyard?"
+
+He looked around in all directions, but there was no trace of that gloomy graveyard.
+And the sky has been covered by sea of clouds.
+If one would compare, it could be said that this world has been covered by one big cotton blanket.
+And clouds were not only pure white, he could see all seven colours of rainbow.
+
+"What is this place... And where is passage, I came from?"
+
+Beneath his feet was infinite road made of stone.
+On its sides were standing stone pillars few dozen meters tall.
+Something ancient were engraved on them.
+It looked almost like ancient temple.
+One could only wonder who would made such passage.
+
+"Human work? Or maybe... Only foreign gods I guess.
+I remember that elfs and dwarfs tend to build even greater buildings than we're"
+
+But this was demons graveyard.
+Foreign gods were sealed in a different place.
+Besides Kay could remember that ruins they left behind felt somewhat different.
+
+"...Is this some special place made by demons?"
+
+Holding to his Drake Nail, he started moving forward.
+To assert where this place ends, Kay ignored crossroads for now.
+
+How much time passed? One hour? Two hour?
+He kept walking further ahead until his senses haven't become numb
+_TL note:_ I have some doubts about meaning of this last line, I wonder if author meant sense of time?
+
+"That is?"
+
+A towering figure entered his field of view.
+The place there looked like some sort of altar.
+He ascended a small staircase with less than 10 steps.
+There before him was three solemn marble pillars, towering over surroundings as if reaching the sky itself.
+And in the center of it was...
+
+"Girl?"
+
+As if crucified, there was a girl bound to pillar.
+She looked as sacrifice in some sort of ritual.
+Both of her hands were tied by chains.
+There was a blond girl that were covered in chains up to her face
+_TL Note:_ The way she is described is a bit different from prologue where it was said that even her eyes were covered by chains
+
+"...Is there... someone?"
+
+Sensing Kay footsteps, the girl, that was bounded by chains, raised her head.
+She couldn't move her body due to chains.
+
+"Please"
+
+With hoarser voice she plead.
+
+"...help me. Sever these chains..."
