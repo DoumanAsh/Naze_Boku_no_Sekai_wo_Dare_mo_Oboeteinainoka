@@ -557,7 +557,7 @@ so I want you to lend me Resistance's car"
 
 -------------------------------------------------------------------------------
 
-Graveyard's wasteland.
+Graveyard's desert.
 In previous world, Kay were scouting this place together with Saki and Ashlan for year and a half.
 
 "First time I'm coming here alone"

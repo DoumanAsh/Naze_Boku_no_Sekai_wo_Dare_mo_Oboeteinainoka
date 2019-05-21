@@ -1,7 +1,7 @@
 ![Cover](./midashi02.jpg)
 
 A red land.
-In this wasteland filled with stone and pebbles, there is no sign of animals.
+In this desert filled with stone and pebbles, there is no sign of animals.
 And in this harsh land, where only few brushes and grass could grow, a <span title="One would expect APC, but its furigana is ガントラツク">gun truck</span> had its stop.
 The truck has been covered in think armour and carried impressive looking auto-cannon
 
@@ -18,7 +18,7 @@ Forged by daily training he gave off aura of certain strength, and you could fee
 With his binoculars Kay could see a strange structure standing beyond horizon.
 Black pyramid.
 As if made by precise machine, perfect triangular pyramid.
-This black, as if painted by ink, object stood out among red wastelands
+This black, as if painted by ink, object stood out among red desert.
 
 "Situation is..."
 
@@ -587,7 +587,7 @@ Jeanne's body started to become distorted.
 Like it is been only her reflection in water that got distorted, she replied as if nothing happened.
 But she wasn't the only one.
 Everything before Kay's eyes started to change.
-Surrounding him buildings, trees and passerbyes, all started to distort and twist.
+Surrounding him buildings, trees and bystanders, all started to distort and twist.
 Sudden wind followed it.
 Storm of black particles started around him.
 
@@ -634,7 +634,7 @@ Initiating World's **Overwrite**
 As storm's winds calmed down, Kay regained his consciousness and found himself at the same crossing near 9th terminal.
 Alone.
 Jeanne, who has been right before his eyes, is no longer here.
-Dozens of passerbyes and hundreds of people who were going in and out of shops, too were gone.
+Dozens of bystanders and hundreds of people who were going in and out of shops, too were gone.
 
 "...What's going on!? Hey, Jeanne? Jeanne, it is not funny how you're hiding to scare me!"
 
