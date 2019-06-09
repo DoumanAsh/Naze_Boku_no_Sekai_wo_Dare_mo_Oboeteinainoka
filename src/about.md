@@ -1,5 +1,9 @@
 # Naze Boku no Sekai wo Dare mo Oboeteinainoka TL
 
+<a href="https://ko-fi.com/douman" title="Buy me a coffee" target="_blank">
+    <img style="width: 192px;" src="https://az743702.vo.msecnd.net/cdn/kofi5.png?v=0" alt="Support me"/>
+</a>
+
 ## Synopsis
 
 “Why does no one remember the true world?!”
