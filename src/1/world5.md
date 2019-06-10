@@ -476,7 +476,7 @@ _TL Note:_ I'm a bit unsure here if she caught the falling guy, or not
 "....**Human**!"
 
 Huge demon roar could be heard.
-With a scorn on her face Fairin risen her right hand.
+With a scorn on her face Fairin raisen her right hand.
 Shamshir, which just now cut off demon's fingers, was pointing toward demon neck.
 
 "Jeanne-sama, go ahead first."
@@ -1600,7 +1600,7 @@ While she have been under so-called Zero Code attack, she instead grabbed so-cal
 
 "For Alfreya's dog, my neck would be too luxurious treat."
 
-[Dark Empress Vanessa Resistance parameters have risen?
+[Dark Empress Vanessa Resistance parameters have raisen?
 Unforeseen magic power.
 After completing Zero Code...]
 
@@ -1941,7 +1941,7 @@ As roaring flames calmed down, pleasant wind could be felt through ruined hall.
 
 "...Kay... You're...All right? It is not... A dream?"
 
-Towards timid girl who just risen her head,
+Towards timid girl who just raisen her head,
 Kay responded by taking her hand.
 Both tightly grasped each other hands.
 Even if she is unable to get up, she felt his body warmth.
