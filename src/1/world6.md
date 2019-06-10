@@ -269,8 +269,8 @@ Vanessa stood up.
 Her whole body shook, and her head remained looking down.
 
 "World Reincarnation... Overwritten world... Right.
-I remember now, that bastard Sid.
-He said something like that."
+I remember now, that Sid.
+He did mention like that."
 
 "Vanessa!? What is it!?"
 
