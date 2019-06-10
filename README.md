@@ -1,6 +1,6 @@
 # Naze Boku no Sekai wo Dare mo Oboeteinainoka?
 
-<a href="https://ko-fi.com/douman" title="Buy me a coffee" target="_blank"><img style="width: 192px;" src="https://az743702.vo.msecnd.net/cdn/kofi5.png?v=0" alt="Support me"/></a>
+<a href="https://ko-fi.com/douman" target="_blank"><img src="https://az743702.vo.msecnd.net/cdn/kofi5.png?v=0" alt="Buy Me A Coffee" style="height: 48px !important;width: 192px !important;box-shadow: 0px 3px 2px 0px rgba(190, 190, 190, 0.5) !important;-webkit-box-shadow: 0px 3px 2px 0px rgba(190, 190, 190, 0.5) !important;" ></a>
 
 [Summary](src/SUMMARY.md)
 
