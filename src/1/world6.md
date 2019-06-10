@@ -283,13 +283,13 @@ Demoness opened her eyes.
 
 "The change to this world.
 Sid called it _World Reincarnation_.
-And there are several people who are source of this change.
-Look for them!
-Except for me and Sid there are three remaining hero."
+And there is someone who tampered with the world
+Look for him!
+He should be among three remaining hero."
 
 "You know about Sid? And world alternation? You know this much...!?"
 
-"<ruby>He<rt>Sid</rt></ruby> predicted that something strange phenomena is going to happen with world.
+"<ruby>He<rt>Sid</rt></ruby> predicted that some strange phenomena is going to happen with world.
 That's why."
 
 Demoness claw, painted with black, pointed at Kay's sword.

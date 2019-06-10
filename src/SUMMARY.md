@@ -9,3 +9,4 @@
     - [World.4 Saviour of humanity's salvation](./1/world4.md)
     - [World.5 Tenma and young man](./1/world5.md)
     - [World.6 Storing memory of the world -Code Holder-](./1/world6.md)
+    - [Epilogue Story of young man forgotten by world](./1/epilogue.md)
