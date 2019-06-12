@@ -28,7 +28,7 @@ Said Ashlan and Saki who came out from car.
 
 "...Well"
 
-Kay is coming from outskirts of 8Th Terminal, and they should know about.
+Kai is coming from outskirts of 8Th Terminal, and they should know about.
 
 "Well, you should take your time to calm down.
 Considering you were just attacked by demon, I imagine you're still a bit confused.
@@ -37,11 +37,11 @@ Rest a bit and calm yourself"
 "That's right! Although you seem to know about us,
 your clothes and gun... are not familiar to me"
 
-Both were looking at Kay's attire and bayonet.
+Both were looking at Kai's attire and bayonet.
 He was wearing MDA's standard equipment, but Saki and Ashlan had something different.
 ...No, at its core, the design of both uniform is the same.
-...There are few different details. While both uniforms had coat of arms on left side, theirs was different from Kay's
-Kay's coat of arm belonged to MDA, but these two had something different.
+...There are few different details. While both uniforms had coat of arms on left side, theirs was different from Kai's
+Kai's coat of arm belonged to MDA, but these two had something different.
 
 "Hm? We're <span title="jp. 傭兵 can be translated as mercenary, so it might be they are not part of Resistance, but I'm not sure if mercenary job makes sense in post-apocalyptic world">working</span> for Urza Mankind Resistance Army. Wait, you don't even know about it?"
 
@@ -55,7 +55,7 @@ In response to Ashlan, Saki only gave a shrug.
 "Anyway, let's go in. If we're going to remain here, we might be discovered by demon patrols.
 We have some business underground. I mean this Terminal's underground."
 
-Ashlan guided Kay, who walked alongside Saki.
+Ashlan guided Kai, who walked alongside Saki.
 The Terminal's doors seem to be blown off with by impact of explosion.
 Passing through crashed entrance, they started to descent to underground.
 
@@ -68,14 +68,14 @@ It certainly would be pitch black, if not for sun's light that is coming from br
 
 "You know, I have a favour to ask..."
 
-Kay swallowed his breath, and said.
+Kai swallowed his breath, and said.
 
 "I don't care if you think I lost my memories, but please tell me what happened?
 Why city is ruins and why demons are roaming this place like they own it?"
 
 That demon said: The best way to order around your slave, is to use their language
 
-The situation here is different from what Kay remembers.
+The situation here is different from what Kai remembers.
 He got approximate picture, but right now he needs to know situation with all possible details.
 
 "It is as you can see"
@@ -89,7 +89,7 @@ It is been 30 years ago by now."
 
 "...Mankind has lost? That's..."
 
-This is opposite to what Kay remembers.
+This is opposite to what Kai remembers.
 He would love to think it is just a bad dream.
 Just what happened when he was shopping with Jeanne?
 
@@ -104,7 +104,7 @@ So all people could do is abandon everything and run away.
 That's more or less current situation."
 
 Saki points towards the end of staircase.
-Third underground floor was in complete silence, and then bright light blinded Kay's eyes.
+Third underground floor was in complete silence, and then bright light blinded Kai's eyes.
 
 "It is bright?"
 
@@ -116,7 +116,7 @@ From bright light has been shining, and for a second you could think that you're
 
 They used this big underground shopping mall to create city.
 There were shops, people houses, and even hotels with restaurants.
-Kay could see parents with their children walking around and soldiers that were patrolling area with their guns.
+Kai could see parents with their children walking around and soldiers that were patrolling area with their guns.
 Everything here fits well together.
 Despite it looking different, it was certainly human city. _TL Note:_ The wording here is a bit weird ここには、人間の都市が姿を変えながら確かに存在していた。
 
@@ -133,7 +133,7 @@ it makes sense for us to hide underground, what do you think?"
 "...It is really great, to develop it to such extent"
 
 Hearing how this place was made by people who escaped demons in fear,
-Kay imagined it would look miserable.
+Kai imagined it would look miserable.
 But he was pleasantly surprised.
 People looked lively and full of life.
 
@@ -167,7 +167,7 @@ But of course resistance exists all over the world, and in every place there is 
 
 "...Listen, guys"
 
-Resolving himself, Kay looked at two of them.
+Resolving himself, Kai looked at two of them.
 Humans lost a Great War.
 But it brings a question then.
 
@@ -194,7 +194,7 @@ Moreover the main reason are leaders of these four races who are just incredible
 "You mean four heroes?
 Like Dark Empress Vanessa or Fang King Rath=IE?"
 
-"Oh, you actually know that much, Kay?"
+"Oh, you actually know that much, Kai?"
 
 After saying that, she looked towards him.
 
@@ -218,7 +218,7 @@ _TL Note:_ To be honest in first place I'm not sure how single person could defe
 The hero who was able to defeat non-humans.
 Just few days ago, they talked about him.
 
-_TL Note:_ Kay really cannot comprehend this situation... *facepalm*
+_TL Note:_ Kai really cannot comprehend this situation... *facepalm*
 
 "If it would just name alone... Hey, Ashlan, do you know anything?"
 
@@ -232,7 +232,7 @@ It looks like, no one is even aware about him.
 
 ...Prophet Sid doesn't even exist in this world!?
 
-Little by little, Kay come to realization just how much differs this world from what he remembers.
+Little by little, Kai come to realization just how much differs this world from what he remembers.
 
 "According to my memories human hero existed.
 Prophet Sid defeated four heroes and thanks to that mankind won Great War
@@ -250,7 +250,7 @@ That's more or less, the outline of current history.
 ...When we went shopping with Jeanne, because of that phenomenon, something has changed.
 
 The black hole in sky sucked everything in: clouds, buildings, people, even Jeanne.
-Everything except Kay himself.
+Everything except Kai himself.
 Before he became aware, history of the world itself has changed.
 
 "Oh is that...? Hey, Ashlan"
@@ -323,10 +323,10 @@ Saki and Ashlan straightened their posture and saluted their commander in knight
 "Good work, I appreciate your efforts." - responded commander with beautiful smile.
 
 Commander is beautiful and young _man?_ clad in heavy armour.
-Most likely around the same age as Kay.
+Most likely around the same age as Kai.
 His gentle facial features gives off a very feminine aura.
 
-But as for Kay...
+But as for Kai...
 
 ...The face looks like it is covered with make-up to make it look more boyish.
 
@@ -348,7 +348,7 @@ Urza Resistance commander titled head as if being puzzled.
 "Oh, who could it be? I don't recognize him"
 
 "We found him on surface and took under protection.
-His name is Kay.
+His name is Kai.
 Not registered as resident of this city."
 
 "He hit his head a bit so his memories are in disorder.
@@ -361,7 +361,7 @@ To which Jeanne nodded in acknowledgement.
 
 "Please wait, Jeanne, it's me!"
 
-Kay pushed aside both them and shouted towards his childhood friend.
+Kai pushed aside both them and shouted towards his childhood friend.
 
 Please let it be some sort of prank.
 World that is ruled by demons.
@@ -380,7 +380,7 @@ They were giving a weird looks to a person of unknown origin, yet who dared to s
 "Forgive me" - said knight by the name Jeanne and shook his head.
 
 Pretending to be a man...
-Kay couldn't believe it.
+Kai couldn't believe it.
 _TL Note:_ Not sure about this line `男のフリをした────そうとしかカイには思えない裏声で`
 
 "Did we meet somewhere? I feel you mistook me for someone else"
@@ -390,7 +390,7 @@ _TL Note:_ Not sure about this line `男のフリをした────そうと�
 "Pardon me, I have to attend to meeting with my subordinates afterwards.
 Saki, Ashlan, hear him out in my steed"
 
-Surrounded by subordinates, Jeanne turns away from Kay.
+Surrounded by subordinates, Jeanne turns away from Kai.
 
 ...Really?
 
@@ -401,7 +401,7 @@ Just a moments ago they were together.
 
 "Jeanne!"
 
-Kay bite his lips and kicked ground.
+Kai bite his lips and kicked ground.
 He moved towards knight, who turned his back to him, despite being pushed back by knight's subordinates.
 
 "Was your dream to become commander by pretending to be man!?
@@ -415,22 +415,22 @@ _TL note:_ the first sentence is a bit difficult so I tried my best to catch its
 
 He said in voice that could be only heard by Jeanne.
 And it seemed that Resistance's commander shoulders dropped down a bit...
-Or so it seemed to Kay.
+Or so it seemed to Kai.
 But in that instance.
 
 "Bastard, what are you doing to Jeanne!"
 
 "Get away! Jeanne-sama, are you all right?"
 
-Kay has been taken by shoulders and dragged away from Jeanne by her subordinates.
+Kai has been taken by shoulders and dragged away from Jeanne by her subordinates.
 
-"H-hey, Kay, what are you doing!?"
+"H-hey, Kai, what are you doing!?"
 
 "You! Why you suddenly lunged toward Jeanne-sama...
 We're really sorry, Jeanne-sama.
 He is not bad guy, really!"
 
-While being hold between Saki and Ashlan, Kay could only watch Resistance's Commander leaving with dumbfounded look on his face.
+While being hold between Saki and Ashlan, Kai could only watch Resistance's Commander leaving with dumbfounded look on his face.
 
 -------------------------------------------------------------------------------
 
@@ -450,22 +450,22 @@ Before long, he became too tired to neither sigh or even show a bitter smile. _T
 
 "If this is a _general knowledge_ of this world... Then history of this world is certainly different from what I remember"
 
-In Kay's world history, humans won in Five Races Great War.
+In Kai's world history, humans won in Five Races Great War.
 But it was different here.
 
 "We lost in Great War.
 And it happened just 30 years ago."
 
-But except for history, everything else matches Kay's memories, including continent geography.
+But except for history, everything else matches Kai's memories, including continent geography.
 And the same could be said about people.
-Among citizens of this city Kay was able to find familiar names of his neighbourhood.
-Even currency that were used here, was the same as the one Kay got from his old world.
+Among citizens of this city Kai was able to find familiar names of his neighbourhood.
+Even currency that were used here, was the same as the one Kai got from his old world.
 
 ...There are some minor differences like Ashlan getting over his motion sickness.
 
 ...But other than that, people here are more or less how he remembered them.
 
-The only mystery is why both Kay and Prophet Sid have been forgotten.
+The only mystery is why both Kai and Prophet Sid have been forgotten.
 Both of them never ever existed in first place.
 As if they are erased from history.
 
@@ -477,7 +477,7 @@ That he could understand.
 
 "But why I no longer exist...!?"
 
-_TL Note:_ I wonder if Kay really would love meet himself in this alternative world :D
+_TL Note:_ I wonder if Kai really would love meet himself in this alternative world :D
 
 Even his friends from MDA are here.
 Yet despite that why he is the only one who has been forgotten?
@@ -498,7 +498,7 @@ Damn, even the graveyards are the same black pyramids.
 How about history of governing <span title"jp. 総督 It is more akin to governor-general">generals</span>..."
 
 In that instance he felt strange.
-After turning page, Kay felt that he should go to previous one.
+After turning page, Kai felt that he should go to previous one.
 Urza Federation map.
 There was a photo of black pyramid.
 Demons graveyard.
@@ -509,7 +509,7 @@ Demons graveyard.
 
 "Right! How I could forget about it!?"
 
-Kay vigorously stood up from his chair.
+Kai vigorously stood up from his chair.
 
 "This graveyard... For _this world_ existence of this thing is just weird!"
 
@@ -523,12 +523,12 @@ Isn't that a contradiction in this world's history?
 
 "..."
 
-Within dim lights, Kay bitten his lips.
+Within dim lights, Kai bitten his lips.
 
 -------------------------------------------------------------------------------
 
 On next morning.
-Kay spread map before two of them, and they gave quick answer.
+Kai spread map before two of them, and they gave quick answer.
 
 "Uhhh... graveyard? What's that? Never heard of it"
 
@@ -549,7 +549,7 @@ It might be worthwhile to investigate it.
 But you remember that main body of army came yesterday.
 For now both me and Saki got to attend meetings, so we cannot move"
 
-"I understand that" - said Kay and extend his hand toward Ashlan.
+"I understand that" - said Kai and extend his hand toward Ashlan.
 
 "I can go on my own, so lend me keys.
 If I'll go at highest speed, I'll be able come back by noon,
@@ -558,11 +558,11 @@ so I want you to lend me Resistance's car"
 -------------------------------------------------------------------------------
 
 Graveyard's desert.
-In previous world, Kay were scouting this place together with Saki and Ashlan for year and a half.
+In previous world, Kai were scouting this place together with Saki and Ashlan for year and a half.
 
 "First time I'm coming here alone"
 
-Kay looked up from his armoured car.
+Kai looked up from his armoured car.
 Among winds with sands were standing black pyramid.
 
 "Demons occupied Urza's capital and placed patrols all over the place..."
@@ -592,7 +592,7 @@ Afterwards he fell into it.
 He slowly walked over graveyard's perimeter.
 Under blazing sun, he felt pain all over his skin.
 With sweat all over his forehead, he moved towards graveyard's rear.
-And there Kay saw something unbelievable.
+And there Kai saw something unbelievable.
 
 "The <span title="jp. 封鎖石 a bit unusure how to call it.">sealing stone</span>... is out of place!?"
 
@@ -611,7 +611,7 @@ If you think like that, it sounds logical.
 He goes inside graveyard.
 Instead of front entrance, now he went through hole in rear that was blocked by sealing stone.
 And it is directly connected to the room where demons were sealed.
-Ten years ago when Kay fell inside at the bottom of it instead.
+Ten years ago when Kai fell inside at the bottom of it instead.
 _TL Note:_ to be honest the whole situation feels weird, because main entrance is kinda on ground level too, not sure how exactly he could even fall inside per se.
 
 _But when I feel inside, I lost my consciousness almost immediately._
@@ -620,9 +620,9 @@ _And I woke up already outside of it._
 
 He remembered being surrounded by enormous horde of demons.
 And there he found Prophet Sid's legendary "Shining sword"
-But while trying to grab it... Kay lost his consciousness.
+But while trying to grab it... Kai lost his consciousness.
 
-Sunlight cannot reach graveyard's insides and as he enters, Kay feels chills down his spine.
+Sunlight cannot reach graveyard's insides and as he enters, Kai feels chills down his spine.
 And further inside...
 
 "What's that?"
@@ -633,7 +633,7 @@ _That light... what is it?_
 
 _It feels... nostalgic._
 
-Not even thinking about it, Kay run towards source of light.
+Not even thinking about it, Kai run towards source of light.
 And further there was big open space...
 In the middle of it was shining sword, stuck into the ground.
 
@@ -661,7 +661,7 @@ Hero sword actually existed.
 
 "That's right! It is after all a real thing, Sid's legendary sword!"
 
-Like 10 years ago Kay rushed toward sword in order to get hold of it.
+Like 10 years ago Kai rushed toward sword in order to get hold of it.
 And then deep voice of old man resonated through whole graveyard.
 
 _The one who were entangled by a hateful fate, do not let go of this sword._
@@ -670,21 +670,21 @@ _<span title="jp. 世界座標 but I use its furigana">Code Holder</span>'s key.
 
 "...Code Holder's key?"
 
-Before Kay's eyes, shining sword risen slightly.
+Before Kai's eyes, shining sword risen slightly.
 From the tip of the sword a very dim light fired off, slicing the empty air and leaving tracks of light.
 The light took form of a door.
 And this door started to open.
 
 "...Some...one... please...help...me..."
 
-Now Kay heard a different from before voice.
+Now Kai heard a different from before voice.
 Barely he could hear a voice of young girl.
-At that moment the light door opened, and Kay started being pulled inside whirlpool of light.
+At that moment the light door opened, and Kai started being pulled inside whirlpool of light.
 
 "Ugh!? Hey... that voice, who are you!?"
 
 While being pulled inside this light,
-Kay was certain that he heard some girl's voice.
+Kai was certain that he heard some girl's voice.
 And then he shouted with all he got.
 
 _I'm certain there is someone._
@@ -692,9 +692,9 @@ _I'm certain there is someone._
 _That lamenting voice is asking for help._
 
 That's all he could understand.
-Kay, while holding hero's sword, went toward the place where _young girl_ was waiting.
+Kai, while holding hero's sword, went toward the place where _young girl_ was waiting.
 
-When he realized, Kay found himself in the middle of sea of clouds.
+When he realized, Kai found himself in the middle of sea of clouds.
 
 "This is... not a graveyard?"
 
@@ -716,12 +716,12 @@ I remember that elfs and dwarfs tend to build even greater buildings than we're"
 
 But this was demons graveyard.
 Foreign gods were sealed in a different place.
-Besides Kay could remember that ruins they left behind felt somewhat different.
+Besides Kai could remember that ruins they left behind felt somewhat different.
 
 "...Is this some special place made by demons?"
 
 Holding to his Drake Nail, he started moving forward.
-To assert where this place ends, Kay ignored crossroads for now.
+To assert where this place ends, Kai ignored crossroads for now.
 
 How much time passed? One hour? Two hour?
 He kept walking further ahead until his senses haven't become numb
@@ -745,7 +745,7 @@ _TL Note:_ The way she is described is a bit different from prologue where it wa
 
 "...Is there... someone?"
 
-Sensing Kay footsteps, the girl, that was bounded by chains, raised her head.
+Sensing Kai footsteps, the girl, that was bounded by chains, raised her head.
 She couldn't move her body due to chains.
 
 "Please"

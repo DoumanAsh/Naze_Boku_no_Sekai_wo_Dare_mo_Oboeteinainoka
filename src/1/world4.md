@@ -24,7 +24,7 @@ On her back are tenma's wings.
 Mix of foreign god, demon and human.
 At first glance she holds characteristics of these three races.
 
-"Hey, Kay, where we are?"
+"Hey, Kai, where we are?"
 
 With puzzled look on her face she starts looking over desert.
 
@@ -53,7 +53,7 @@ It is quite far away, but there still can be few of them."
 
 She folded back her wings and looked at sky.
 
-"Kay, what were you doing until now?"
+"Kai, what were you doing until now?"
 
 "Me? Well, I was planning to come here, investigate graveyard."
 
@@ -78,11 +78,11 @@ And then starting walking all of the sudden."
 He moves to help her to stand up.
 As if she was like newborn baby, he feels her weakness.
 Despite lending her a shoulder, her legs are still shaky.
-Kay looks at her for some time in this state.
+Kai looks at her for some time in this state.
 
 "Rinne, if you have nowhere to go, then let's come to my place together."
 
-"At yours, Kay?"
+"At yours, Kai?"
 
 "In your worn out state you cannot even stand without my support.
 It is just impossible not going together.
@@ -109,11 +109,11 @@ As soon as I'll get close to them, they'll sniff out that I'm _different_."
 
 Rinne hesitated.
 
-"...Kay... helped me so..."
+"...Kai... helped me so..."
 
 "Then I'm ok, right?"
 
-"But, only Kay, other humans are different!"
+"But, only Kai, other humans are different!"
 
 "Then you only need to trust me.
 If you'd think I'm lying, it is fine to just turn back for you.
@@ -122,7 +122,7 @@ That's would be more than enough."
 "..."
 
 Rinne said nothing and only gave her silent affirmation.
-Kay left graveyard and followed towards armoured car.
+Kai left graveyard and followed towards armoured car.
 
 "I saw this thing, it should move?"
 
@@ -140,12 +140,12 @@ Rinne who experiences _ride_ for first time has become blue and sweat falls from
 "It is vibrations from wheel's tire.
 You'll get used soon."
 
-"You lie! Even if it is Kay, I don't believe you... Stop and let me offffff!?"
+"You lie! Even if it is Kai, I don't believe you... Stop and let me offffff!?"
 
 Rinne, who was sitting besides him and forced to enjoy this ride, started shouting and screaming.
-And at the end she started clinging to Kay, who were currently driving.
+And at the end she started clinging to Kai, who were currently driving.
 
-"Help me, Kayyy!"
+"Help me, Kaiyy!"
 
 "Wait, Rinne, be careful where you're stepping!
 And don't touch lever! Car is going..."
@@ -173,7 +173,7 @@ Now, Rinne can sense demon's magic power.
 She calmed from her first riding experience,
 now she was peacefully sitting on seat.
 
-"Hey, Kay, there is a place where humans live?"
+"Hey, Kai, there is a place where humans live?"
 
 "Yeah, we'll see big building pretty soon, and we'll use its underground to reach town."
 
@@ -187,15 +187,15 @@ Rinne reaches out from her seat to look at scenery filled with mountains of rubb
 "I too remember it like that."
 
 Originally demons lived around around volcano.
-At least that's how Kay's organization, MDA, records tell it.
+At least that's how Kai's organization, MDA, records tell it.
 His assumption is that at the time which MDA's records about Great War were made.
 Rinne's fight against Vanessa has also restrained demons.
 
-"Kay, you said that world has _changed_, hasn't you?"
+"Kai, you said that world has _changed_, hasn't you?"
 
 "Yeah, aside from Rinne no one believes me though."
 
-While they were in the car Kay told Rinne the story up until now.
+While they were in the car Kai told Rinne the story up until now.
 From that time, when world suddenly changed.
 Buildings, roads, people and everything else were sucked in air.
 And from that moment humanity victory in Great War changed into defeat.
@@ -225,7 +225,7 @@ True history, and false history.
 Without doubt the main difference between these two is "Prophet Sid existence and non-existence".
 The world where Sid existed and Great Was has been won hundred years ago.
 The world without Sid, where we lost chance to counter attack and 30 years ago suffered a defeat in Great War.
-At that time it is highly likely that Kay witnessed phenomena of these histories being swapped.
+At that time it is highly likely that Kai witnessed phenomena of these histories being swapped.
 
 "Rinne, do you like this world?"
 
@@ -267,13 +267,13 @@ Rinne suddenly stopped talking and raised her head.
 "We should be there soon.
 I'll have to park car once we arrive."
 
-Kay circles behind 10Th Terminal, parks car among piles of rubble and takes off Rinne.
+Kai circles behind 10Th Terminal, parks car among piles of rubble and takes off Rinne.
 
 "Underground here is human city
 Well, I only came here yesterday myself."
 
 Rinne were looking around.
-Seeing her standing like that, Kay's gaze falls onto her wings.
+Seeing her standing like that, Kai's gaze falls onto her wings.
 
 _In Rinne case there is matter of wings._
 
@@ -294,7 +294,7 @@ As she said that, her wings quickly started to get smaller until it no longer co
 
 "I made them super small, so that no one could see them."
 
-To surprised Kay, Rinne gave devilish smile.
+To surprised Kai, Rinne gave devilish smile.
 Since she had no friends among <span title="I'm not sure if it refers to her races or other races, but latter is more likely">races</span>,
 someone's surprise reaction might be new to her.
 
@@ -306,7 +306,7 @@ someone's surprise reaction might be new to her.
 
 "Are you kid? Let's go, we shouldn't attract attention of demons here."
 
-To Rinne, who was full of pride, Kay responded with a bitter smile, and pointed towards building's entrance.
+To Rinne, who was full of pride, Kai responded with a bitter smile, and pointed towards building's entrance.
 
 _TL Note:_ Clearly he missed nade-nade flag here.
 
@@ -327,7 +327,7 @@ On the road, they could see people walking in soldiers uniforms.
 He suddenly felt her soft skin touching his shoulder.
 Turning back, he saw Rinne clinging to him.
 
-"N-no g-good, Kay! You cannot leave me alone, it is dangerous here!"
+"N-no g-good, Kai! You cannot leave me alone, it is dangerous here!"
 
 "Dangerous?"
 
@@ -350,7 +350,7 @@ As a matter of fact, being hugged by her in public is actually making him embarr
 Now she was keeping close to him from behind.
 While thinking how to ask her to stop it too.
 
-"Hey, Kay, you're back?"
+"Hey, Kai, you're back?"
 
 "Ah, really. Welcome back.
 We've been thinking it is about time."
@@ -364,7 +364,7 @@ Both were in their Resistance's uniform and had rifles on their shoulder.
 "I kept it secret from Resistance's top brass.
 If someone would find out that I lend their stuff, it would become really troublesome."
 
-Ashlan caught the key from armoured car that Kay threw.
+Ashlan caught the key from armoured car that Kai threw.
 
 "You haven't been discovered by demon scouts, right?"
 
@@ -373,7 +373,7 @@ In such wilderness there is no way, to not notice demons."
 
 "Good... By the way, I'm curious about one thing."
 
-Ashlan looked at girl who were hiding behind Kay's back.
+Ashlan looked at girl who were hiding behind Kai's back.
 
 "Who is this cute girl?"
 
@@ -387,14 +387,14 @@ Hearing that, Rinne, who was behind, froze.
 
 "...No! Don't you dare to address me, human!"
 
-Rinne jumped from Kay's back, and put out both of her hands.
+Rinne jumped from Kai's back, and put out both of her hands.
 From her hands light of magic appeared in the blink of eye.
 
 "Blow..."
 
 "Are you going to blow them away!?"
 
-Kay restrained her hands from behind.
+Kai restrained her hands from behind.
 
 "Calm down, Rinne!"
 
@@ -408,7 +408,7 @@ I found her outside when she collapsed!"
 
 Grabbing Rinne's clothes around neck, he run off.
 
-"Hey, Kay..."
+"Hey, Kai..."
 
 "Later!"
 
@@ -419,12 +419,12 @@ Rushing into his room, he then quickly closes door.
 He had shivers from imaging what would happen if Rinne would throw magic.
 If someone would find out her non-human origin, she'd immediately would be prosecuted for destruction of human cities.
 
-"Hey, Kay."
+"Hey, Kai."
 
-In front of Kay who was standing by the door.
+In front of Kai who was standing by the door.
 Rinne looked at him without a blink.
 
-"Did I cause troubles to Kay?"
+"Did I cause troubles to Kai?"
 
 "..."
 
@@ -433,7 +433,7 @@ Rinne looked at him without a blink.
 "...What are you saying?"
 
 If she is going to think that she causes him troubles, Rinne is going to leave this city without a second thought.
-At least that is how Kay perceived it.
+At least that is how Kai perceived it.
 
 "It is not your fault, Rinne. I should have properly explained everything."
 
@@ -445,18 +445,18 @@ He pointed towards pathway behind door.
 
 "That's why Rinne, don't attack like that again."
 
-"...Ok, If Kay says so, I'll believe you."
+"...Ok, If Kai says so, I'll believe you."
 
 Reluctantly, but Rinne consents.
 
-"This is where Kay lives, right?"
+"This is where Kai lives, right?"
 
 "At the moment, yes. Other races shouldn't be able to find us here.
 But about bed..."
 
 The bed here is only for one person.
 If they try hard enough they could share it together but...
-Rinne is beautiful girl after all, for Kay sharing the bed would be a bit problematic.
+Rinne is beautiful girl after all, for Kai sharing the bed would be a bit problematic.
 
 "I'll go at reception to get extra beddings.
 You can sleep on the bed, Rinne."
@@ -499,7 +499,7 @@ He turned away from Rinne, who just started exposing her skin, and shouted.
 
 Stark naked Rinne moves to stand in front of him.
 
-"Hey, Kay, why?"
+"Hey, Kai, why?"
 
 "Moving around naked is forbidden!"
 
@@ -512,21 +512,21 @@ Stark naked Rinne moves to stand in front of him.
 The girl only absent-mindedly titled her head.
 Being close to humans, and with features of fair skinned elfs and angles, Rinne's skin is more white than that of other humans and is very charming.
 
-"Ah, yes, Kay, look. My wings are perfectly well hidden, right?"
+"Ah, yes, Kai, look. My wings are perfectly well hidden, right?"
 
 Rinne makes half turn.
 Looking at her delicate back, certainly,
 On her waist, where was her wings growing, no longer could be seen a single feather.
-That said, Kay's eyes didn't reflect her back.
+That said, Kai's eyes didn't reflect her back.
 Instead it reflected lower, curves that shaped her ass.
 Even if she asks to look at her wings, he honestly just couldn't focus on it.
 
-"Hey, Kay?"
+"Hey, Kai?"
 
 "...Got it.
 Still, outside of shower room, you shouldn't be without towel.
 If someone besides me would see your back, it would be really bad.
-While holding back on telling her to not flash her ass before him, Kay puts shower room's towel onto her shoulder.
+While holding back on telling her to not flash her ass before him, Kai puts shower room's towel onto her shoulder.
 _TL Note:_ I'm a bit unsure about last sentence `俺にお尻が見えないように。そう言いたい気持ちをこらえ、シャワールームに備えつけのバスタオルを彼女の肩にかけてやる`
 
 "Well, I'll step out then.
@@ -537,11 +537,11 @@ Take shower and wait for me."
 Being seen off by happy Rinne, he steps outside of <span title="His hotel room">room</span>.
 And then, before his eyes appears Ashlan with whom they parted ways just recently.
 
-"Kay? You look much more tired."
+"Kai? You look much more tired."
 
 "...No time to rest."
 
-Giving such response with shrug, Kay hit pathway's wall.
+Giving such response with shrug, Kai hit pathway's wall.
 
 -------------------------------------------------------------------------------
 
@@ -552,13 +552,13 @@ _TL Note:_ Re-phrasing cuz it is hard to get right: `水しぶき。何千何万
 
 "Even if you're not human, you still sing while taking shower..."
 
-While Rinne was singing in shower room, Kay was sitting on the bed and put the bayonet on his knees.
+While Rinne was singing in shower room, Kai was sitting on the bed and put the bayonet on his knees.
 
 _Sid's sword was transparent shining sword._
 
 _But before I even noticed, it returned back to be Drake Nail._
 
-Sid's sword, or _Code Holder_, as far as Kay could remember only possessed his Drake Nail and manifests through it.
+Sid's sword, or _Code Holder_, as far as Kai could remember only possessed his Drake Nail and manifests through it.
 
 "No matter how you look at it, this is not work of human..."
 
@@ -575,15 +575,15 @@ If Sid's sword is too their work, then it could explain its ability to cut magic
 "Once more time."
 
 Depending on whether he'll be able to transform Drake Nail into Sid's sword,
-Kay might have complete proof of its existence.
+Kai might have complete proof of its existence.
 
 _At that time sword reacted to its name..._
 
 _If it is magic weapon, then its name, Code Holder, should serve as key to its manifestation._
 
-Kay held his breath to call its name.
+Kai held his breath to call its name.
 
-"I-it's bad! Really bad, Kay!"
+"I-it's bad! Really bad, Kai!"
 
 Rinne's scream made him to drop his <span title="To change weapon into Code Holder">decision</span>.
 
@@ -603,11 +603,11 @@ _Probably not good for my <span title="Pretty sure it is actually good">mental h
 As he told her, Rinne were covering herself in towel.
 But even so, there was urgent problem that made Rinne running in panic and her towel started slipping.
 
-"Oh, Kay what is it? Hey, look here."
+"Oh, Kai what is it? Hey, look here."
 
 "..."
 
-"Hey, Kay, look here I'm telling you."
+"Hey, Kai, look here I'm telling you."
 
 "...Got it, Rinne, properly wrap your towel. Meanwhile, I'll stop shower."
 
@@ -617,7 +617,7 @@ Towards Rinne who replied, without even noticing.
 
 "...It is really bad for my heart" _TL Note:_ jp. `心臓に悪い` not joking. I'm surprised too, how can it be bad :)
 
-Kay tiredly exhaled.
+Kai tiredly exhaled.
 Few minutes later.
 
 "Humans are so unfair."
@@ -625,7 +625,7 @@ Few minutes later.
 While carefully wiping her hair with towel.
 Rinne, who was in provided by hotel nightgown, was sitting on bed and started talking her thoughts.
 
-"Kay, humans are just unfair!"
+"Kai, humans are just unfair!"
 
 "...Why?"
 
@@ -634,7 +634,7 @@ Rinne, who was in provided by hotel nightgown, was sitting on bed and started ta
 "What, if you enjoyed it, then it is good, isn't?"
 
 Rinne was quite surprised by hot water in shower.
-And Kay also heard her humming while enjoying herself there.
+And Kai also heard her humming while enjoying herself there.
 
 "I... had to take baths in snow-mixed water around waterfall during winter." _TL Note:_ It says `冬の滝で` which could be translated winter waterfall, but that just weird? I think author meant during winter.
 
@@ -660,7 +660,7 @@ But still, at present moment it cannot compete at all."
 "...I see."
 
 Humans are having it hard - is what seemed like Rinne mumbled.
-Finishing drying her hair, she stand up, and before Kay could ask what is she doing, Rinne jumped into bed.
+Finishing drying her hair, she stand up, and before Kai could ask what is she doing, Rinne jumped into bed.
 
 "<span title="another japanese sound that is going to be left as it is">Ei</span>!"
 
@@ -683,7 +683,7 @@ Over and over, she was jumping and rolling on top of bed.
 ![Rinne](./p138.jpg)
 
 Be a good child and go to sleep already.
-With sidelong glance towards rolling around Rinne, Kay dropped his shoulders.
+With sidelong glance towards rolling around Rinne, Kai dropped his shoulders.
 
 -------------------------------------------------------------------------------
 
@@ -692,7 +692,7 @@ Underground city Neo Vishal main street became quietest for duration of last thr
 Number of bystanders was quite low.
 There were also just few shoppers, and Resistance's soldiers.
 
-"Hey, Kay? Isn't there quite fewer people comparing to last night?"
+"Hey, Kai? Isn't there quite fewer people comparing to last night?"
 
 "I think everyone are working during day.
 After all you cannot leave industrial plants idle."
@@ -714,7 +714,7 @@ Ultimately we need to find a way back to our world,
 but for that we need at least some clues...
 Rinne, can you read human books?"
 
-"Yep. If Kay is going to read aloud, I can read too"
+"Yep. If Kai is going to read aloud, I can read too"
 
 "I don't feel you can call it 'reading' per se, but oh well it is fine."
 
@@ -730,7 +730,7 @@ And they also had distressed look on their faces.
 
 "Saki, Ashlan?"
 
-"Kay!? You've been here!"
+"Kai!? You've been here!"
 
 Saki turned back and immediately pointed in direction of hotel.
 
@@ -743,13 +743,13 @@ Find refugee in hotel's basement!"
 
 Ashlan takes off safety of his rifle, but then.
 Flames arose.
-<span title="jp. 図書館の天井 again it is a bit confusing here as roof would make more sense, or maybe author means underground ceiling above library?">Ceiling of</span> library, which was Kay's goal today, got blasted and dense
+<span title="jp. 図書館の天井 again it is a bit confusing here as roof would make more sense, or maybe author means underground ceiling above library?">Ceiling of</span> library, which was Kai's goal today, got blasted and dense
 smoke could be seen from there.
 
 "...Magic"
 
 Rinne whispered.
-Kay could hear her weak voice from behind.
+Kai could hear her weak voice from behind.
 
 "Demon magic power, and not single, there are multiple."
 
@@ -780,24 +780,24 @@ And alarms that are coming from ceilings are also getting louder and louder.
 "Damn! This is worst case scenario..."
 
 Instantly people screams enveloped the underground city.
-Hearing it Kay bit his lips.
+Hearing it Kai bit his lips.
 For Resistance's army the situation was most concerning.
 Once the city is found, there is no other way than abandoning it.
 People's houses are engulfed in sea of fire and industrial plants are getting destroyed.
 
-"Hey, Kay, let's leave this place."
+"Hey, Kai, let's leave this place."
 
 While angry screams of escaping people could be heard everywhere,
 Rinne was pulling his sleeve with calm expression.
 
 "...To leave?"
 
-"To surface. If it is just me and Kay, then it will be all right.
+"To surface. If it is just me and Kai, then it will be all right.
 We have enough time to escape."
 
 "Only we are alone...?"
 
-"Well it is a world where you're forgotten, Kay.
+"Well it is a world where you're forgotten, Kai.
 Even if there are people around you, no one recognizes you.
 I think there is no need for us to help them."
 
@@ -810,7 +810,7 @@ But...
 
 "..."
 
-"What is it, Kay?"
+"What is it, Kai?"
 
 "Rinne, it seems I had some misunderstanding about this world."
 
@@ -852,7 +852,7 @@ Wasn't it for this exact moment?
 
 "Rinne"
 
-Kay faced a girl near him, with a bitter sweat smile.
+Kai faced a girl near him, with a bitter sweat smile.
 
 "Change of plans. Let us put some vain resistance."
 
@@ -869,7 +869,7 @@ Releasing safety lock on Drake Nail, he faced toward soldiers angry roars.
 "It is too hard! No use, we cannot suppress it...!"
 
 A city dyed in screams.
-Looking up at ceiling Kay could see demon from scout party.
+Looking up at ceiling Kai could see demon from scout party.
 It kept calmly flying while being shot by bullets from rifles.
 This was a different species from what he saw on surface.
 Bird-type demon with stone skin.
@@ -897,7 +897,7 @@ Gargoyle that broke through rain of bullets, aimed at her, who broke away from r
 He aimed his Drake Nail at gargoyle that aimed at her back.
 With his bayonet, he knocked down demon whose body repelled bullets.
 
-"Kay!?"
+"Kai!?"
 
 "Saki, to break gargoyle's armour grenade launcher would work even better.
 Do you have one?"
@@ -915,7 +915,7 @@ And will not be able to fly any longer."
 
 MDA kept all battle records on war with four races.
 What kind of arms, how many people or what tactics were used in order to win.
-Kay kept in his head all of these records.
+Kai kept in his head all of these records.
 
 "<span title="Written in furigana, above gargoyle. Assume it means he addresses it.">Yours</span> magic is _petrification_, right?"
 
@@ -926,7 +926,7 @@ Invoking the magic, dark magic circles appeared on gargoyle's wings.
 "For it we have elf bullet" _TL Note:_ I omit `simplified` because it is just weird.
 
 Fired transparent crystals hit gargoyle's wings and erased magi circles.
-While stone demon has been thinking "Just what this human did", Kay attacked with his Drake Nail.
+While stone demon has been thinking "Just what this human did", Kai attacked with his Drake Nail.
 Drake bullet exploded.
 Gargoyle fell down with its petrified <span title="jp. 鱗">scales</span> being blown away.
 But...
@@ -936,12 +936,12 @@ But...
 "Tch..."
 
 Gargoyle, that fell, raised its arm and grasped point of Drake Nail.
-Moreover, while his bayonet is sealed, new Gargoyle appeared behind Kay's back.
+Moreover, while his bayonet is sealed, new Gargoyle appeared behind Kai's back.
 
-"Kay!?"
+"Kai!?"
 
 Saki immediately moved her rifle toward it.
-But then toward her, Kay shouted.
+But then toward her, Kai shouted.
 
 "Don't shoot!"
 
@@ -949,14 +949,14 @@ But then toward her, Kay shouted.
 
 "Don't waste bullets"
 
-Kay then let go of his Drake Nail.
+Kai then let go of his Drake Nail.
 But it wasn't taken away, rather he chosen to let it go.
 
 "No chance for humans to win without guns" _TL Note:_ This one is a bit hard to phrase `銃がなきゃ人間が勝つ手段なんてない`
 
 He then turned to face gargoyle that was approaching him from behind.
 Moving like spinning top.
-Putting weight into his momentum, Kay struck elbow to knock off lowered nail.
+Putting weight into his momentum, Kai struck elbow to knock off lowered nail.
 
 _TL Note:_ I'm a bit confused here, might need to revisit it:
 
@@ -969,7 +969,7 @@ _TL Note:_ I'm a bit confused here, might need to revisit it:
 
 He dived in toward his enemy.
 Putting his shoulder closely against gargoyle's breast,
-Kay spreads his legs and lowers himself to set in position.
+Kai spreads his legs and lowers himself to set in position.
 
 _That was common sense until the end of Great War._
 
@@ -980,7 +980,7 @@ In preparations to fight against four races, MDA mandated learning anti-four rac
 
 "These arts are for this"
 
-With move called <span title="jp. 鉄山靠">Tetsuzanko</span>", Kay sent gargoyle into air.
+With move called <span title="jp. 鉄山靠">Tetsuzanko</span>", Kai sent gargoyle into air.
 
 "Really!?"
 
@@ -998,12 +998,12 @@ _TL Note:_ Another weird one, might need revisiting.
 
 "Yeah, ok" - Rinne answered.
 
-In that instance, on her back could be seen wings that expanded, something that only Kay saw.
+In that instance, on her back could be seen wings that expanded, something that only Kai saw.
 
-"If Kay is going to fight, then I'm too is going to"
+"If Kai is going to fight, then I'm too is going to"
 
 Thunderstorm fall upon the scene.
-Like pillars of light, gigantic lightings were striking down the gargoyle that Kay blow away.
+Like pillars of light, gigantic lightings were striking down the gargoyle that Kai blow away.
 And then it mowed down all gargoyles around.
 Demons, that were being annihilated, screamed.
 In just few seconds, the presence of demons disappeared on the streets.
@@ -1019,12 +1019,12 @@ _TL Note:_ Wow, Rinne is really strong, why do we even need Sid's fanboy ;D
 The lightings right now were definitely seen by Resistance soldiers.
 They might not know that Rinne is the one to invoke it, but they might suspect.
 
-"Oi, wait, Kay!? The lighting right now... what was that? Could it be magic!?"
+"Oi, wait, Kai!? The lighting right now... what was that? Could it be magic!?"
 
 "Calm down, Saki. Just short circuited."
 
-Keeping his cool, Kay shrugged off Saki's excitement.
-_TL Note:_ Saying that with straight face... Kay is sure master of poker face
+Keeping his cool, Kai shrugged off Saki's excitement.
+_TL Note:_ Saying that with straight face... Kai is sure master of poker face
 
 "Because of demons that building got broken up.
 And due to that electrical system short circuited.
@@ -1036,7 +1036,7 @@ _TL Note_: I didn't get the second sentence completely `電気系統が短絡し
 
 "There are other things we need to think about before."
 
-"I-is that so...? Wait, Kay, aren't you like super strong?
+"I-is that so...? Wait, Kai, aren't you like super strong?
 What with that bullet that can erase magic?
 And that move of yours!?"
 
@@ -1052,7 +1052,7 @@ Well, both of them didn't pay attention throughout it.
 Ashlan run over toward him.
 
 "That's just unreal.
-Hey, Kay, if you're so strong, you should say so from the beginning!"
+Hey, Kai, if you're so strong, you should say so from the beginning!"
 
 "...You told me to take refugee though?"
 
@@ -1088,7 +1088,7 @@ There is no way we could defend it."
 
 "..."
 
-"Ah, s-sorry, I'll work hard, ok? If Kay is going to fight, then I'm too."
+"Ah, s-sorry, I'll work hard, ok? If Kai is going to fight, then I'm too."
 
 "No, it is fine. I didn't mean you're at fault or anything."
 
@@ -1097,7 +1097,7 @@ But what should they do then?
 If Rinne, who had history of fighting with Vanessa, would rise white flag, then most certainly.
 Neo Vishal will be destroyed.
 
-"Hey, Kay, how about you'd come together with us?"
+"Hey, Kai, how about you'd come together with us?"
 
 Saki, who now put her rifle on shoulder, faced toward him.
 
@@ -1111,7 +1111,7 @@ We should have emergency strategic meeting."
 
 "Beating the gargoyle in such cool way, you're definitely not some amateur or outsider.
 By all means you're welcome.
-I'm really surprised that Kay is so string."
+I'm really surprised that Kai is so string."
 
 "..."
 
@@ -1123,15 +1123,15 @@ _And it is led by paladin Jeanne._
 _No, for now I should forget that she is my childhood friend._
 
 Knight who guides humanity.
-To defend Neo Vishal, Kay and Rinne alone would not suffice.
+To defend Neo Vishal, Kai and Rinne alone would not suffice.
 Her cooperation is necessary.
 
-"With our man power shortage, capable soldiers like Kay are more than welcome.
+"With our man power shortage, capable soldiers like Kai are more than welcome.
 I'm pretty sure Jeanne-sama would gladly accept you."
 
 "...Got it, we'll go to Resistance HQ too."
 
-Signalling Rinne with his eyes, Kay put Drake Nail on shoulder and followed Saki behind.
+Signalling Rinne with his eyes, Kai put Drake Nail on shoulder and followed Saki behind.
 
 -------------------------------------------------------------------------------
 
@@ -1168,7 +1168,7 @@ Ashlan, who stopped the car, came down from driver's seat.
 And then Jeanne-sama succeeded him."
 
 In true world, Jeanne's father still actively served in MDA.
-And Kay himself even been invited to dine together at his childhood friend house.
+And Kai himself even been invited to dine together at his childhood friend house.
 
 _I see, and I thought that for most part people here didn't change much._
 
@@ -1223,7 +1223,7 @@ Hearing his name being called by a young man, whom he didn't notice initially, h
 
 "Corporal Saki, who could it be?"
 
-"Y-yes, his name is Kay.
+"Y-yes, his name is Kai.
 As Ashlan reported, he is really amazing.
 He was able to send gargoyle flying without using any gun."
 
@@ -1241,7 +1241,7 @@ Is what he wanted to say, but gripped his fists as he forced himself put these w
 "Noted, sorry, but as I need to coordinate with other divisions officers, I have to go."
 
 The soldiers started to descend past them.
-And Kay followed to third floor.
+And Kai followed to third floor.
 Although the building has been abandoned, he could see that windows glass has been covered by special film.
 
 "We've arrived."
@@ -1259,7 +1259,7 @@ Treating Paladin without respect will earn you ire of Federation's people."
 "Well, it shows how much people admire him.
 After all Jeanne-sama is symbol of people  hope for eventual freedom from demon menace."
 
-Kay remembered how people gather around New Vishal upon Jeanne's visit.
+Kai remembered how people gather around New Vishal upon Jeanne's visit.
 If all people of Urza Federation adore her this much, then it exceeded the level of just Resistance leader.
 She is just like war goddess that lead masses.
 
@@ -1278,7 +1278,7 @@ Six of them wore extravagant coat of arms which would indicate that they belong 
 
 Thanked them person, who sat furthest away from them.
 Gallant, yet neutral male voice that was close to woman's...
-That's what it looked like to him, as Kay knew her true identity.
+That's what it looked like to him, as Kai knew her true identity.
 Paladin Jeanne.
 
 ![Round table](./p159.jpg)
@@ -1315,13 +1315,13 @@ And you, my friends, shall join under him too."
 Saying that, Rinne quickly disrupted the atmosphere here.
 Top brass, who were sitting by round table, focused their attention on girl besides him.
 
-"I'm only going to listen to Kay. Why would I let humans...*surprised by her mouth being covered*"
+"I'm only going to listen to Kai. Why would I let humans...*surprised by her mouth being covered*"
 
 "Wha...!? It is nothing!
 ...Rinne, shh!
 If you'll carelessly speak, they might doubt your identity and it would be bad."
 
-Kay silenced Rinne by covering her mouth with his hand.
+Kai silenced Rinne by covering her mouth with his hand.
 He looked at confusion at roun table, and here he could see amused Jeanne.
 
 "I see."
@@ -1334,7 +1334,7 @@ Since you're not part of Resistance, I have no authority over you.
 Moreover, I should thank you."
 
 Jeanne stood from round table.
-Then Urza's Federation symbol of hope give small bow toward both Rinne and Kay.
+Then Urza's Federation symbol of hope give small bow toward both Rinne and Kai.
 
 "I read the report.
 There was 9 invaders.
@@ -1350,7 +1350,7 @@ Merit for saving city should go to Rinne.
 "<span title="jp. 花琳 Her name is written with kanji, which is rare. But furigana reads like something resembling Fuarin which I decided to tranform a bit">Fairin</span>.
 I'm in charge of Jeanne-sama's guards."
 
-"I'm Kay Sakuravent, and this is Rinne."
+"I'm Kai Sakuravent, and this is Rinne."
 
 She gave small nod.
 
@@ -1362,7 +1362,7 @@ He wasn't acquainted with her in real world, but this much was obvious.
 She is sharp.
 The moment they entered the room, this bodyguard woman Fairin had her eyes on Rinne.
 Other races has certain eye-catching presence.
-Kay, himself, met many lots of various people while training in martial arts,
+Kai, himself, met many lots of various people while training in martial arts,
 but never he met someone who clearly gave such _strong_ impression.
 Warrior.
 Far beyond just simple soldier, she looked like a seasoned warrior who went through lots of deadly battles.
@@ -1423,14 +1423,14 @@ And humans enjoyed life peaceful world.  I'm from that world."
 
 Top brass at round table fell into silence.
 What is youngster saying?
-Under odds glances, Kay remove Drake Nail magazine and took out bullets from it.
+Under odds glances, Kai remove Drake Nail magazine and took out bullets from it.
 
 "In world that I know Great War ended hundred years ago.
 This bayonet is latest anti non-humans weapon, built based on Great War records.
 It is not weapon of this world."
 
 Elf bullet which looked like a fragment of crystal.
-Kay threw it without words and Fairin caught it.
+Kai threw it without words and Fairin caught it.
 
 "The same about my martial arts.
 The gargoyle, that attacked Neo Vishal, and cryptids, with their thick skin, are not affected by bullets.
@@ -1474,7 +1474,7 @@ Corporal Saki, sorry, but could you please open the door?"
 The girl who was standing besides the double door, become panicky and started opening it up.
 This restrained these two guys.
 It wasn't some order to shut up, but rather just saying they need fresh air, which diminished their anger.
-Kay has been surprised by this skilful display of Jeanne.
+Kai has been surprised by this skilful display of Jeanne.
 
 _While door is opened, shouting here would mean that it echoes through the corridor._
 
@@ -1482,11 +1482,11 @@ _They cannot show such disgraceful behavior to subordinates, so they are going t
 
 There was no trace of his childhood friend.
 Before him was Urza Federation knight who guided its people.
-And Kay felt that he caught a glimpse of her abilities.
+And Kai felt that he caught a glimpse of her abilities.
 
-_TL Note:_ Yeah, I'm not sure why Kay has to make such a big deal out of it.
+_TL Note:_ Yeah, I'm not sure why Kai has to make such a big deal out of it.
 
-"So as, you were saying, Kay."
+"So as, you were saying, Kai."
 
 Jeanne put her joined together hands on table.
 
@@ -1522,7 +1522,7 @@ What staff officer said is on point,
 his story feels somewhat suspicious.
 If inviting him to our ranks goes against Resistance's regulations, it is not necessary."
 
-"...Right. Then, Kay, regarding your story just now, I have something I'd like to ask."
+"...Right. Then, Kai, regarding your story just now, I have something I'd like to ask."
 
 As if testing him, Jeanne looked at him again.
 
@@ -1561,7 +1561,7 @@ Paladin swallowed her breath.
 
 "So let me then ask you one thing."
 
-Kay step forward, prepared to ask a taboo question.
+Kai step forward, prepared to ask a taboo question.
 
 "Jeanne, why are you pretending to be a man?"
 
@@ -1597,7 +1597,7 @@ But soon enough her expression stiffen, and Paladin's voice resonated through ro
 
 "I'm sorry to stop in the middle of our talk, but...
 Corporal Saki, Corporal Ashlan, you're to stay at HQ and contact unit that we're going to dispatch to Neo Vishal.
-...Kay, and Rinne, you said..."
+...Kai, and Rinne, you said..."
 
 Jeanne stood up.
 After whispering something to Fairin, she turned toward them.
@@ -1612,7 +1612,7 @@ Surprisingly for ruined building, inside it was clean and shiny.
 The same could be said about guest room where he is going to stay.
 The prepared for them room was well-furnished, and it is been well maintained as well.
 
-"Hey, Kay, it is so cool! The bed is so soft!"
+"Hey, Kai, it is so cool! The bed is so soft!"
 
 Rinne, who was sitting on bed, has been standing up and sitting back over and over again.
 
@@ -1620,10 +1620,10 @@ Rinne, who was sitting on bed, has been standing up and sitting back over and ov
 
 "You're very happy again. But is it ok, Rinne? Staying in my room."
 
-"I don't wanna be without you, Kay."
+"I don't wanna be without you, Kai."
 
 He requested to prepare two rooms.
-But few minutes after Saki, who was guiding them, left, Rinne came to Kay's room.
+But few minutes after Saki, who was guiding them, left, Rinne came to Kai's room.
 
 _Certainly it might be unpleasant for Rinne to be in place full of humans._
 
@@ -1633,11 +1633,11 @@ Night was reflected in windows.
 How many hours it was since sun set down.
 Barracks lights were already off, except for soldiers that were standing watch, everyone was asleep.
 
-"...Kay."
+"...Kai."
 
 "M? What is it, Rinne?"
 
-"That important-looking human looks like your acquaintance, Kay."
+"That important-looking human looks like your acquaintance, Kai."
 
 Rinne blinks with curiosity.
 
@@ -1650,7 +1650,7 @@ Rinne blinks with curiosity.
 "It's Jeanne. She is the same as Saki and Ashlan, my friend.
 Before world became like this we were together, so I hoped at least she would remember me..."
 
-"...Does Kay need Jeannya?"
+"...Does Kai need Jeannya?"
 
 Like pouting child with upturned eyes she asked.
 
@@ -1669,7 +1669,7 @@ Rinne remained slient.
 In the end it is no good unless we'll make demons think that humans are strong.
 And to prevent demons from attacking our city, we need to show Vanessa, who leads demons, that humans are strong."
 
-"...Kay, you're going to fight?"
+"...Kai, you're going to fight?"
 
 "I already started, cannot be helped." _TL Note:_ `言い出しっぺだからしょうがないだろ` this one is a bit unclear
 
@@ -1696,7 +1696,7 @@ This is a battle that only he can do, or so he thought.
 
 "....The sword, that you used to free me of chains?"
 
-Rinne looked over Kay's Drake Nail.
+Rinne looked over Kai's Drake Nail.
 This Code Holder, with its bright shining - revealed to be Sid's sword.
 She too saw it.
 
@@ -1724,7 +1724,7 @@ And the biggest building there... I think it is called government palace.
 So it is been taken over and made into their nest."
 
 The building concentrated in itself all government functions of Urza Federation.
-As far as Kay knew, that enormous building was comparable to impregnable fortress.
+As far as Kai knew, that enormous building was comparable to impregnable fortress.
 And since demons took it over, it became Vanessa's residence also.
 
 "To attack government palace we need numbers.
@@ -1737,7 +1737,7 @@ So we're going to need to cooperate with Resistance Army."
 His childhood friend who was said to be <span title="A bit extra on my side, I kinda felt funny about her title">shining star</span> of hope for Urza Federation.
 Then...
 
-"Wait, Kay, I feel human."
+"Wait, Kai, I feel human."
 
 While sitting on bed, Rinne turned her head over.
 In few moments, they could hear someone knocking a door.
@@ -1772,7 +1772,7 @@ In few ranobe illustrations she is not so cold looking as in manga.
 And to be honest I think manga got her right, she also looks a bit older in manga thanks to that.
 
 She was tall as average adult man.
-Despite her stature, from this short distance, even if Kay would jump <span title="As if starts fight, not what you thought :P">on her</span>, she would immediately react...
+Despite her stature, from this short distance, even if Kai would jump <span title="As if starts fight, not what you thought :P">on her</span>, she would immediately react...
 Or that was his impression from her sharp appearance.
 
 "We're heading to the office where we had meeting today.
@@ -1783,7 +1783,7 @@ Jeanne-sama is waiting there."
 "Precisely because there are not a lot of eyes, we can talk about it."
 
 She gracefully walked ahead.
-After beckoning Rinne, Kay followed her towards stairs of first floor that were covered in darkness.
+After beckoning Rinne, Kai followed her towards stairs of first floor that were covered in darkness.
 
 "You know, there are stairs with lights on other side, though?"
 
@@ -1812,7 +1812,7 @@ Top brass were really pleased to find out reason."
 "This knowledge, does it come from your _another_ world?"
 
 Fairin halted her step when they were moving from second to third floor.
-Woman bodyguard turned <span title="Towards Kay">around</span>.
+Woman bodyguard turned <span title="Towards Kai">around</span>.
 
 "Gargoyles weakness is a common knowledge for humans from the world where we won Great Way?"
 
@@ -1829,7 +1829,7 @@ It is just accidental discovery."
 "...Is that all for now?"
 
 Fairin quickly turned back.
-Considering he caught unexpected attention, Kay prepared to receive more serious questioning.
+Considering he caught unexpected attention, Kai prepared to receive more serious questioning.
 
 "These five at round table, completely misunderstood you.
 This is my and Jeanne-sama opinion."
@@ -1867,7 +1867,7 @@ It would be really bad to be seen like that."
 She said with a well <span title="I.e. she no longer forces her voice to be more a man like">familiar</span> voice of his childhood friend.
 He now understood why Fairin didn't want anyone to spot them.
 
-"Good evening, Kay. And to you, Rinne, too."
+"Good evening, Kai. And to you, Rinne, too."
 
 "..."
 
@@ -1875,7 +1875,7 @@ He was unable to say anything at once.
 Could it be she remembered him?
 But before he could voice the question, Jeanne shook her head.
 
-"Kay, I still find it hard to believe your claim.
+"Kai, I still find it hard to believe your claim.
 That you came from another world, world where you and me are childhood friends."
 
 "...Yeah, I suspected that would be the case."
@@ -1895,7 +1895,7 @@ I've been taught by my father, for this moment when he'll no longer be able to t
 I've been pretending to be a man since my early childhood.
 So aside from Fairin, and my father's subordinates among high ranking officers in Resistance, no one knows about my secret."
 
-"And why your trust such important secret to me?" _TL Note:_ I'm not sure if it is a joke, since Kay himself already knows this secret of hers...
+"And why your trust such important secret to me?" _TL Note:_ I'm not sure if it is a joke, since Kai himself already knows this secret of hers...
 
 "Unless I'll stop pretending, you'll be unable to trust me, right?"
 
@@ -1939,7 +1939,7 @@ Jeanne continued.
 
 "...Hey"
 
-Rinne, who was so far almost glued to Kay, peeked from his back.
+Rinne, who was so far almost glued to Kai, peeked from his back.
 
 "I think that is not going to be enough."
 
@@ -1974,7 +1974,7 @@ But not because they had no idea who that could be, but precisely because they f
 
 "It cannot be..."
 
-To leader of Resistance Army, Kay responded with a nod.
+To leader of Resistance Army, Kai responded with a nod.
 
 "We'll attack demons hero."
 
@@ -2017,16 +2017,16 @@ Unbelievably amazing human hero."
 Our current situation is quite different from Sid's."
 
 At the same time, Sid had lots of experience fighting against other races.
-Kay may acquire his knowledge from MDA, but his experience was certainly lacking, even including demons.
+Kai may acquire his knowledge from MDA, but his experience was certainly lacking, even including demons.
 So his assumption was that fight against Dark Empress would be far more challenging for him, than for Sid.
 
 "But..."
 
-"Kay got me"
+"Kai got me"
 
-Before Kay could say that he has someone to back him up, Rinne, who was standing besides him, raised her hand.
+Before Kai could say that he has someone to back him up, Rinne, who was standing besides him, raised her hand.
 
-"I'm really strong, and Kay himself is going to be fine.
+"I'm really strong, and Kai himself is going to be fine.
 With my magic I can defend against <span title="Specifically it mentions swords, but demons don't use sword...?">attacks</span>,
 and even if I'd be surrounded by demons I think I'll be fine."
 
@@ -2047,7 +2047,7 @@ Even if we're to fail, we can keep Resistance army casualties to minimum."
 Humans are not inferior to demons."
 
 Prophet Sid is a proof of that.
-For Kay who knows it, that's the only thing he can do.
+For Kai who knows it, that's the only thing he can do.
 
 "What is your reason?"
 
@@ -2059,7 +2059,7 @@ There is no reward that would make you shoulder such risk."
 
 "...Only my selfishness."
 
-Kay said unconsciously with a bitter smile.
+Kai said unconsciously with a bitter smile.
 
 "I don't exist in this world, and the fate of this world is not really something for me to be concerned with.
 There is no reason for me to act."
@@ -2068,7 +2068,7 @@ There is no reason for me to act."
 
 "One cannot help but think so... But!"
 
-Not even realizing it, Kay clenched his fists.
+Not even realizing it, Kai clenched his fists.
 
 "Both Saki and Ashlan forgot about me, while I do remember them.
 They are my important comrades.
@@ -2096,7 +2096,7 @@ Female bodyguard became silent.
 Specifically I want Resistance army attack capital."
 
 They need to attack capital with full force.
-There Rinne and Kay would separate from them to sneak into Dark Empress's stronghold
+There Rinne and Kai would separate from them to sneak into Dark Empress's stronghold
 Meanwhile, Resistance army would surround the palace and will ruckus to attract attention.
 
 "Overall demon population is quite big which is troublesome.
@@ -2184,7 +2184,7 @@ But why my father wouldn't say a single word about this strategy once he retired
 "Because you're his daughter."
 
 That was parent's care.
-To dumbfounded Jeanne, Kay only shrugged his shoulders.
+To dumbfounded Jeanne, Kai only shrugged his shoulders.
 
 "Assaulting the government palace and challenging Vanessa...
 Is there a parent that would let his daughter to perform such reckless strategy?
@@ -2199,7 +2199,7 @@ I'm actually violating his orders now."
 "...Fool."
 
 With her eyes cast downwards, she moved her fist towards bodyguard's chest area.
-What kind of emotions are conveyed by this gesture - wasn't clear to Kay.
+What kind of emotions are conveyed by this gesture - wasn't clear to Kai.
 This was something only two of them who spend multiple years together could understand.
 
 "So, Jeanne, what are you going to do?"
@@ -2208,7 +2208,7 @@ This was something only two of them who spend multiple years together could unde
 We'll use this private train station in order to assault Urza government palace.
 Call for strategy meeting."
 
-Leader of Resistance raised her head, and with determination in her eyes gave unexpectedly quick answer to Kay and Rinne.
+Leader of Resistance raised her head, and with determination in her eyes gave unexpectedly quick answer to Kai and Rinne.
 
 "Aren't you too quick to decide?"
 
@@ -2217,7 +2217,7 @@ I must protect the city at all cost.
 That's what it is to be a _Paladin_."
 
 No longer was he facing the childhood friend, he knew.
-Before Rinne and Kay, Jeanne quickly tied her long hair behind.
+Before Rinne and Kai, Jeanne quickly tied her long hair behind.
 
 "We'll do it! We'll challenge demons hero and take Urza Federation back!"
 

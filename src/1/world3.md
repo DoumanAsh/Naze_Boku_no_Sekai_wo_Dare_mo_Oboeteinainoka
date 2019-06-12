@@ -5,7 +5,7 @@ There was a blond girl, bound to pillar.
 "Please... Help..."
 
 She pleaded with hoarser voice, that resembled a shriek.
-To her desperate plea, Kay could not utter even a single word in response.
+To her desperate plea, Kai could not utter even a single word in response.
 He was at loss.
 
 _This girl..._
@@ -17,7 +17,7 @@ At their roots, her wings were black as colour of raven's feather.
 But as you go on, her feathers become pure white as snow.
 Gradients of black and white.
 Demon? Or is she angel specimen from cryptid race?
-_TL Note:_ Wait, angels belong to cryptid race? Might be author weird mistake or maybe Kay is being mistaken?
+_TL Note:_ Wait, angels belong to cryptid race? Might be author weird mistake or maybe Kai is being mistaken?
 
 "Angle or demon..."
 
@@ -28,7 +28,7 @@ But girl's wings makes it looks like a mix breed between angle and demon.
 "..."
 
 Chains jingle.
-At the sound of chains that were binding the girl, Kay - came back to his senses.
+At the sound of chains that were binding the girl, Kai - came back to his senses.
 
 "You... who are... you?"
 
@@ -37,7 +37,7 @@ She mustered in desperation to move her lips again.
 
 "Who, you ask..."
 
-Kay responded with strained voice.
+Kai responded with strained voice.
 It was him who wanted to ask that.
 Just who was she to be here and in such horrible situation.
 
@@ -64,7 +64,7 @@ _But asking me(human) to do that._
 
 There is a chance that he would be attacked once he'll get closer.
 It could be a trap after all.
-But Kay hesitated only few seconds.
+But Kai hesitated only few seconds.
 
 "...Got it"
 
@@ -75,12 +75,12 @@ Maybe she knows something about this place.
 
 "I'm going to help you right now, but don't attack me"
 
-Kay looked over at girl and raised his Drake Nail.
+Kai looked over at girl and raised his Drake Nail.
 He aimed at chains that bound girl by the name Rinne to pillar.
 And swung down with all of his strength.
 
 Sound of metallic clank could be heard.
-As the sound echoed through the place, Kay opened his eyes.
+As the sound echoed through the place, Kai opened his eyes.
 
 "It is hard!? What kind of durability is that!?"
 
@@ -102,7 +102,7 @@ These chains, which looked so thin that even could be torn apart by his own hand
 
 "If it doesn't work, then how I'm supposed to do it..."
 
-In Kay hands was only bayonet.
+In Kai hands was only bayonet.
 If it is not enough, then how he is going to destroy these chains?
 
 "...Wait a sec. There was voice before."
@@ -125,7 +125,7 @@ Its dark blade become semi-transparent.
 Both gun parts and guard of his sword too somehow transformed into Sid's sword which he saw in graveyard.
 ...As if responding to sword's name, it transformed.
 And after it settled down.
-In Kay's hand was Shining Sword.
+In Kai's hand was Shining Sword.
 This semi-transparent blade looked as beautiful as most expensive jewel.
 And also like a big <span title="Guess we know why it is Code Holder's key, but I'll continue omitting key part for now">key</span>.
 If Drake Nail couldn't even scratch these chains, then how about this hero's sword...?
@@ -142,7 +142,7 @@ Winged girl were falling down.
 
 "Hey...!? What happened? Where is this place? Who is this girl?"
 
-Kay grabbed the falling girl who lost her consciousness.
+Kai grabbed the falling girl who lost her consciousness.
 Her body was surprisingly light.
 And as his hands touched her bare skin, he become almost flustered.
 He decided to lay her on floor.
@@ -192,7 +192,7 @@ Surprisingly, the girl stood up with angry expression on her face.
 How dare you to lock me up
 I still haven't lost to you!"
 
-Girl's wings spread her things and pointed towards Kay.
+Girl's wings spread her things and pointed towards Kai.
 She looked like she was preparing to fight.
 
 "Do you think such weak pawn of yours could stop me!?
@@ -233,7 +233,7 @@ Light of this magic started fired off.
 
 "Ugh... Elf bullet..."
 
-Kay prepared his bayonet, but then he froze still.
+Kai prepared his bayonet, but then he froze still.
 Drake Nail started changing into Sid's sword.
 Aside from _simplified elf bullet_, that was stored in his bayonet, he had no means to oppose this magic.
 Magic's light filled his vision.
@@ -253,7 +253,7 @@ The shining sword cut in half Rinne's colourful magic.
 Like with a sound of ringing bells magic has vanished.
 As if it was a dream, sparks of her magic disappeared one by one entirely.
 
-"...Magic vanished?" - said Kay who swung the Sid's sword himself.
+"...Magic vanished?" - said Kai who swung the Sid's sword himself.
 
 Sword that can cut magic.
 Any magic that is directly hit, as if it wasn't even there in first place, vanishes.
@@ -262,7 +262,7 @@ And then the girl who fired the magic:
 "...Impossible."
 
 Rinne was standing in still in shock.
-Kay looked over Code Holder in his hand.
+Kai looked over Code Holder in his hand.
 
 "What was that!? Since when you damn demons use such weapons!"
 
@@ -286,7 +286,7 @@ It seems all of her anger started to fade.
 "..."
 
 She started folding back her wings.
-Now Kay wings were almost no longer visible, which he interpreted as her no longer being hostile.
+Now Kai wings were almost no longer visible, which he interpreted as her no longer being hostile.
 
 "I'm sorry, due to my grudge against demons..."
 
@@ -316,7 +316,7 @@ Saying that, Rinne's wings became so small that were hidden behind her golden ha
 
 "Tenma..."
 
-Coincidently, the name, Rinne gave, was the one that came to Kay's mind.
+Coincidently, the name, Rinne gave, was the one that came to Kai's mind.
 
 "...is what they call it"
 
@@ -338,13 +338,13 @@ This is not a pleasant subject for me"
 "I'm glad to hear it"
 
 Her response felt as overly polite.
-But seeing her relaxed face, made Kay think that she was being honest here.
+But seeing her relaxed face, made Kai think that she was being honest here.
 
 "Hey, human, you're...?"
 
-"Kay"
+"Kai"
 
-Trying to not show a bitter smile, Kay gave her name.
+Trying to not show a bitter smile, Kai gave her name.
 Certainly it is his race, but he finds it difficult to be called like that.
 
 "I'm not used to be called human"
@@ -494,7 +494,7 @@ Her body, as if being rubbed by eraser, starts disappearing.
 
 "Ah... AH!? No... Nooo!"
 
-Rinne moved her hand towards Kay, as if asking to save her.
+Rinne moved her hand towards Kai, as if asking to save her.
 But soon enough her hand were covered by this black whirlpools and disappeared.
 If it remains like that, her body will completely disappear, just before his eyes.
 
@@ -507,7 +507,7 @@ _In this ridiculous world..._
 _Right before my eyes is real monster... But so what!_
 
 There he has hero's sword.
-And Kay himself desperately trained for the day when he'll have to face powerful non-human enemy.
+And Kai himself desperately trained for the day when he'll have to face powerful non-human enemy.
 Regardless of what kind of enemy it is, he only have to fight.
 It is only natural yet he...
 He was only angry at his weak self cowering in fear.
@@ -518,7 +518,7 @@ He tightly gripped his shining sword.
 
 "Sid, I'll borrow your sword!"
 
-Kay readied his shining blade, and aimed his swing at monster's tentacle that captured Rinne.
+Kai readied his shining blade, and aimed his swing at monster's tentacle that captured Rinne.
 ...Free Rinne!
 Flash.
 Like clouds, black whirlpools started moving away.
@@ -531,7 +531,7 @@ The monster, whose tentacle has been cut off, staggered.
 
 "Here, Rinne!"
 
-Kay pulled her in, without waiting.
+Kai pulled her in, without waiting.
 
 "Can you run?"
 
@@ -539,25 +539,25 @@ Kay pulled her in, without waiting.
 
 "Let's go then! We don't need to deal with such monster!"
 
-While holding her hand, Kay dashed towards back of the altar.
+While holding her hand, Kai dashed towards back of the altar.
 Towards where Rinne pointed previously.
 There was...
 
 "Here it is!"
 
 Rift of light.
-Kay and Rinne jumped into this floating door.
+Kai and Rinne jumped into this floating door.
 
 -------------------------------------------------------------------------------
 
 Demon's graveyard.
-In a blink of the moment, Kay found himself standing in dim halls.
+In a blink of the moment, Kai found himself standing in dim halls.
 
 "Hu..h... We escaped...?"
 
 Will this strange monster follow us?
 There is no sign of its appearance.
-In this quiet darkness, only Kay and Rinne rough breathing could be heard.
+In this quiet darkness, only Kai and Rinne rough breathing could be heard.
 
 "Rinne?"
 
@@ -565,12 +565,12 @@ She was laying down unmoving, or so he thought when...
 
 "....!"
 
-Rinne jumped and hugged crouching Kay.
+Rinne jumped and hugged crouching Kai.
 
 "....It was scary... my...body...it was chilling..."
 
 She was almost crying.
-Rinne was shaking while clinging onto Kay's neck.
+Rinne was shaking while clinging onto Kai's neck.
 
 "Really... It was really...So...Scary..."
 
@@ -580,10 +580,10 @@ Rinne was shaking while clinging onto Kay's neck.
 
 "Yeah, Same here. I too felt it was quite dangerous."
 
-Kay put his hands on clinging girl's back.
+Kai put his hands on clinging girl's back.
 Couldn't blame her for it.
 Being attacked by such monster.
-If by any chance he would be few seconds late, Kay couldn't imagine what would happen.
+If by any chance he would be few seconds late, Kai couldn't imagine what would happen.
 Being shaken by it is only natural.
 
 "Let's rest for now. Until you'll calm down."
@@ -616,7 +616,7 @@ Before I became aware, I've been alone"
 
 _Being alone in this world._
 
-Kay frown hearing Rinne's words.
+Kai frown hearing Rinne's words.
 He already experienced on his own.
 The pain that she felt, he felt it too.
 
@@ -647,7 +647,7 @@ This is more or less sums up her history up to now.
 
 Hearing that, Rinne, who were embracing him, looked up.
 
-"Kay too? But you're human, aren't you? There are lots of humans out there."
+"Kai too? But you're human, aren't you? There are lots of humans out there."
 
 "There are no people I know.
 I've been left alone.
@@ -664,7 +664,7 @@ It is just, no one remembers me.
 Well... Maybe it is me who became strange."
 
 "What do you mean?
-Kay is pretty normal, no?"
+Kai is pretty normal, no?"
 
 "Well, If I'll say it, you're going to laugh."
 
@@ -672,11 +672,11 @@ Kay is pretty normal, no?"
 
 Rinne, who were embracing him.
 
-"I'm not going laugh at you, Kay. Because you didn't laugh at me too."
+"I'm not going laugh at you, Kai. Because you didn't laugh at me too."
 
 "...I don't believe that mankind lost."
 
-Kay shook his head and continued.
+Kai shook his head and continued.
 
 "I remember it perfectly well.
 Humans were the one who won Five Races Great War.
@@ -684,7 +684,7 @@ But I would never think that history would suddenly change.
 Now humans lost.
 Instead of humans, our cities are now occupied by demons."
 
-"Eh? Wait, Kay."
+"Eh? Wait, Kai."
 
 Rinne stopped embracing him.
 
@@ -706,7 +706,7 @@ Just before my fight with Vanessa, humans should have won in Great War, I think.
 
 "How so!?"
 
-"Because of human hero... I think. Well, Kay should know more about it, I think?"
+"Because of human hero... I think. Well, Kai should know more about it, I think?"
 
 Unbelievable.
 Who would think that he would think such talk from Rinne, who was even of different race.
@@ -718,11 +718,11 @@ Even demons were wary against human hero..."
 
 "Kya!"
 
-Kay were holding Rinne now.
+Kai were holding Rinne now.
 
 "Rinne, did you see Sid!?"
 
-"Wa-wait Kay... Don't know him.
+"Wa-wait Kai... Don't know him.
 Never was interested in humans."
 
 "Ah... Yeah I guess it is also true."
@@ -731,12 +731,12 @@ But in this world, both Saki and Ashlan said that no human hero exist.
 So then Rinne, who knows about him, should be from the same world as him.
 There is proof that his memory of history is not wrong.
 
-"Kay?"
+"Kai?"
 
 "...I'm glad..."
 
 He moved his hands from Rinne and looked at ceiling.
-Kay was relieved, his memories are not wrong.
+Kai was relieved, his memories are not wrong.
 There is a person who knows about the same history as he, himself.
 Finally he was able to meet her.
 In this absurd situation where humans lost war and demons occupied their cities.
@@ -745,7 +745,7 @@ Comrade who could understand pain of his solitude.
 
 _TL note:_ I'm pretty sure she doesn't give a shit about humans losing war though... But oh well, let guy to dream :0
 
-"Kay? What are you glad about?"
+"Kai? What are you glad about?"
 
 "We're comrades, comrades who share the same memory."
 
@@ -778,7 +778,7 @@ Comrades that share the same memories."
 
 "..."
 
-Rinne starts staring at Kay.
+Rinne starts staring at Kai.
 While crawling, she suddenly brings her face closer.
 
 "...What is it?"
@@ -795,4 +795,4 @@ Saying so, Rinne smiled.
 
 For her it was first time to show smile, so it was clumsy.
 
-_TL Note:_ I think Kay just grabbed 99% of her flags, not even being aware of it.
+_TL Note:_ I think Kai just grabbed 99% of her flags, not even being aware of it.

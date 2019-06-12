@@ -7,7 +7,7 @@ The truck has been covered in think armour and carried impressive looking auto-c
 
 "2PM, right on schedule"
 
-From the back of truck, a lone soldier descended, Kay Sakuravent, and took out his binoculars.
+From the back of truck, a lone soldier descended, Kai Sakuravent, and took out his binoculars.
 Age is 17.
 It is a young man whose hair and eyes had colour of dark ultramarine.
 He was wearing a "mankind defence agency" battle suit.
@@ -15,7 +15,7 @@ Forged by daily training he gave off aura of certain strength, and you could fee
 
 "Saki and you too Ashlan, we are starting _graveyard_'s monitoring"
 
-With his binoculars Kay could see a strange structure standing beyond horizon.
+With his binoculars Kai could see a strange structure standing beyond horizon.
 Black pyramid.
 As if made by precise machine, perfect triangular pyramid.
 This black, as if painted by ink, object stood out among red desert.
@@ -26,14 +26,14 @@ This black, as if painted by ink, object stood out among red desert.
 
 From inside of truck, on a passenger seat, a young man, with clipboard on his knees, lazily answered.
 His name is Ashlan <span title="Please don't ask where from are these names...">Highrol</span>
-Year older than Kay, and also soldier as Kay.
+Year older than Kai, and also soldier as Kai.
 
-"Just nothingness, right, Kay?"
+"Just nothingness, right, Kai?"
 
 "Only 70 seconds passed, graveyard's observation procedure requires 300 seconds"
 
 The graveyard is what they call this black pyramid.
-The target of Kay's diligent observation has been 200 meters tall, which was comparable to modern skyscraper buildings.
+The target of Kai's diligent observation has been 200 meters tall, which was comparable to modern skyscraper buildings.
 
 "There is really nothing, isn't? 300 seconds should already pass, right?"
 
@@ -42,7 +42,7 @@ The target of Kay's diligent observation has been 200 meters tall, which was com
 "Ah... damn, isn't it more than enough already? I got carsick from all this shaking, and want to return already"
 
 Ashlan, who already wrote down "Nothing out of order" in report and lazily laid in passenger seat.
-Kay, on other hand, shows no sign of lowering his binoculars.
+Kai, on other hand, shows no sign of lowering his binoculars.
 
 "300 seconds"
 
@@ -60,7 +60,7 @@ Ashlan made a deep sigh and from his passenger seat faced person in driver seat.
 Orange haired girl by the name Saki raised herself from the seat.
 While chewing her favourite gum, she was leaning against driver's wheel in relaxed pose.
 
-"Isn't it fine? While Kay doing his work seriously, we can take it easy"
+"Isn't it fine? While Kai doing his work seriously, we can take it easy"
 
 "I mean there should be limit! It is been hundred years, hundred! Was there even record of any, among four races, to escape the seal?"
 
@@ -73,7 +73,7 @@ While chewing her favourite gum, she was leaning against driver's wheel in relax
 "...Fair enough, but aren't you too inflexible?" - said Saki, while getting herself new gum to chew -
 "Doing it diligently only in our area is not enough, right? There are four graveyards after all"
 
-"Obviously 3 other places are being properly handled too" - Kay stated as if it is obvious thing and started moving toward truck -
+"Obviously 3 other places are being properly handled too" - Kai stated as if it is obvious thing and started moving toward truck -
 "We have great responsibility, after all it will become a disaster if by some tiny chance demons would escape."
 
 There are four black pyramids in this world.
@@ -93,7 +93,7 @@ With humans joining the other four races, the greatest conflict in history start
 After all battles, mankind was able successfully seal away four other races in black pyramids, _Graveyards_.
 Since then, mankind continued to diligently manage graveyards.
 
-"That's right, Kay, I almost forgot about very important matter" -
+"That's right, Kai, I almost forgot about very important matter" -
 Saki, who is been in driver's seat, turned towards him -
 "We got party on next week, to celebrate Jeanne's promotion. And we need to discuss present..."
 
@@ -101,13 +101,13 @@ Saki, who is been in driver's seat, turned towards him -
 
 "...Eh? There is nothing going on anyway, it is fine, isn't it?" - Saki raised her voice in protest.
 
-Nearby Ashlan just sat at passenger's seat, bewildered by Kay.
+Nearby Ashlan just sat at passenger's seat, bewildered by Kai.
 So-called "World peace" is a common perception of current era.
 It is impossible for four races to escape from graveyard...
 It wasn't opinion of only Saki and Ashlan.
 Most, if not all, young people who were conscripted for two years military service shared the same opinion.
 Almost no one doubted it.
-And then there are some rare cases of people, like Kay, who rejected such ideas.
+And then there are some rare cases of people, like Kai, who rejected such ideas.
 
 "Even if nothing is going to happen, I do not want to be negligent. Half of it might be coming from my stubbornness, though"
 
@@ -115,18 +115,18 @@ Both Saki and Ashlan are not just being negligent.
 Their logic is only sound in this case.
 After all, seal, that has been safe for hundred years, wouldn't collapse out of nowhere normally.
 But...
-For Kay there is a reason why he cannot help but worry about seal.
+For Kai there is a reason why he cannot help but worry about seal.
 
 "Because I saw it"
 
 10 years ago he fell into Demon's graveyard.
-And there, inside the black pyramid, Kay saw demons and that's why.
+And there, inside the black pyramid, Kai saw demons and that's why.
 
 "Again this story? We heard with Ashlan around 20 times by now"
 
 "That's just your imagination, falling into graveyard and then escaping it? That's a den of demons, after all"
 
-It is as Ashlan says, Kay too thinks that it is miracle that he was able to survive.
+It is as Ashlan says, Kai too thinks that it is miracle that he was able to survive.
 He was attacked by countless demons and lost his consciousness.
 And after he woke up, he already was outside of graveyard.
 But there is no proof to support his claims
@@ -134,22 +134,22 @@ But there is no proof to support his claims
 ...It cannot be just his delusion.
 There is no way it was a dream.
 The horror he felt from these demons.
-Even if people around him disagrees, a scenario, where demons tear apart seal and escape, is _possible_, or so Kay feels.
+Even if people around him disagrees, a scenario, where demons tear apart seal and escape, is _possible_, or so Kai feels.
 Therefore they must be ready for demons counter attack.
-And so Kay, more than anyone else, diligently trained for past 10 years.
-Not sparing a moment for break from his training, even during meals or baths Kay would continue with image training in his head.
-And even his superiors are amazed by "Training maniac" Kay.
+And so Kai, more than anyone else, diligently trained for past 10 years.
+Not sparing a moment for break from his training, even during meals or baths Kai would continue with image training in his head.
+And even his superiors are amazed by "Training maniac" Kai.
 
-"At that time, Kay should've been around 7 or 8 years old. There is just single entrance to graveyard.
-For Kay to enter and fall into graveyard, with no soldier that standing guard to notice him would be strange, right?"
+"At that time, Kai should've been around 7 or 8 years old. There is just single entrance to graveyard.
+For Kai to enter and fall into graveyard, with no soldier that standing guard to notice him would be strange, right?"
 
-"Moreover, there are surveillance cameras. But, Kay, it didn't have any records of you, right?"
+"Moreover, there are surveillance cameras. But, Kai, it didn't have any records of you, right?"
 
-There are also no witness that could testify Kay's fall into graveyard.
+There are also no witness that could testify Kai's fall into graveyard.
 To be specific, all adults that were there at that time said: "Don't remember a thing".
 
 "That's why, it is just a dream! A scary dream that you had as a kid!
-And, Kay, did you forget the face of our instructor when you were telling him it with all seriousness?"
+And, Kai, did you forget the face of our instructor when you were telling him it with all seriousness?"
 
 "No, I remember"
 
@@ -157,7 +157,7 @@ And, Kay, did you forget the face of our instructor when you were telling him it
 
 Saki nodded in agreement
 
-"You must got it all wrong, Kay"
+"You must got it all wrong, Kai"
 
 "Doesn't matter, it is not an excuse to neglect our duty to watch over the graveyard"
 
@@ -165,7 +165,7 @@ Saki nodded in agreement
 
 "Let's contact HQ. 2PM watch is over, there is no abnormalities with the graveyard"
 
-Kay looked over the graveyard and said so, not even being slightly bothered by his colleagues.
+Kai looked over the graveyard and said so, not even being slightly bothered by his colleagues.
 
 -------------------------------------------------------------------------------
 
@@ -191,11 +191,11 @@ There is no way I'm doing it, just no way!"
 
 "...."
 
-"Hey, Kay, are you listening?"
+"Hey, Kai, are you listening?"
 
 "It cannot be helped, Cryptids are like that, after all"
 
-In front of Kay is 3 meters tall machine that imitates Dragon.
+In front of Kai is 3 meters tall machine that imitates Dragon.
 _If by any chance Cryptids would escape from graveyard_.
 For that reason there is such training, but.
 Most people supported Saki's opinion that is is useless.
@@ -204,25 +204,25 @@ According to Great War records, the strongest among Cryptids Dragons couldn't ev
 
 "True, it might be futile to even try"
 
-Contrary to his own words, Kay slips under machine dragon's feet.
+Contrary to his own words, Kai slips under machine dragon's feet.
 
-"Wait, Kay!?" - Saki screams
+"Wait, Kai!?" - Saki screams
 
 If he'd get trampled at this moment, he would definitely get his body bones completely broken.
-Yet despite the risk, Kay faces the thick, as log, foot and using his whole body...
+Yet despite the risk, Kai faces the thick, as log, foot and using his whole body...
 Tries a ramming attack.
 <span title="Not sure how to better translate it jp. 四界戦闘式">Fourth World Fighting Arts</span>.
 Adopted by MDA technique to be used against <span title="Original refers to them as 他種族 so I decided to translate it like that">non-human races</span>.
-But, Kay's attack didn't even budge robotic dragon an inch.
+But, Kai's attack didn't even budge robotic dragon an inch.
 
 "...Failed, huh?"
 
-"What are you doing, Kay!? Under its weight you'd get crushed completely!
+"What are you doing, Kai!? Under its weight you'd get crushed completely!
 In first place we're not even supposed to use machines of Cryptid type without instructors to watch us..."
 
 "There is no meaning to it without a resolve"
 
-"...Oh no, Kay, I think you've been wrong at wrong times"
+"...Oh no, Kai, I think you've been wrong at wrong times"
 
 She had a bitter smile on her face while drinking a bottle water.
 Half of it was amazement at him, but another hand it was almost as if seeing a rare animal in Zoo.
@@ -232,12 +232,12 @@ Half of it was amazement at him, but another hand it was almost as if seeing a r
 "...D.on't talk... to me... My wounds... are really... killing me"
 
 Behind Saki's bench was crouching and unmoving young man.
-He was fighting against different from Kay training doll, but got seriously kicked to his sides and no longer could get up.
+He was fighting against different from Kai training doll, but got seriously kicked to his sides and no longer could get up.
 
-"Well, leaving aside Ashlan. Even instructors are saying that if Kay would be born at time of Great War, maybe you'd leave mark on history instead of Sid"
+"Well, leaving aside Ashlan. Even instructors are saying that if Kai would be born at time of Great War, maybe you'd leave mark on history instead of Sid"
 
 "I don't really qualify to be a hero. It is just I don't want to slack off when it comes to training" -
-Kay looked at robotic dragon, and replied in his normal tone.
+Kai looked at robotic dragon, and replied in his normal tone.
 
 Hundred years ago.
 Various races: Demons, Foreign gods, Cryptids and Spirits - were ruled by strongest among their kind.
@@ -266,9 +266,9 @@ Well, that's basically all we know about Sid"
 
 Photo of a man in robes.
 That was a photo of Prophet Sid.
-Kay already saw it multiple times.
+Kai already saw it multiple times.
 
-"But you know, Kay, historians have doubts about Sid's legend" - said Saki with a shrug.
+"But you know, Kai, historians have doubts about Sid's legend" - said Saki with a shrug.
 
 There is established theory that human hero **Prophet Sid** didn't even exist.
 His shining sword is not found at the current moment.
@@ -285,7 +285,7 @@ Surprisingly similar to his own situation with fall into Demons graveyard.
 Even thought it is been a hundred years since then, it is still very strange that not even single image of his fight against four heroes remained.
 For that reason nowadays there are not many people who believe in Sid's legend.
 
-"So, Kay, even if Sid did actually exist, it is likely that he wasn't really all that active for the mankind's hero.
+"So, Kai, even if Sid did actually exist, it is likely that he wasn't really all that active for the mankind's hero.
 What do you think?"
 
 "I had similar thoughts about it. But still..." - he said while wiping away sweat from his forehead -
@@ -305,13 +305,13 @@ We don't really have much time to prepare a present"
 "Something typical should be fine too, right?"
 
 "No way we're going with it. Jeanne is scholarship student so she get flowers each year as part of official commendation.
-Hey, Kay, you too think flowers are not good, right?"
+Hey, Kai, you too think flowers are not good, right?"
 
 "...."
 
-"Eh, hey Kay, are you listening?"
+"Eh, hey Kai, are you listening?"
 
-Kay, who turned his back toward Saki, heard notification from his communication device in his breast pocket.
+Kai, who turned his back toward Saki, heard notification from his communication device in his breast pocket.
 
 "...Jeanne?"
 
@@ -320,12 +320,12 @@ Similarly to Saki and Ashlan, she was conscripted for military service
 
 "Hm? Jeanne? What's with her?"
 
-"Hm... I got nothing, is this a message only for you, Kay?"
+"Hm... I got nothing, is this a message only for you, Kai?"
 
-Both of them risen to try and take a peek at content of Jeanne's message on Kay's commendation device screen.
+Both of them risen to try and take a peek at content of Jeanne's message on Kai's commendation device screen.
 
 
-_To Kay_
+_To Kai_
 
 _Tomorrow you're off duty, right?_
 _Let's meet in front of cat's statue of 9th terminal at 10AM_
@@ -335,39 +335,39 @@ _But make sure to keep it a secret from Saki and Ashlan, ok?_
 
 Even if you ask to keep a secret.
 How I'm supposed to do it?
-There are already two curious people that are trying to approach me (Kay) for a sneak peek.
+There are already two curious people that are trying to approach me (Kai) for a sneak peek.
 
-"Kay, what Jeanne says?"
+"Kai, what Jeanne says?"
 
 "Even I got nothing from her. Suspicious, a secret from both me and Saki...?
-Hey, Kay, could it be are you gotten in some <span title="Sounds more fun this way">forbidden</span> relationships with Jeanne!?"
+Hey, Kai, could it be are you gotten in some <span title="Sounds more fun this way">forbidden</span> relationships with Jeanne!?"
 
-"Hold on" - said Kay and extended his hand to stop them.
+"Hold on" - said Kai and extended his hand to stop them.
 
 "My bad, it seems that is not a message from Jeanne"
 
-"Oh ho, is that so, Kay? Then just what was that ringtone?"
+"Oh ho, is that so, Kai? Then just what was that ringtone?"
 
 "Trying to lie to us so lamely. Could it be this is some special message, Kai-kun?"
 
 Saki is smirking, and Ashlan has a ghastly look on his face.
-Both were approaching Kay to take a look at his communication device.
+Both were approaching Kai to take a look at his communication device.
 
 "...Ah by the way"
 
-Kay tightly grasped his communication device and turned his back towards them.
+Kai tightly grasped his communication device and turned his back towards them.
 And he run at full speed.
 
 "I haven't done any running today yet. Time to do my 10km course!"
 
 "Oi, stop, you bastard!"
 
-"Someone! Help us to catch and stop Kay! He is a criminal who wants to conspire in secret with Jeanne in some wicked scheme!"
+"Someone! Help us to catch and stop Kai! He is a criminal who wants to conspire in secret with Jeanne in some wicked scheme!"
 
 "That's misunderstanding...! I only wanted to take my training seriously!"
 
 Jeanne, please, don't use MDA's commendation device for private needs!
-So Kay shouted in his mind, while desperately trying to escape a chase from two of his colleagues.
+So Kai shouted in his mind, while desperately trying to escape a chase from two of his colleagues.
 
 -------------------------------------------------------------------------------
 
@@ -381,12 +381,12 @@ With the victory in Five Races Great War, it has been re-taken by mankind.
 "10AM. Guess Jeanne is going to be a hour later then?"
 
 9th Terminal
-For Kay it takes around 15 minutes to reach this place by subway.
+For Kai it takes around 15 minutes to reach this place by subway.
 This area around capital Urzak became a business center with lots of modern buildings.
 
-"Kay, sorry that I made you wait" - a lively voice could be heard.
+"Kai, sorry that I made you wait" - a lively voice could be heard.
 
-Kay looked in the direction of vice.
+Kai looked in the direction of vice.
 There is been standing silver-haired young girl with a bag in her hand.
 
 "Jeanne you're right on time? I honestly thought I'd have to wait another hour"
@@ -401,28 +401,28 @@ Jeanne E Anisu
 
 She is somewhat tall, comparing to most girls of her age, and has slender figure.
 Together with long silver hair, her face gives off a dignified aura fitting to a model on magazine's cover.
-Kay's neighbour, 17 years old.
+Kai's neighbour, 17 years old.
 Her long sleeved shirt and skinny pants gives a boyish feeling.
 But contrary to that feeling, it only gives her more charm as a girl.
 
-"Let's go, walk, walk. Cadet, Kay! Crawl your way until that building!"
+"Let's go, walk, walk. Cadet, Kai! Crawl your way until that building!"
 
 "In the middle of city?"
 
 "I'm joking of course! It is just..." - Jeanne pointed at his clothes
 
-Kay has been wearing MDA's uniform, and on his shoulder was a bag that could fit a battle rifle.
+Kai has been wearing MDA's uniform, and on his shoulder was a bag that could fit a battle rifle.
 But of course since it is middle of city, rifle was locked away in case.
 
 ![Jeanne](./p033.jpg)
 
-"Aren't you off-duty today? Why are you wearing such heavy equipment, Kay?"
+"Aren't you off-duty today? Why are you wearing such heavy equipment, Kai?"
 
 "Before our shopping I had a training on my own, after all"
 
 "...I know, I know. It was a <span title="Not sure if it is actually a right term">sarcasm</span>. Good grief" - Silver haired girl laughed in astonishment.
 
-"I guess among these who I could invite to enjoy off-duty time, you're the only one who wouldn't get fazed by it, Kay"
+"I guess among these who I could invite to enjoy off-duty time, you're the only one who wouldn't get fazed by it, Kai"
 
 "You hanging out with someone during off-duty time?"
 
@@ -430,7 +430,7 @@ But of course since it is middle of city, rifle was locked away in case.
 
 Strangely enough, her voice had amused tone.
 
-"...Well, I like this side of yours, Kay"
+"...Well, I like this side of yours, Kai"
 
 Then, they started to walk side by side.
 All around them were famous clothing shops and confectionery shops.
@@ -443,15 +443,15 @@ Jeanne seriously looked around each and every one of them.
 "Shopping. For Saki and Ashlan" - and the names of his colleagues went out
 (To be honest here it says 同僚たちの名前が、ジャンヌの唇を伝ってこぼれた which is roughly could be translated as "Names of colleagues left Jeanne's lips" which sounds weird).
 
-"With Kay, it would be for three people.
+"With Kai, it would be for three people.
 And three of you have been thinking about preparing some farewell gift before my departure to capital(Urzak), right?"
 
 "...You're asking me that?"
 
 Bull's eye.
 Indeed they were thinking about her present.
-But it was Kay together with two of his colleagues who are supposed to shop for her gift and keep it secret until the fateful date.
-There is no way Kay could just answer to the person himself: _Yes, indeed we're thinking about it_
+But it was Kai together with two of his colleagues who are supposed to shop for her gift and keep it secret until the fateful date.
+There is no way Kai could just answer to the person himself: _Yes, indeed we're thinking about it_
 
 "It is fine, fine. I had exactly the same thoughts"
 
@@ -487,7 +487,7 @@ To no one surprise, a notice about Jeanne's transfer to capital became a grave n
 
 After two years, when she'll become candidate for leadership position, they'll be able to have their reunion.
 There is no reason to be depressed.
-Or so Kay thought, until he heard her reply.
+Or so Kai thought, until he heard her reply.
 
 "When I'll come back, both Saki and Ashlan will finish their military service"
 
@@ -495,12 +495,12 @@ Or so Kay thought, until he heard her reply.
 
 Mandatory military service requires 2 years, and afterwards each among young people can choose own road.
 
-"Guess the only friend left will be you, Kay, right?"
+"Guess the only friend left will be you, Kai, right?"
 
 "Yeah, true"
 
 People who finish their military service are going to leave.
-Probably only few exceptions, like Kay, would willingly continue their service at MDA.
+Probably only few exceptions, like Kai, would willingly continue their service at MDA.
 
 "There are not many who would decide to become professional soldier, like me"
 
@@ -517,7 +517,7 @@ Walking under sunlight coming through trees, Jeanne made amused face (really not
 "Pretty sure once you'll surpass your father, he'll be very proud of you...
 But I'm pretty sure there are not many odd fellows like me who is going to continue serving in military."
 
-"I know, you're always saying that watching over graveyard is your duty, right, Kay?
+"I know, you're always saying that watching over graveyard is your duty, right, Kai?
 Not to mention, we can never know when hordes of demons will appear.
 And that you want to discover Sid's sword once again"
 
@@ -525,7 +525,7 @@ And that you want to discover Sid's sword once again"
 
 Prophet Sid certainly existed.
 Mankind's hero who fought against non-human races heroes.
-Kay never ever doubted this story.
+Kai never ever doubted this story.
 
 _...Because I saw it_
 
@@ -536,13 +536,13 @@ At demons graveyard.
 When he fell into depths of black pyramid, he definitely saw it.
 A sword that shine like a sun, surrounded by demon masses.
 And that feeling of desperation as he was trying to reach out the sword.
-This is all that Kay could remember.
+This is all that Kai could remember.
 
 "Well... I wouldn't say I cannot understand your feelings" _TL Note:_ this is a bit confusing まあ……その気持ちがないわけじゃないけど
 
 Why Sid's sword could be inside demons graveyard?
 While it certainly a mystery, without a doubt that _shining sword_ is definitely fits a description of Sid's legendary sword.
-Though the only who believes in it is Kay himself.
+Though the only who believes in it is Kai himself.
 
 "Even if I to tell you about it, you'd only tease me about it"
 
@@ -550,7 +550,7 @@ Though the only who believes in it is Kay himself.
 
 "I'm serious"
 
-"I really wouldn't make fun of your resolve. But, Kay, your cute sulky face is just asking for it"
+"I really wouldn't make fun of your resolve. But, Kai, your cute sulky face is just asking for it"
 
 "Yeah, Ok"
 
@@ -561,14 +561,14 @@ And since then we were always playing together."
 While we were walking through crowd.
 The girl by my side suddenly stops when we reach the middle of road's crossing.
 
-"Kay, you're the only one who played with me since our childhood,
+"Kai, you're the only one who played with me since our childhood,
 And even now walking by my side.
 Even after I'll return back you'll remain by my side as well"
 
 She turns toward him.
 And her eyes, without even blinking, looks seriously at him _TL Note:_ this is actually hard to translate. ゆれる双眸が、まばたき一つなくこちらの顔を覗きこんできた。
 
-"Listen, Kay, about us. What do you think we're going to do from now on?"
+"Listen, Kai, about us. What do you think we're going to do from now on?"
 
 "From now on...? Jeanne, you're going to capital for two years, and then you'll be back"
 
@@ -576,17 +576,17 @@ And her eyes, without even blinking, looks seriously at him _TL Note:_ this is a
 
 She, who is his childhood friend and colleague, takes a step further.
 
-"Kay... What if I..." - and in that moment...
+"Kai... What if I..." - and in that moment...
 
 Jeanne's body started to become distorted.
 
 "Jeanne!?"
 
-"Eh? Kay, what is it?"
+"Eh? Kai, what is it?"
 
 Like it is been only her reflection in water that got distorted, she replied as if nothing happened.
 But she wasn't the only one.
-Everything before Kay's eyes started to change.
+Everything before Kai's eyes started to change.
 Surrounding him buildings, trees and bystanders, all started to distort and twist.
 Sudden wind followed it.
 Storm of black particles started around him.
@@ -595,7 +595,7 @@ _No one sees it? This storm that is around us?_
 
 _Just what's going on here!?_
 
-Kay looked up and could only see a sky that started to turn black.
+Kai looked up and could only see a sky that started to turn black.
 White clouds, as if being sucked, started to flow towards a single point.
 And even blue skies, as if being pulled by something, disappeared.
 All being swallowed into single black point in the sky.
@@ -614,16 +614,16 @@ And even the girl, his childhood friend, started to rise above surface.
 
 "Jeanne!"
 
-"Eh? Kay, what's all of sudden? Calling my name in public like that...
+"Eh? Kai, what's all of sudden? Calling my name in public like that...
 Could it be... Can I expect something then?"
 
 Despite starting to float, she said with a smile on her face.
 Not even understanding what's going on.
-Before Kay's own eyes his childhood friend started was sucked into the sky.
+Before Kai's own eyes his childhood friend started was sucked into the sky.
 
 "Jeanne, take my...!" - he desperately extended his hand in the middle of storm.
 
-And at the same time, Kay lost his consciousness.
+And at the same time, Kai lost his consciousness.
 
 Activating **World Reincarnation**
 
@@ -631,7 +631,7 @@ Initiating World's **Overwrite**
 
 -------------------------------------------------------------------------------
 
-As storm's winds calmed down, Kay regained his consciousness and found himself at the same crossing near 9th terminal.
+As storm's winds calmed down, Kai regained his consciousness and found himself at the same crossing near 9th terminal.
 Alone.
 Jeanne, who has been right before his eyes, is no longer here.
 Dozens of bystanders and hundreds of people who were going in and out of shops, too were gone.
@@ -650,14 +650,14 @@ The landscape around 9th Terminal transformed into post-apocalyptic world.
 
 There is not even a single living soul.
 It is just too strange.
-In this absurd situation, Kay looked at metallic case on his shoulder.
+In this absurd situation, Kai looked at metallic case on his shoulder.
 There is MDA's <span title="jp. 銃剣 I choose to call it bayonet, but it is basically combination of sword with gun">"bayonet</span>.
-Kay's instincts tell him that he needs a means of self-defence, but the case cannot be opened without key from Urza's HQ.
+Kai's instincts tell him that he needs a means of self-defence, but the case cannot be opened without key from Urza's HQ.
 Looking for Jeanne and others can wait for now.
 
 "It is not quite close from here, I need to hurry..." - he said and headed in direction of Urza's HQ.
 
-At that time Kay could hear some stone being thrown in shadows of the building behind.
+At that time Kai could hear some stone being thrown in shadows of the building behind.
 
 "Some noise? Is there someone!?"
 
@@ -669,7 +669,7 @@ Which means eventually he'll be able to meet people here.
 
 From the building's shadows, _that_ has appeared.
 It was neither a cat or dog.
-Seeing this thing, Kay became speechless.
+Seeing this thing, Kai became speechless.
 
 "Eh?"
 
@@ -688,7 +688,7 @@ Since that time, he always thought that one day these monsters may crawl out of 
 
 Jet black demons.
 
-As Kay looked up, before his eyes was standing big monster.
+As Kai looked up, before his eyes was standing big monster.
 
 ..._It is not a mech doll_
 
@@ -705,7 +705,7 @@ It is been difficult to understand, but for certain it was a human speech.
 "It spoke!?"
 
 It is been knows that demons, <span title="A bit unsure if 悪魔族をはじめ四種族の英雄は means `and`">and</span> heroes of four races were able to understand human language.
-But to Kay's knowledge, at most handful were able to to speak it.
+But to Kai's knowledge, at most handful were able to to speak it.
 
 "Human... soldier..."
 
@@ -716,9 +716,9 @@ And gradually it started to become bigger in the middle of air.
 "Die"
 
 It started to fire like a machine gun.
-While being slightly grazed, Kay quickly jumped to hide behind building's wall.
+While being slightly grazed, Kai quickly jumped to hide behind building's wall.
 The wall became scorched black from its fire.
-If he wouldn't be able to react, then likely Kay's whole body would shot, by these fire bullets, full of holes. _TL Note:_ to be honest I think there wouldn't be much left
+If he wouldn't be able to react, then likely Kai's whole body would shot, by these fire bullets, full of holes. _TL Note:_ to be honest I think there wouldn't be much left
 
 "Magic!?"
 
@@ -726,10 +726,10 @@ He was able to leap back just in time.
 <span title="jp. 法術 - Magic arts, but Magic for short">Magic</span> is a generally how people called miracle, or maybe sorcery, in ancient times.
 Any powerful magic could rival power of humans most powerful heavy weaponry.
 And there were <span title="To be honest it might be monstreous magic rain too?">monsters</span> among high ranking demons that were able to continuously fire rains of such magic.
-It is first time Kay could witness _real thing_
+It is first time Kai could witness _real thing_
 Being able to evade its attack <span title="Even though his equipment is slightly grazed ;0">without a scratch</span> is not coincidence.
 ...His body moved on its own.
-In anticipation of this moment, Kay spent countless hours in trainings to fight against demons.
+In anticipation of this moment, Kai spent countless hours in trainings to fight against demons.
 Thanks to that his body adopted reflexes that saved him this time.
 
 "...I have no idea what happened, but..."
@@ -740,10 +740,10 @@ This demon is definitely not a machine, and clearly wants to bring harm to him.
 "Bring it on!"
 
 With a <span title="jp. バチン No idea how to call it in english">smack</span> metal lock has been opened
-Demon's fire bullet wasn't able to hit Kay, but instead hit lock on bayonet's case.
-Thanks to broken lock, Kay is able to take out his bayonet.
+Demon's fire bullet wasn't able to hit Kai, but instead hit lock on bayonet's case.
+Thanks to broken lock, Kai is able to take out his bayonet.
 
-"I'll be your opponent" - said Kay, while taking his bayonet, pointing its gun toward demon and placing his finger on trigger.
+"I'll be your opponent" - said Kai, while taking his bayonet, pointing its gun toward demon and placing his finger on trigger.
 
 All-purpose assault bayonet "Drake Nail".
 This weapon has been developed by MDA against non-human races using records from Great War.
@@ -759,7 +759,7 @@ Using its powerful magic demon created several times bigger "Fire bullets"
 <span title="jp. 略式エルフ弾 - Regardless how you try to translate it, sounds lame">Simplified elvish bullet</span>.
 
 White light sparks.
-A bullet, that Kay fired, is semi-transparent and shines like a fragment of crystal.
+A bullet, that Kai fired, is semi-transparent and shines like a fragment of crystal.
 On its way, it disperse fire bullets entirely.
 
 "!?" - Demon eyes widens in shock.
@@ -780,21 +780,21 @@ From that came this name.
 
 "Let's go"
 
-As Kay was running through ruined road, all of the sudden a red circle appears under his feet.
-Its diameter was around 5 meters and it encircled Kay.
+As Kai was running through ruined road, all of the sudden a red circle appears under his feet.
+Its diameter was around 5 meters and it encircled Kai.
 Bright red tongue could be seen under there.
 
 "Burn!"
 
 Pillar of fire arisen from within a circle and burned everything within it.
 There is no time to fire Simplified Elf Bullet.
-Kay judged so, and jumped from circle with a kick.
+Kai judged so, and jumped from circle with a kick.
 
 "...Evaded it!?"
 
 "I've been training to fight against you demons!"
 
-Kay slipped into demon's flank and dived his Drake Nail into it.
+Kai slipped into demon's flank and dived his Drake Nail into it.
 Explosive burst.
 At where Drake Nail pointed, like a blooming red flower, a fire has sparked.
 Demon's gigantic body trembled under the attack and smoke, from its attack, covered demon.
@@ -813,7 +813,7 @@ _TL note:_ To be honest I think it should be actually pretty dangerous attack ev
 "...[Heavy breathing]"
 
 Demon shown no sign of getting up.
-Kay looked at his numb, from the explosive attack, hand and heavily breathed.
+Kai looked at his numb, from the explosive attack, hand and heavily breathed.
 ...Just from shooting Elf and Drake bullets alone.
 ...His whole body have been trembled from the tension.
 His first _real_ fight, and first time he saw actual magic.
@@ -825,19 +825,19 @@ All of his training until today finally paid off.
 
 "I can do it... Even if it is a demon I can fight!"
 
-Kay still couldn't comprehend just what happened here today.
+Kai still couldn't comprehend just what happened here today.
 But one has become clear.
 With training even human could fight against mighty demons.
 
 "You bastard, what are you?" - all of the sudden could be heard.
 
-Weird noise of flapping wings abruptly ended Kay's joy of victory.
+Weird noise of flapping wings abruptly ended Kai's joy of victory.
 Above his head could be heard a buzz from wings, it was much louder than that of some bird.
 
 "Human...? Human who could defeat... my kin?"
 
 Second one, it wasn't much different in its appearance aside from being _smaller_.
-With a height, comparable to Kay's own, it didn't look all that strong comparing to previous one.
+With a height, comparable to Kai's own, it didn't look all that strong comparing to previous one.
 ...But what with this this pressure.
 ...Size-wise previous was certainly a winner, but its speech shows a intelligence of a whole new level.
 
@@ -845,7 +845,7 @@ With a height, comparable to Kay's own, it didn't look all that strong comparing
 
 "As you can see, just a human"
 
-Kay's instincts were telling that this one is far more dangerous.
+Kai's instincts were telling that this one is far more dangerous.
 So he carefully gave his reply.
 
 "And you're surprisingly versed in human language, aren't you?"
@@ -856,7 +856,7 @@ While remaining still in the air, its mouth that span from cheek to check moved.
 "For us, as well as other races, using human language is convenient"
 
 What it means by that?
-As if mocking Kay's questioning look, it continued:
+As if mocking Kai's questioning look, it continued:
 
 "The best way to order around your slave, is to use their language"
 
@@ -872,7 +872,7 @@ We(humans) lost to non-humans?
 
 "Her Majesty Vanessa said we already has more than enough slaves"
 
-"Vanessa?" - Kay frowned upon hearing familiar name.
+"Vanessa?" - Kai frowned upon hearing familiar name.
 
 The Dark Empress.
 There is no mistake, it is the name of demon's leader and hero.
@@ -894,7 +894,7 @@ And at the same time a strong light started piercing his eyes, which clouded his
 
 Demon's groans could be heard.
 It seems its eyes were suffering from directly looking at the light.
-_TL note:_ The text doesn't say, but I assume Kay was able to cover his eyes in time
+_TL note:_ The text doesn't say, but I assume Kai was able to cover his eyes in time
 
 "...Flashbang!?"
 
@@ -906,7 +906,7 @@ _TL note:_ the wording in original text is a bit weird here
 "Here! We should leave soon, otherwise we're going to get overrun by demons!"
 
 Human?
-Turning his back to blinding light, Kay run toward a beckoning figure.
+Turning his back to blinding light, Kai run toward a beckoning figure.
 
 "Get on! It might be strong, but it cannot lasts more than 10 seconds"
 
@@ -942,7 +942,7 @@ Rather than prisoner, you look more like us."
 "Eh? You know me?"
 
 The girl looked puzzled and amazed.
-She should be around the same age as Kay.
+She should be around the same age as Kai.
 With a look of natural airhead, she had short orange hair and big eyes like that of cat.
 Small <span title="jp. 八重歯 Double tooth, I assume author means fangs here">fangs</span> could be seen in the corners of her mouth.
 And she has freckles on her cheeks.
@@ -981,7 +981,7 @@ Looking at him, there was no mistake. It is the same Ashlan from his unit.
 
 "Hey, Ashlan, you're Ashlan Highrol, right?
 Stop with this awful joke.
-It's me, Kay Sakuravent!"
+It's me, Kai Sakuravent!"
 
 "Did we meet somewhere in past?"
 
@@ -1008,7 +1008,7 @@ And that you can spread your legs in 190 degree splits."
 So you never would get into car without getting pill before that.
 Despite that you're driving..."
 
-As Kay started to say, he suddenly noticed it.
+As Kai started to say, he suddenly noticed it.
 Ashlan is driving?
 That's impossible.
 It is always been him or Saki who would drive us to graveyard,
@@ -1020,7 +1020,7 @@ while Ashlan himself would just take a nap in passenger's seat.
 
 Their armoured vehicle has been going on high speed through these ruins.
 He is been driving skilfully on this ruined road, full of wreckage.
-It could be that Ashlan is even better than Kay himself at driving now.
+It could be that Ashlan is even better than Kai himself at driving now.
 
 "In this world, not being able to drive car will easily get you captured and enslaved by demons, you know?
 Talking about motion sickness in such situation...

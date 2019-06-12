@@ -19,9 +19,9 @@ Such infinite supply of magic power is not something to be surprised about.
 
 "Come at me!"
 
-At the same time as Kay brandished his sword, Vanessa raised one of her hands.
+At the same time as Kai brandished his sword, Vanessa raised one of her hands.
 Both understood situation, as they both were injured.
-Kay was injured by Vanessa's magic, and Vanessa was injured by Rinne's curse.
+Kai was injured by Vanessa's magic, and Vanessa was injured by Rinne's curse.
 So both of them  had to settle it quickly.
 
 "I cannot imagine what you can do, but feel free to struggle.
@@ -43,7 +43,7 @@ As he looked up at thing that is going to bring his certain death...
 
 "Yeah, let me show you a proof."
 
-Kay raised his shining sword Code Holder overhead.
+Kai raised his shining sword Code Holder overhead.
 On behalf of Prophet Sid, he is going to prove that this sword ended Great War in another world.
 
 "This is my answer, Code Holder!"
@@ -69,7 +69,7 @@ A single touch would blow you away.
 "Even for sword that can cut through magic, this number is not something it can deal with."
 
 She was convinced of her certain victory.
-Following Vanessa's will, these hundreds flames, that looked like a flowers, rushed forward at Kay.
+Following Vanessa's will, these hundreds flames, that looked like a flowers, rushed forward at Kai.
 
 "Fall..."
 
@@ -83,39 +83,39 @@ All lights went off and the whole floor was covered by darkness.
 
 "Perfect timing, Saki, Ashlan."
 
-Kay took out communication device, and the destination of his call was 17th floor, where Saki and Ashlan were.
+Kai took out communication device, and the destination of his call was 17th floor, where Saki and Ashlan were.
 
 [As for our withdrawal. If it turns out impossible to beat Vanessa, we should cut of power in the whole building?
 With that demons will become confused and we can use it to escape. Is that ok?"
 
 [Yeah, I'll signal you.]
 
-So at Kay's signal, both turned off power in entire building.
+So at Kai's signal, both turned off power in entire building.
 
 "At first I intended to escape."
 
 "...I see now."
 
-Vanessa instantly understood Kay's plan.
+Vanessa instantly understood Kai's plan.
 Why would he choose a cover of darkness -
 Humans are the only one that lack magic power.
 Thanks to that there is no way to pinpoint his location.
-Then how about Kay?
+Then how about Kai?
 Dark Empress Vanessa magic was glittering, illuminating her position.
 
 "With me being only one visible in this darkness, do you intent to sneak attack on me?"
 
 Then how about wiping away the darkness with her flame flowers?
-But that would be already late, Kay was already on the move and his sword is going to reach Vanessa before that.
+But that would be already late, Kai was already on the move and his sword is going to reach Vanessa before that.
 
 "...Regrettable."
 
 She laughed with scorn at darkness.
 Succubus's claw pointed in the middle where faint light was shining.
-There was light of Code Holder, but it was faint and Kay's figure couldn't be seen.
+There was light of Code Holder, but it was faint and Kai's figure couldn't be seen.
 In this darkness Sid's sword was like creating dawn horizon.
 It was standing out too much.
-Trail of light showed Kay's movements.
+Trail of light showed Kai's movements.
 
 "There you're! You're done!"
 
@@ -134,13 +134,13 @@ Young girl, who was hold Code Holder, calmly run through underworld flowers.
 Vanessa heard a voice behind her.
 She felt chills.
 Never before feeling such fear, she started turning her head back.
-There was running towards her Kay.
+There was running towards her Kai.
 
 _I see it now._
 
 _In this darkness Code Holder light would become a easy to spot marking._
 
-Therefore Kay, in order to take advantage of darkness, passed Code Holder to Rinne, since she can take Vanessa's magic.
+Therefore Kai, in order to take advantage of darkness, passed Code Holder to Rinne, since she can take Vanessa's magic.
 And instead he took a roundabout way to her back.
 
 "Finally you were able come this far."
@@ -177,7 +177,7 @@ With that he was able come this close.
 
 "So what are you going to do?"
 
-Demon Hero asked Kay, who was approaching her.
+Demon Hero asked Kai, who was approaching her.
 
 "You threw away own sword.
 Even if you hide something up to your sleeve, it would not be enough to defeat me.
@@ -199,10 +199,10 @@ Spreading his legs, he leaned in.
 "10 years. 10 years I have been training for the day when I'll have to defeat demons."
 
 He was bare-handed.
-At MDA Kay had a duty to learn anti-four races martial arts.
+At MDA Kai had a duty to learn anti-four races martial arts.
 Suddenly she felt strong impact.
 As if a similar to her blasting magic.
-Using his whole body Kay blew away Vanessa using <span title="jp. 鉄山靠 Weird name for technique.">Iron Lean</span>.
+Using his whole body Kai blew away Vanessa using <span title="jp. 鉄山靠 Weird name for technique.">Iron Lean</span>.
 
 "...!?"
 
@@ -223,7 +223,7 @@ That was cause of her defeat.
 
 "Time to end it, Vanessa."
 
-Kay caught the Code Holder, that Rinne threw towards him.
+Kai caught the Code Holder, that Rinne threw towards him.
 In front of this beautiful shining sword, Vanessa, who lost her balance, softened her tone and said:
 
 "...This is my loss. I give you my <ruby>domain<rt>Urza</rt></ruby>."
@@ -242,7 +242,7 @@ _Did I defeat her?_
 _With this I can be certain._
 
 This attack certainly reached her.
-But despite that both Kay and Rinne were on their guards.
+But despite that both Kai and Rinne were on their guards.
 Vanessa, who received strike from Code Holder, was standing on her knees with her consciousness in place.
 
 "..."
@@ -251,7 +251,7 @@ But something was wrong.
 Her wings were closed and she was looking down in silence.
 She didn't even hurry to try to heal her wounds.
 
-"H-hey, Kay, isn't something wrong with her?"
+"H-hey, Kai, isn't something wrong with her?"
 
 "...Yeah."
 
@@ -292,7 +292,7 @@ He should be among three remaining hero."
 "<ruby>He<rt>Sid</rt></ruby> predicted that some strange phenomena is going to happen with world.
 That's why."
 
-Demoness claw, painted with black, pointed at Kay's sword.
+Demoness claw, painted with black, pointed at Kai's sword.
 
 "Sid left this sword behind.
 In anticipation to this situation, I've hidden this sword.
@@ -300,7 +300,7 @@ Key to correcting false world."
 
 "This sword!?"
 
-Kay stared at the Code Holder in his hand.
+Kai stared at the Code Holder in his hand.
 That was the reason for it to be in Demon Graveyard?
 But one question remained.
 Why she kept the sword of Sid, whom she hated?
@@ -316,7 +316,7 @@ Enduring it demon hero stood here and took a breath.
 "It is something you do not know.
 There were hidden, forbidden _records_."
 
-Kay swallowed his breath with feeling of dread.
+Kai swallowed his breath with feeling of dread.
 He felt like he touched hidden taboo of the world.
 
 "...Zero Code is quite troublesome magic."

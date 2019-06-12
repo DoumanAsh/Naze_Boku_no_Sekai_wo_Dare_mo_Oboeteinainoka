@@ -17,7 +17,7 @@ Then just who is this girl?
 "----"
 
 Chains jingle.
-At the sound of chains that were binding the girl, the young man - Kay - came back to his senses.
+At the sound of chains that were binding the girl, the young man - Kai - came back to his senses.
 
 The winged girl was bound to round pillar, as if crucified.
 Both her hands and legs were bound by chains, so that she would be unable to escape.
@@ -80,7 +80,7 @@ She is unexpectedly light, and just feeling of her soft skin made him to remembe
 
 _The young man who has been forgotten by world_
 
-Kay gritted his teeth and cried with grief in his voice:
+Kai gritted his teeth and cried with grief in his voice:
 "Why no one remembers the true world...!"
 
 ![p014-015.jpg](./p014-015.jpg)

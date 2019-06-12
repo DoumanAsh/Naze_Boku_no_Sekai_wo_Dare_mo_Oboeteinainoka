@@ -1,4 +1,4 @@
-# Naze Boku no Sekai wo Dare mo Oboeteinainoka? 1
+# Naze Boku no Sekai wo Dare mo Oboeteinainoka? 2
 
 ![Cover](./cover.jpg)
 

@@ -34,8 +34,8 @@ While her subordinates were dead asleep from fatigue of last battle, she took al
 "Well, let's leave it at that.
 Truth to be told, when it comes to Vanessa, I doubt we'd be able to defeat her once more."
 
-Responding with bitter smile, Kay exchanged glances with Rinne besides him.
-Aside from Rinne's mixed race, Kay told Jeanne everything without trying to lie.
+Responding with bitter smile, Kai exchanged glances with Rinne besides him.
+Aside from Rinne's mixed race, Kai told Jeanne everything without trying to lie.
 About his counter-attack using blackout.
 About so-called rasterrizer monster.
 And about Vanessa having the same memories about Great War as him.
@@ -48,19 +48,19 @@ Dark Empress Vanessa told that.
 
 [He should be among three remaining hero.]
 
-For both Kay and Rinne these words were shocking.
+For both Kai and Rinne these words were shocking.
 
 _I though it was us who fell under this [unusual phenomena]_
 
 _And both me and Rinne just appeared in different world._
 
 But if they'd believe Vanessa's words.
-Then it was actually reverse, and the world itself fall under this unusual phenomena, while Kay and Rinne were able to escape it.
+Then it was actually reverse, and the world itself fall under this unusual phenomena, while Kai and Rinne were able to escape it.
 If that's the case then how should they resolve this problem?
 Obviously by finding ringleader behind alternation of the world.
 At the present moment, they had no leads, other than Vanessa's words.
 
-"Kay, Rinne."
+"Kai, Rinne."
 
 Jeanne picked up her pace.
 As if in order to move apart from her bodyguard Fairin.
@@ -87,7 +87,7 @@ It should be fine without me."
 
 "What Jeannya is going to do?"
 
-Besides Kay, Rinne, who was silent until now, looked straight into humans commander eyes.
+Besides Kai, Rinne, who was silent until now, looked straight into humans commander eyes.
 
 "You'll retire now that demons are driven away?"
 
@@ -119,7 +119,7 @@ Jeanne stopped for a moment.
 There was standing government palace, glittering from morning sun light.
 
 "I'm asking this as leader of Urza Resistance.
-Kay, Rinne, you who were able to defeat Dark Empress, if it is you, then maybe you'll be able to do the same thing as in your world."
+Kai, Rinne, you who were able to defeat Dark Empress, if it is you, then maybe you'll be able to do the same thing as in your world."
 
 "...By that you mean?"
 
@@ -138,7 +138,7 @@ That's why let's fight together, if it you, then I believe we'll be able to chan
 "No, no, I didn't mean like I don't want to."
 
 Interpreting silence as refusal, Jeanne quickly became flustered.
-To her in such state, Kay responded with wry smile.
+To her in such state, Kai responded with wry smile.
 
 "I'm just surprised. You really became great, Jeanne."
 
@@ -168,12 +168,12 @@ _Both me and Rinne knows little about current world._
 
 _Moving outside of Urza Federation territory would be certainly dangerous._
 
-Actually, Kay would gladly welcome Jeanne's help.
+Actually, Kai would gladly welcome Jeanne's help.
 It would certainly help in fight against remaining three heroes
 
 "Rinne, you're ok with it too?"
 
-"Yup, I'm fine as long as I'm with Kay."
+"Yup, I'm fine as long as I'm with Kai."
 
 Said girl who slowly leaned towards him.
 
@@ -182,7 +182,7 @@ This world is somewhat scary."
 
 "...Yeah, I know."
 
-Kay nodded in response to girl who tightly hold onto his clothes.
+Kai nodded in response to girl who tightly hold onto his clothes.
 3 heroes remained:
 
 - Foreign gods have their hero **Heaven Lord Alfreya**
@@ -233,7 +233,7 @@ I'll show it to you, <ruby>hero<rt>Sid</rt></ruby>."
 This is a story of young boy, who has been forgotten by the world, and who is going to challenge the truth of the world.
 This is the beginning of his adventure.
 
-![Kay, Rinne, Jeanne](./p288-289.jpg)
+![Kai, Rinne, Jeanne](./p288-289.jpg)
 
 -------------------------------------------------------------------------------
 
