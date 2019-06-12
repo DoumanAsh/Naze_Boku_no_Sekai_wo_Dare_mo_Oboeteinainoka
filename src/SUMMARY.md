@@ -10,3 +10,5 @@
     - [World.5 Tenma and young man](./1/world5.md)
     - [World.6 Storing memory of the world -Code Holder-](./1/world6.md)
     - [Epilogue Story of young man forgotten by world](./1/epilogue.md)
+* [Volume 2](./2/index.md)
+    - [World.1 Night is over](./2/world1.md)

@@ -187,7 +187,7 @@ Kay nodded in response to girl who tightly hold onto his clothes.
 
 - Foreign gods have their hero **Heaven Lord Alfreya**
 - Cryptids have their hero **Fang King Rath=IE**
-- Spirits have their hero **Lord of Spirits Rokugen Kyouko**
+- Spirits have their hero **Spirit Sovereign Rokugen Kyouko**
 
 Among these three, someone changed the world for his goals.
 

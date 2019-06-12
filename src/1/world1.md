@@ -250,7 +250,7 @@ Foreign god's hero **Heaven Lord Alfreya**
 
 Cryptid's hero **Fang King Rath=IE**
 
-Spirit's hero **Lord of Spirits Rokugen Kyouko**
+Spirit's hero **Spirit Sovereign Rokugen Kyouko**
 
 All four of them boasted unparalleled strength and therefore they led their race.
 But for humans, who were weakest, they were unstoppable obstacle.
@@ -739,7 +739,7 @@ This demon is definitely not a machine, and clearly wants to bring harm to him.
 
 "Bring it on!"
 
-With a <span "jp. バチン No idea how to call it in english">smack</span> metal lock has been opened
+With a <span title="jp. バチン No idea how to call it in english">smack</span> metal lock has been opened
 Demon's fire bullet wasn't able to hit Kay, but instead hit lock on bayonet's case.
 Thanks to broken lock, Kay is able to take out his bayonet.
 
