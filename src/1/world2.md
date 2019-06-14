@@ -434,6 +434,8 @@ While being hold between Saki and Ashlan, Kai could only watch Resistance's Comm
 
 -------------------------------------------------------------------------------
 
+<a href="#Part2" id="Part2" class="Bookmark"></a>
+
 Night has fallen upon Neo Vishal.
 In this underground city, the daylight has been replaced by lights from ceiling.
 And at the midnight, to match night from surface, city's lights were on only around roads.
@@ -527,6 +529,8 @@ Within dim lights, Kai bitten his lips.
 
 -------------------------------------------------------------------------------
 
+<a href="#Part3" id="Part3" class="Bookmark"></a>
+
 On next morning.
 Kai spread map before two of them, and they gave quick answer.
 
@@ -556,6 +560,8 @@ If I'll go at highest speed, I'll be able come back by noon,
 so I want you to lend me Resistance's car"
 
 -------------------------------------------------------------------------------
+
+<a href="#Part4" id="Part4" class="Bookmark"></a>
 
 Graveyard's desert.
 In previous world, Kai were scouting this place together with Saki and Ashlan for year and a half.

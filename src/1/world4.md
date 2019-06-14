@@ -154,6 +154,8 @@ Soon enough their screams resonated through desert.
 
 -------------------------------------------------------------------------------
 
+<a href="#Part2" id="Part2" class="Bookmark"></a>
+
 Urza Federation, 10th Terminal.
 The armoured car is going through group of ruined buildings in town.
 They ought to be vigilant as demons patrol it.
@@ -311,6 +313,8 @@ To Rinne, who was full of pride, Kai responded with a bitter smile, and pointed 
 _TL Note:_ Clearly he missed nade-nade flag here.
 
 -------------------------------------------------------------------------------
+
+<a href="#Part3" id="Part3" class="Bookmark"></a>
 
 People who escaped from non-human races dominance, settled on continent's frontiers and created human cities.
 Wastelands of ruins, deserts, or distant valleys.
@@ -545,6 +549,8 @@ Giving such response with shrug, Kai hit pathway's wall.
 
 -------------------------------------------------------------------------------
 
+<a href="#Part4" id="Part4" class="Bookmark"></a>
+
 Splashes of water could be heard.
 Endless stream of water was falling onto tile floor.
 And together with it could be heard girl's singing voice.
@@ -686,6 +692,8 @@ Be a good child and go to sleep already.
 With sidelong glance towards rolling around Rinne, Kai dropped his shoulders.
 
 -------------------------------------------------------------------------------
+
+<a href="#Part5" id="Part5" class="Bookmark"></a>
 
 Early morning.
 Underground city Neo Vishal main street became quietest for duration of last three days.
@@ -1134,6 +1142,8 @@ I'm pretty sure Jeanne-sama would gladly accept you."
 Signalling Rinne with his eyes, Kai put Drake Nail on shoulder and followed Saki behind.
 
 -------------------------------------------------------------------------------
+
+<a href="#Part6" id="Part6" class="Bookmark"></a>
 
 Urza Federation ex-capital <span title="jp. ヴェルサレムWell, it is a bit difficult to put it right, but that's the best sounding one">Versalem</span>
 After relocating capital to Urzak, the city had been abandoned.
@@ -1606,6 +1616,8 @@ After whispering something to Fairin, she turned toward them.
 Let us talk again tomorrow."
 
 -------------------------------------------------------------------------------
+
+<a href="#Part7" id="Part7" class="Bookmark"></a>
 
 Resistance Army HQ.
 Surprisingly for ruined building, inside it was clean and shiny.

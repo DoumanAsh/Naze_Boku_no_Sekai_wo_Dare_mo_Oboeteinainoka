@@ -612,7 +612,7 @@ She clenched her teeth.
 
 "Oh, what a scare face. But now you can partly understand it."
 
-![Demon girl](./Hinemaril_manga.jpg)
+![Demon girl](./Hinemarill_manga.jpg)
 
 _TL Note:_ From manga
 
@@ -668,7 +668,7 @@ And it took only a few seconds for situation within barrier to calm down.
 
 Her lips, which were covered by black lipstick, formed a smile.
 
-"I'm succubus Hinemaril, I heard that some human defeated Vanessa-onee-sama, so I was curious to see what kind of human you're."
+"I'm succubus Hinemarill, I heard that some human defeated Vanessa-onee-sama, so I was curious to see what kind of human you're."
 
 "..."
 
@@ -698,7 +698,7 @@ And in case of demons, these were:
 "Ah, and two above are the same."
 
 Succubus pointed at two shadows, standing on top of the building.
-Although Kai couldn't properly see them due to dark barrier, but they seem to look quite bigger than Hinemaril.
+Although Kai couldn't properly see them due to dark barrier, but they seem to look quite bigger than Hinemarill.
 
 _Hero rank demons._
 
@@ -715,7 +715,7 @@ Demoness was looking at Rinne, in front of Succubus Queen, Rinne had her tenma w
 "...Kai?"
 
 He exchanged glances with Rinne.
-The succubus by name Hinemaril mentioned [self-introduction].
+The succubus by name Hinemarill mentioned [self-introduction].
 Now that she folded her wings, he no longer felt any will to fight from her.
 
 "Understood, if you do not intend to fight, then let's hear your story."
@@ -857,7 +857,7 @@ But I've tempting you for a while now, it would be fine to relax a bit."
 
 "That's succubus for you."
 
-Succubus Hinemaril slowly stood up from her improvised chair.
+Succubus Hinemarill slowly stood up from her improvised chair.
 
 "We're going to hide ourself until we'll be ready.
 So for now we can be in non-interference relationships.
@@ -917,7 +917,7 @@ _I have to fight remaining heroes?_
 
 _Even if she didn't say it, I wouldn't rest untill I'd find ringleader._
 
-"Hinemaril, I'd like something to ask too."
+"Hinemarill, I'd like something to ask too."
 
 "Depending on your question."
 
@@ -972,4 +972,4 @@ And then as voice of beautiful girl melted and dissolved in air, the dark barrie
 
 -------------------------------------------------------------------------------
 
-
+<a href=#Part2 id="Part2" class="Bookmark"></a>

@@ -274,6 +274,8 @@ And as if reflecting this dark colour, a tall building was towering surroundings
 
 -------------------------------------------------------------------------------
 
+<a href="#Part2" id="Part2" class="Bookmark"></a>
+
 Urza Government Palace.
 
 "This is...!?"
@@ -879,6 +881,8 @@ He clenched his fists so firmly that his nails almost pierced his skin, and biti
 
 -------------------------------------------------------------------------------
 
+<a href="#Part3" id="Part3" class="Bookmark"></a>
+
 <span title="Kai Sakuravent">Young human</span> left.
 He didn't abandon her or escaped.
 There above was Vanessa and he run in order to defeat her.
@@ -944,6 +948,8 @@ These mixed in harmony created unique shine that belonged to her alone.
 "I want to be with Kai! I do not know what is going to happen to these who obstruct me!"
 
 -------------------------------------------------------------------------------
+
+<a href="#Part4" id="Part4" class="Bookmark"></a>
 
 Government palace, 10th floor.
 Four arm Daemon roared
@@ -1089,6 +1095,8 @@ But they are reaching their limit too."
 Urza strongest soldier said and readied her Dragon Fang again.
 
 -------------------------------------------------------------------------------
+
+<a href="#Part5" id="Part5" class="Bookmark"></a>
 
 Urza Government Palace, 20th floor.
 Making his last step in climbing, Kai's breath shown mix of fatigue in it.

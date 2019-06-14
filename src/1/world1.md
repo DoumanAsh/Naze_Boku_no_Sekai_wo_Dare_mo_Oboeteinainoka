@@ -169,6 +169,8 @@ Kai looked over the graveyard and said so, not even being slightly bothered by h
 
 -------------------------------------------------------------------------------
 
+<a href="#Part2" id="Part2" class="Bookmark"></a>
+
 <span title="Really need to think about its name (jp. 人類庇護庁)">Mankind Defence Agency</span>
 
 Anti non-human organization, that has been established after Five Races Great War, in case emergency related to non-human races to happen.
@@ -370,6 +372,8 @@ Jeanne, please, don't use MDA's commendation device for private needs!
 So Kai shouted in his mind, while desperately trying to escape a chase from two of his colleagues.
 
 -------------------------------------------------------------------------------
+
+<a href="#Part3" id="Part3" class="Bookmark"></a>
 
 Urza Federation -
 A highly developed country with its capital in Urzak.
@@ -630,6 +634,8 @@ Activating **World Reincarnation**
 Initiating World's **Overwrite**
 
 -------------------------------------------------------------------------------
+
+<a href="#Part4" id="Part4" class="Bookmark"></a>
 
 As storm's winds calmed down, Kai regained his consciousness and found himself at the same crossing near 9th terminal.
 Alone.

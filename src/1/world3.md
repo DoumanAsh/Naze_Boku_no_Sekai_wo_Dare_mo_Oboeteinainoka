@@ -550,6 +550,8 @@ Kai and Rinne jumped into this floating door.
 
 -------------------------------------------------------------------------------
 
+<a href="#Part2" id="Part2" class="Bookmark"></a>
+
 Demon's graveyard.
 In a blink of the moment, Kai found himself standing in dim halls.
 
