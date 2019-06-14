@@ -562,7 +562,7 @@ While we were walking through crowd.
 The girl by my side suddenly stops when we reach the middle of road's crossing.
 
 "Kai, you're the only one who played with me since our childhood,
-And even now walking by my side.
+And even now you're walking by my side.
 Even after I'll return back you'll remain by my side as well"
 
 She turns toward him.
@@ -615,7 +615,7 @@ And even the girl, his childhood friend, started to rise above surface.
 "Jeanne!"
 
 "Eh? Kai, what's all of sudden? Calling my name in public like that...
-Could it be... Can I expect something then?"
+Could it be... Can I have high hopes then?"
 
 Despite starting to float, she said with a smile on her face.
 Not even understanding what's going on.

@@ -281,7 +281,7 @@ Half of Vanessa body became petrified and started to collapse.
 
 Demoness opened her eyes.
 
-"The change to this world.
+"The world has changed.
 Sid called it _World Reincarnation_.
 And there is someone who tampered with the world
 Look for him!
