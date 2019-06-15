@@ -973,3 +973,579 @@ And then as voice of beautiful girl melted and dissolved in air, the dark barrie
 -------------------------------------------------------------------------------
 
 <a href=#Part2 id="Part2" class="Bookmark"></a>
+
+"Really? Demons were right in front of Government Palace...?"
+
+Sound of footsteps over rubble could be heard.
+Under shadow of towering building Urza Resistance Leader Jeanne was looking around with all seriousness.
+
+"The area should be patrolled by our soldiers.
+Both at evening and morning too.
+Yet not even a single demon has been spotted.
+Just when they were able infiltrate and come so close?"
+
+"Could they be here for revenge?"
+
+Bodyguard Fairin looked up at building's rooftop.
+Just hour ago there were three hero rank demons.
+
+"No doubt demons had the same feeling about our surprise attack, as we're having now.
+Their comeback is quite ironic one."
+
+"Using the same method for their revenge, might be their way to provoke us...
+Still, I'm glad that both of you're safe."
+
+_TL Note:_ Pretty sure Hinemarill said that she was only visiting...
+
+After succubus Hinemarill withdrew, Kai reported situation to Ashlan.
+Shortly after Jeanne came with her armoured soldiers.
+Her coming was also hasty one.
+Jeanne breathing was out of order and small drops of sweat could be seen on her forehead.
+
+"You were trapped in demon's barrier?"
+
+"Yeah, just as I said previously."
+
+As he replied to Jeanne, Kai tightly grasped Drake Nail's grip.
+
+_I've been careless this time._
+
+_Since there were only few, I thought it was just some scout party._
+
+Demoness Hinemarill who called herself Succubus Queen.
+It was likely that since the defeat of demon hero, she is going to take the role.
+The pressure he felt from her was close to the Vanessa's level.
+And two other demons were monsters in their own right.
+
+"Today's hero rank demons...
+Now that Vanessa is defeated, they are without mistake the strongest."
+
+"I'm sorry, Kai, if only I'd be more careful..."
+
+He heard Rinne from behind.
+Her apologetic voice was so small and weak that it was almost shadowed by wind.
+
+"I thought they left since smell disappeared, and didn't expect that it was due to their barrier..."
+
+"It is not your fault, Rinne, these guys were just too good."
+
+It was quite daring for them to appear in front of humans in broad light.
+And Kai was quite shocked.
+
+_What I learnt about demons from my history is that they were race that prefer to win using simple brute force._
+
+_Did they even have tendency to sneak around?_
+
+Moreover for Kai, being taken by surprise wasn't the main shock.
+
+"Rinne."
+
+He whispered to girl behind.
+
+"Do you know these three?
+In my world I never heard about them."
+
+"...Nope, when I fought Vanessa, I never encountered them."
+
+According to history of true world, such strong demons never ever existed.
+And Rinne also said that she didn't see them.
+
+"Then maybe these three became strong in this world."
+
+"Yup, I feel it is the case too."
+
+Just like Jeanne became a saviour of Urza Federation in alternative world, demons and other races could be strengthened by hundred years war.
+
+"Our victory might be on thin ice more that we were thinking."
+
+Jeanne, who folded her arms was walking with drawn sword, on torn off road.
+
+"Only Vanessa alone remained in capital, while three other scattered across Urza Federation border to keep other races in check.
+But, Rinne, Kai..."
+
+Paladin turned her to look at them.
+
+"Just to be sure.
+Demons goal was a cease-fire rather than revenge, right?"
+
+"Yeah she said that they might hand over capital, but it doesn't mean they are defeated."
+
+"So demons are somewhere within Urza territory?"
+
+"So she said."
+
+"This is troubling. Fairin, what do you think?"
+
+Jeanne looked at her bodyguard.
+
+"Our forces were able to take over only capital, but most of Urza Federation is still under control of demons.
+And retaking it our dearest wish, but... Demons came to warn us just now."
+
+"They have no intention to surrender any other territory."
+
+"What do you think?
+Should we accept the cease-fire agreement?
+I'd like to hear opinion of everyone in headquarters.
+As soon as we're back at government palace, we need to seek out opinion of every commanding officer."
+
+_TL Note:_ If you want my opinion Hinemarill is so cute that you should agree :)
+
+"...Nine years."
+
+Female warrior, known as strongest in Urza, continued.
+
+"Is the necessary time for capital recovery.
+And three more years to stabilize operation on industrial plants and factories, necessary to Resistance Army.
+These are estimations from our specialists, the minimum ones."
+
+"This is under assumption that capital will not be attacked any longer, right?"
+
+"Yes, put it another way, it is opportunity for us.
+Even if the other side is going to abandon the agreement, there is no need to stir troubles ourself.
+Eventually we're going to fight one way or another, so for now we should focus on restoring capital."
+
+"I wonder if they are going to keep their promise..."
+
+There was a reason for Jeanne's hesitation.
+After all in past there was no example of demons seeking negotiations.
+So doubting it was only natural.
+
+"Might be a way to make us lower our guard?"
+
+"This is not impossible, but.
+If you think from demons perspective, would humans even require such cheap tricks?
+Rather than being afraid of us, who defeated demon hero, they are more afraid of potential invasion from other races."
+
+"...Are they going to just hide themself?"
+
+Jeanne made small groan.
+
+"Kai, I want to check one more thing.
+That Demon Queen, is she expecting us to move outside of Urza borders?"
+
+"Yeah, she said that would be only welcome."
+
+"Watching us fighting with other races and being crushed by them.
+What a convenient request to make."
+
+Somewhat bitter smile appeared on the face of Paladin.
+
+"Then, it is unlikely for demons to hinder our expedition?"
+
+"I don't think we have to worry about it."
+
+Jeanne seemed to lean towards agreeing.
+Such quick proposal of negotiations is certainly unexpected, but on other hand it alleviated the fear of demons revenge.
+
+"We'll have capable people from other cities to gather to work on capital recovery.
+Meanwhile we'll go through our plan with expedition to assist other Resistance Armies.
+That's all?"
+
+"Right, we'll have to separate our army into two parts."
+
+Jeanne turned back at him, leaving her bodyguard who was taking a lead.
+It would seem she decided to investigate building where Kai encountered three demons.
+
+"Right now staff and commanding officers are gathered in conference room at tenth floor."
+
+"Jeanne, you ain't going to take part in it?"
+
+"Fool."
+
+Jeanne sighed.
+
+"Whose fault you think it is that I had to slip from this meeting and run with all of my strength to here?"
+
+"...That was certainly my fault."
+
+"If you understand then good."
+
+She said while folding her arms.
+But her bodyguard who was besides, seeing it, had quite amusing look.
+Which was quite unusual if you think about her normal poker face.
+
+"Fairin."
+
+"My apologises, please continue your talk."
+
+"Well fine, anyway as for division of our forces, we should decide it within next few days.
+Once we divide our forces into expedition and defence unit, expedition forces will need to quickly prepare for move."
+
+Both Jeanne and Fairin will join expedition forces.
+And Kai with Rinne will be joining them too.
+
+"Let's return to government palace."
+
+![Jeanne and Fairin](./p057.jpg)
+
+Jeanne gave signal to Fairin and turned around.
+
+"We'll have investigation units to check this place, though I doubt there are any clues left by demons."
+
+For example these three demons footprints could show from where they came.
+But it is unlikely that they would leave such convenient for humans traces.
+
+"Then we should return too."
+
+Kai gave Rinne signal and followed Jeanne.
+
+-------------------------------------------------------------------------------
+
+<a href=#Part3 id="Part3" class="Bookmark"></a>
+
+Two weeks passed since re-take of capital.
+Transfer of Urza Resistance headquarters to government palace was already half way finished.
+
+"Wow, so bright!"
+
+In conference room on second floor, Rinne was looking up at shining illumination.
+
+"Even though it is been totally dark."
+
+"With this lights are completely restored.
+But since electricity is pretty valuable, we're going to turn it off."
+
+Rinne was supporting tripod stairs with Kai.
+He was removing already dusty lights and replacing with new ones.
+And also replacing torn apart electric cables.
+
+"With this I guess government palace is more like our base."
+
+Most, if not all, of electric equipment should be restored in the building now.
+Although the building itself is quite damaged since demon invasion 30 years ago, it is more than enough for soldiers lodgings.
+
+"With this we done all we could.
+Now all is left out departure."
+
+"When we're departing?"
+
+Rinne was sitting on top of the table, while it wasn't well-mannered of her, she looked more calm than sitting on chair.
+
+"And then we're also fighting three remaining heroes?"
+
+"Most likely, but our main goal is not to fight and win.
+We should find culprit behind the current state of the world."
+
+As a matter of fact the reason Kai has to challenge other heroes is none other than the task demon hero Vanessa entrusted him.
+
+[There is someone behind this fake world. Seek him out among remaining three heroes!]
+
+Four heroes - they were already legendary beings from hundred years ago in Kai's world.
+These four were leading their respective races, which made humanity afraid.
+
+Demon hero [Dark Empress Vanessa].
+
+Foreign god [Heaven Lord Alfreya].
+
+Cryptid hero [Fang King Rath=IE].
+
+Spirit hero [Spirit Sovereign Rokugen Kyouko].
+
+The single person hold enough power to destroy a single country.
+Their strength was so big that they could be said to be natural disaster or calamity.
+
+_Aside from Vanessa, Rinne is not very well knowledgable about heroes._
+
+_And even I rely only on MDA's historic records, I must be more careful._
+
+And there was one more.
+He had to be vigilant not only against four races.
+
+"Just what was that thing?"
+
+"That thing?"
+
+"Vanessa called it [rasterrizer].
+It also attacked us at the place where you've been held."
+
+He was talking about monster that suddenly appeared in the middle of fight with Vanessa.
+
+[You bastard, I see now... I understand now... You're rasterrizer!]
+
+It was quite bizarre creature that looked like a ragged doll of girl with several missing parts.
+It had wings and two heads, moreover out of it's body was also growing some strange things.
+What's more MDA records had no information on such monster.
+
+_It is first time I saw such grotesque monster._
+
+_Is this a species of this world only? Is that thing even a living one?_
+
+Moreover the rasterrizer was reason of Vanessa's mortal wound, not Kai's sword.
+It petrified her whole body and then she turned into black dust and vanished.
+
+"I thought it was some new race of this world, so I talked with Jeanne about it, but..."
+
+"She knew nothing of it, right?"
+
+"She just shrugged off having no idea.
+If their leader doesn't know, then the same is likely for Resistance soldiers.
+So we should be careful, Rinne."
+
+"Yup!"
+
+"...Your answer is good and all, but why are you look so happy?"
+
+She was happily nodding in response.
+Despite talking about monster that once aimed for her life, she looked so happy.
+
+"Eh... But you know..."
+
+Sitting on the table, she was swinging her legs around and having smile on her face.
+
+"This is a secret only between me and Kai.
+And helping you is my role, so I'm pretty motivated."
+
+"I see...?"
+
+"Leave it to me, if Kai will be in danger, I'll explode together with enemy..."
+
+"Explode!? Absolutely no! I prohibit it!"
+
+_TL Note:_ Damn, Rinne is so cute, but she is like Megumin with her exploding enemies :)
+
+With a smile on her face she was saying such crazy things.
+But it certainly wasn't a joke.
+At the time when they fought Vanessa, she was ready to die killing her.
+So he had to say something to her about the things she was honestly ready to do.
+
+"When we fought Vanessa, I... I understand that it looked like I completely lost.
+But, I'm asking you to not do it again."
+
+"..."
+
+"I'm glad that you came to my rescue, but...
+But my and your life are separate matters.
+You should equally treasure your life too."
+
+She was silent, but as soon as he thought so, she jumped of the table and walked towards him.
+As they bodies almost became in contact, she looked up at him.
+
+"Ehehe..."
+
+"What about you are happy this time..."
+
+"I thought you would say something like that.
+That's why I love Kai."
+
+Despite him saying only natural thing, she looked so delighted.
+
+"Ei!"
+
+Then she embraced him, closing her clasping her hands on Kai's back, as if intending to not let him leave.
+Furthermore she buried her head in his chest, as if she was some kitten or puppy.
+
+"Ehehe..."
+
+"So what is it!?"
+
+"Just wanted to do it.
+I'm relieved, Kai is the only one I can be together."
+
+"Burying your head like that, isn't it suffocating?"
+
+"Of course no, after all..."
+
+Before she could finish, behind them suddenly door was opened.
+
+"Kai, Rinne, you're here!"
+
+"Whua!?"
+
+Surprised, Rinne screamed and jumped on spot.
+While both were watching each other, the Resistance leader came in with her armour on.
+Soon enough Fairin appeared behind her.
+
+"Sorry making you wait, but we finally finished arranging expedition."
+
+First was Jeanne with voice full of joy.
+
+"Our destination will be east, [Io Federation].
+We already settled it down with Io Resistance Army who requested our support.
+We're departing within five days!
+Finally, we'll be able to step outside of capital into wider world!
+For Urza people, for humanity as whole!
+Hmm... what is it with both of you?"
+
+_TL Note:_ osananajimi is donkan this time around...
+
+"N-no, nothing, we heard you, right Rinne?"
+
+"Y-yup! We heard you!"
+
+They hastily asserted it.
+While it is not first time doing for them, but it would be better to refrain from creating misunderstandings by doing it in public.
+The reason Rinne jumped though is mostly out of surprise from Jeanne's sudden appearance.
+
+_TL Note:_ Pretty sure only Kai wants to refrain actually
+
+"Fairin, show the thing we talked about to them."
+
+"Yes - here is document that describes organization of our expedition.
+Both of you will participating as part of escort unit."
+
+They looked at paper that Fairin handed.
+
+"Escort unit...?"
+
+"You'll become Jeanne-sama's escort.
+Heading towards territories, dominated by other races, is dangerous.
+Early on we decided on establishing escort unit."
+
+Which seemed only natural.
+While Fairin already said, but just to be sure Kai asked her to confirm.
+
+"I'm seeing only three people here, it is not mistake?
+Me, Rinne and Fairin."
+
+"You'll be in name only."
+
+Female bodyguard looked at both Kai and Rinne.
+
+"I'll continue being the only bodyguard for Jeanne-sama.
+In case of emergency your cooperation would be welcome, but other than that I have no intention of giving you orders.
+This should be fine, right, Jeanne-sama?"
+
+"Yeah, after all they are our allies."
+
+They heard friendly girl's voice.
+It was voice of the girl of the same age as Kai - Jeanne E Anisu own voice, rather than voice of Resistance Leader.
+
+"Jeanne-sama."
+
+"Isn't it fine? Both already know about me."
+
+"That's not what I meant.
+I'm talking about others hearing Jeanne-sama talking here."
+
+"I just locked door."
+
+Toward the stern tone of her bodyguard, Jeanne answered with a wink like little devil.
+Rather than relations between master and servant, it more looked like that of family.
+
+"Just to be on same page I'll say it right now.
+The only one who know about me being woman are staff officers of Resistance, and all of them will remain in capital to oversee its restoration."
+
+"Elders who were with Jeanne at meeting?"
+
+"Yeah, originally they were subordinates of my father, that's why.
+They are already quite old, so they are not fit for such expedition."
+
+She put her hand around chest, as if being shy about disguised as man.
+
+"Among expedition forces, the only one who will know about me are you three.
+Fairin, Kai and Rinne.
+Especially you Kai."
+
+"W-what?"
+
+Under her gaze Kai swallowed his breath.
+It was the look of his childhood friend from true world.
+Even knowing that Jeanne of this world no longer remembers him, he still felt flustered.
+
+"Kai, you're the only man that knows about me being woman.
+Make sure to not let it slip!"
+
+"...Why I would do it?"
+
+None other than Jeanne herself decided to act as [Male Commander].
+And her decision wasn't a light one, so she had no intention to let it be wasted.
+
+"Reminding about it now is no longer necessary."
+
+"I'm reminding about it, because it is important. Ok? You understand?"
+
+"...Understood, Commander"
+
+"Very good."
+
+Being satisfied Jeanne nodded.
+But, there was a single girl here who started pouting.
+
+"Eh, Rinne?"
+
+"..."
+
+Rinne, whose cheeks already became big, folded her arms.
+She was unusually silent while Kai and Jeanne were in the middle of conversation.
+
+"What is it, Rinne?"
+
+"It is unfair!"
+
+"Eh?"
+
+"It is unfair that Kai and Jeannya are talking only with each other!
+So, it is no good, Jeannya!
+Kai is with me, so do not try to steal him!"
+
+_TL Note:_ I'll be honest I'm rooting for Jeanne, but Rinne is so cute...
+
+"H-hey!?"
+
+No longer listening to any complaints she took Kai's right hand and pulled him.
+She was pouting so much that even her inner thoughts started leaking saying that Kai is hers.
+And then Rinne pointed her finger at silver haired girl.
+
+"Kai, you shouldn't approach her. Jeannya is after Kai!"
+
+"What do you mean!?"
+
+Everyone noticed that the girl in armour had her face all red.
+
+"I-I am a commanding officer!
+Personal relationships with subordinates are strictly prohibited!
+I'm always keeping a certain distance to keep my judgement fair...
+Well... How to say it... That's why..."
+
+"Jeannya hates Kai?"
+
+"I didn't say so! Ehm, it is different!"
+
+Jeanne's voice echoed through the room.
+
+"I have soldier's pride  sure, but... I'm also of age you know, sometimes rather than dressing as man I'd like to be a girl as much as I can."
+
+"I knew it, Jeannya..."
+
+"You're misunderstanding!? Fairin, you too say something!"
+
+"When we were going to the conference room, Jeanne-sama foots were working more than usual.
+Like she have been wondering [I wonder if Kai is there?]..."
+
+"What are you saying!?"
+
+"Letting your emotions out is important too.
+Jeanne-sama education in this regard was left to me by predecessor, that's why."
+
+Bodyguard tried to conceal her laughter as much as possible.
+
+"...Putting that aside..."
+
+Quickly she returned to her usual sharp look.
+Female bodyguard continued talk on Jeanne's behalf.
+
+"That's all, we depart five days later.
+Resistance is already working on preparations."
+
+"Then me and Rinne..."
+
+"You only need to be ready."
+
+The words of female soldier carried a certain weight.
+That was carried enough strength so that even Rinne's mouth became stiff.
+
+_TL Note:_ This is a bit confusing, maybe need to rethink it `重圧感を湛えた女戦士の宣告。リンネさえ口元を引き締めるほどに、その声には有無を言わさぬ力があった。`
+
+"Foreign gods are different from demons, I suspect you know."
+
+"...Yeah."
+
+"They are more cowardly than humans, and even more cunning.
+They use traps, decoys, ambushes.
+And then use far stronger weapons - magic tools."
+
+If demons are [monsters] for humans then foreign gods would be a [<span title="jp. 上位互換 This is a bit unclear but I think author mean in it in a sense that humans are just downgrade version">higher tier</span>].
+It seems that will be completely different battlefield comparing to the one in Urza Federation.
+
+"I'd like you to be in your best possible condition.
+Within five days we'll be departing."
