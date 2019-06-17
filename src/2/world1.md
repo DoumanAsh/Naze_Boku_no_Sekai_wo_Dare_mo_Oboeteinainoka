@@ -634,7 +634,7 @@ He knew this fierce bloodlust.
 
 _This magic power!?_
 
-_How is this possible... that's unsual power!_
+_How is this possible... that's unusual power!_
 
 This was the same pressure as he felt when he fought Vanessa.
 And this succubus sprung into action towards them.
@@ -972,7 +972,7 @@ And then as voice of beautiful girl melted and dissolved in air, the dark barrie
 
 -------------------------------------------------------------------------------
 
-<a href=#Part2 id="Part2" class="Bookmark"></a>
+<a href="#Part2" id="Part2" class="Bookmark"></a>
 
 "Really? Demons were right in front of Government Palace...?"
 
@@ -1191,7 +1191,7 @@ Kai gave Rinne signal and followed Jeanne.
 
 -------------------------------------------------------------------------------
 
-<a href=#Part3 id="Part3" class="Bookmark"></a>
+<a href="#Part3" id="Part3" class="Bookmark"></a>
 
 Two weeks passed since re-take of capital.
 Transfer of Urza Resistance headquarters to government palace was already half way finished.

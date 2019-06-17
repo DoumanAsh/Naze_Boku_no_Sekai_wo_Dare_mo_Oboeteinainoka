@@ -12,3 +12,4 @@
     - [Epilogue Story of young man forgotten by world](./1/epilogue.md)
 * [Volume 2](./2/index.md)
     - [World.1 Night is over](./2/world1.md)
+    - [World.2 To the east of the world](./2/world2.md)
