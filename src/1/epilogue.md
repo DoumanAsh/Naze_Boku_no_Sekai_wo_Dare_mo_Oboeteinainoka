@@ -1,4 +1,4 @@
-![Cover](./midashi07.jpg)
+![Cover](./midashi08.jpg)
 
 Demon Hero Dark Empress Vanessa fell...
 Which lead demons to withdraw from Federation's capital.
