@@ -1,5 +1,7 @@
 # Naze Boku no Sekai wo Dare mo Oboeteinainoka?
 
+[![Build Status](https://travis-ci.org/DoumanAsh/Naze_Boku_no_Sekai_wo_Dare_mo_Oboeteinainoka.svg?branch=master)](https://travis-ci.org/DoumanAsh/Naze_Boku_no_Sekai_wo_Dare_mo_Oboeteinainoka)
+
 [Summary](src/SUMMARY.md)
 
 ## Synopsis

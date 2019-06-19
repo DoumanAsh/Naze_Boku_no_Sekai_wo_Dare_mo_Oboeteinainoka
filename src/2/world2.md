@@ -373,7 +373,7 @@ She jumped over to tray.
 
 "Rinne!?"
 
-"Kay..."
+"Kai..."
 
 Rinne looks back with a smile.
 She pointed her slender finger at flying wyvern.
