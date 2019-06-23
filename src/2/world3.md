@@ -310,8 +310,8 @@ Headquarters, which we could call our home, are being polluted this way."
 Then he started to walk once again.
 They were at first floor of hospital.
 As one would expect during the day electricity was turned off.
-For the most part, inside of the building was no signs of plants.
-They could see concrete floor and walls, where it could be seen peeled off colour, as they advanced further.
+For the most part, inside of the building there was no signs of plants.
+They could see concrete floor and walls, with peeled off paint, as they advanced further.
 
 "On our right is conference room, and back there on the left are training room and storage room."
 
@@ -342,7 +342,7 @@ _TL Note:_ Wow I'm surprised that guy is still alive...
 She lowered tone of her husky voice.
 
 "If times would be different, he'd become a king due his lineage.
-With that, he considers lowering himself to a mere commander for a mere group of soldiers as unfitting and unbearable task."
+With that, he considers lowering himself to a commander for a mere group of soldiers as unfitting and unbearable task."
 
 "..."
 
@@ -507,7 +507,7 @@ Once again clicking his tongue, emperor kicked the desk.
 
 "Sorry for making you wait."
 
-"From the side door, appears slender woman and salutes them.
+From the side door, appears slender woman and salutes them.
 She looks to be about mid twenties with pale green long hair and golden, like full moon, eyes.
 With her dignified facial features and gentle smile, Kai swallowed his breath seeing such beautiful staff member.
 
@@ -521,10 +521,10 @@ And her skin was surprisingly white.
 
 "You're ladies and gentlemen of Urza Resistance, right?
 Coming so far away to help us, I thank you for that.
-I'm Commander's aid Qubiley."
+I'm Commander's aide Qubiley."
 
 She made a respectful bow.
-Being commander's aid meant that she was trusted by Dante.
+Being commander's aide meant that she was trusted by Dante.
 In contrast with staff officer who was managing soldiers, her position meant to be by Commander's side all the time.
 
 _TL Note_: She is either saint or spy, cannot really imagine any other reason for beautiful girl to stick with such swine...
@@ -569,7 +569,7 @@ They can create as much as they wanted of training grounds and storehouses, by u
 Ashlan and Saki were stirring into boiling pot onto portable stove.
 Both of them were in the middle of preparing soup, dyed red.
 They were making people under open air.
-As there was no space to prepare meal for Urza Resistance who cam in rush to the aid, they had to both prepare and eat meals outdoors.
+As there was no space to prepare meal for Urza Resistance who came in rush to the aid, they had to both prepare and eat meals outdoors.
 
 "Still... Can we actually eat it?"
 
@@ -596,7 +596,7 @@ Holding with both hands a camping plate, Rinne eagerly awaiting the dinner.
 "It needs to be cooked a bit more, so wait please Rinne-chan...
 By the way, Kai, what are you doing there?"
 
-"Checking state of gun."
+"Checking a gun."
 
 Step aside from cooking pot, Kai sat down on rubble and was holding in his hands grey assault rifle.
 
@@ -692,7 +692,7 @@ Their Commander Dante selects aide by their looks and makes the most beautiful g
 For a moment, he thought about it in silence.
 He tried to remember times when he saw Commander's aide.
 Once in Dante's office, and another time was at their meeting during the day.
-He wouldn't disagree about beauty of that girl with quite unusual air about her.
+He wouldn't disagree about beauty of that woman with quite unusual air about her.
 And especially, the colour of her eyes and hair.
 It was almost like out of fairy tail.
 
@@ -830,7 +830,495 @@ Before Kai could say anything Urza's strongest warrior already returned back.
 
 <a href="#Part3" id="Part3" class="Bookmark"></a>
 
-Io Renpo, eight ward Cassiopeia.
+Io Federation, eight ward Cassiopeia.
 On square, surrounded by building covered in green, cheers from Io soldiers could be heard.
 
+"We've just returned. The elven forest was really amazing place."
 
+Jeanne, who led Io Resistance elite soldiers, just returned.
+They departed at very early morning, and although hour later, they returned at evening without a single injury.
+
+"I did cause you some worry, but we made new discovery in elven forest.
+Staff officer Tsekhman!"
+
+"Yes, sir!"
+
+"Start preparations for meeting. I'd personally make report about our discovery to every commanding officer."
+
+"I'll start at once."
+
+Old soldier was very vigorous while giving a bow.
+He was certainly formidable man, but comparing to yesterday his gaze hold a new fire.
+Likely due to influence of Jeanne's enthusiasm.
+
+"Everyone, you did well."
+
+Jeanne showed her appreciation to each member of elite squad.
+The faces of Io soldiers were completely different, comparing to yesterday.
+Among the soldiers who were greeting Jeanne, some even with tremble raised their voices.
+Jeanne was completely different from Commander Dante.
+Just after arriving here yesterday, on next day Jeanne went to scout elven forest, which emperor stubbornly refused to do.
+And successfully returned back with Io soldiers.
+
+"Their expressions clearly tell it. They want such Commander."
+
+Kai said so, while looking at Io soldiers, surrounding Jeanne.
+
+"But you hold a bit different opinion."
+
+"..."
+
+Fairin, who leaned against wall at the back of the building, remained silent since Jeanne return.
+She slowly raised her head.
+
+"And how do I look like?"
+
+"As Jeanne left for reconnaissance into foreign gods territory, she came back hour later which made you worried."
+
+"I'll lecture Jeanne-sama later on."
+
+Fairin wakes up from her listless state.
+Until her master's return, this bodyguard was waiting her return more than 10 hours without food.
+
+"Rinne, I'm going to meeting, but what are you going to do?"
+
+"Mmm... Again meeting?"
+
+Rinne was lying on top of some wreckage while basking in sunlight.
+The young girl, who was so comfortably napping, opened her eyes when she heard Kai's voice.
+The only one who would remain calm, when so many soldiers were eagerly stomping the earth, would be Rinne.
+
+"When we're going to fight angels and elfs?"
+
+"Once we'll finish preparations.
+It was easy to attack Vanessa since she was staying in capital.
+But it will be different with foreign gods."
+
+Elven forest, dwarves hamlet, fairies hideout and angels garden.
+All of these were unknown territories to humans.
+It was obvious that carelessly trespassing would lead into trap.
+So they had to carefully scout it.
+
+"The meeting is all about just sitting..."
+
+"Then are you going to be waiting here?"
+
+"Yup, I might be disliked by that human... He again looking here." _TL Note:_ Without particles it is a bit unclear who dislike who, but I assume it from context.
+
+"..."
+
+Rinne was pointing...
+At the second floor of Resistance's base.
+Kai looked into direction of the window, which was covered by vines and moss.
+But as it was dark, he couldn't see anything, but Rinne, who was of different race, could work it out thanks to her eyesight.
+
+"Is that Dante?"
+
+"Yup, he's been looking here since morning.
+I ignored since it is unpleasant, but should I've told earlier?"
+
+"...No, I think it is fine to pretend that you didn't notice."
+
+He shook his head in response to Rinne.
+Right now Io Resistance cooperation was necessary for them in order to fight foreign gods.
+So he wanted to avoid instigating that man by prying too much into him.
+
+"Well then, Rinne, I'll be back soon, so wait for me."
+
+Kai waved to the girl, and walked towards entrance of hospital, which was their base.
+
+**Perspective changes**
+
+Plaza, surrounded by abandoned buildings, gathered soldiers on it.
+And single man was looking at them from above at second floor of hospital.
+
+"..."
+
+The window's glass was covered by vines.
+The reason why he was looking through small window like that was because he was aware that his subordinates don't think fondly of him.
+
+"...Jeanne...!"
+
+In the place he was looking at, more than hundred soldiers gathered around figure of young knight.
+Who just returned from elven forest...
+Which was south of 8th ward Cassiopeia and became a home to foreign gods.
+
+"Going to scout in such place? Even though no knows just what kind of traps are awaiting there...!"
+
+There was also risk of being captured and imprisoned.
+And receiving torture, disgrace, and even losing life.
+Considering the danger, it was unthinkable for Commander himself to lead scouting party.
+
+"Is this Paladin sane!?"
+
+He kicked the wall with all of his strength.
+As dull sound resound through the room, Io Resistance's leader [Emperor] Dante bitterly gritted his teeth.
+The general who wouldn't move.
+The king who would remain on his throne.
+
+"This is savior who defeated demon hero?
+What kind of man could do such feat?
+Leader of organization that recklessly stands in vanguard!
+You completely clueless of your position as general!"
+
+There two points that was intolerable for him.
+First was foolish act of Urza Resistance Commander.
+At first it might look like brave act, but from Dante's perspective it was nothing more than recklessness.
+It was far off from <ruby>his<rt>Dante</rt></ruby> own <span title="jp. 美学 I wouldn't say it is the best word to use, but that's what author uses">aesthetics</span>.
+
+But there was one more thing.
+Even more unforgivable...
+Seeing such Jeanne to behave like that, his soldiers livened up.
+They surrounded silver haired knight with cheers, to praise the feat.
+
+"All of them have elven plants instead of brains!"
+
+"...Your Majesty."
+
+He heard a voice of beautiful aide, who stood by Dante's side.
+
+"Qubiley, are you intending to rebuke me...?"
+
+"I wouldn't dare."
+
+Female soldier respond with graceful smile.
+This woman's smile would be a water that quenches terrific fire.
+
+"People outside are but a bunch of ordinary people.
+They are not worthy of clouding His Majesty's heart."
+
+"..."
+
+"They've been only hit by that knight Jeanne's ardour right now.
+There will no need for Your Majesty to attend tonight's meeting.
+I'm alone will attend it."
+
+"Qubiley, it would seem you're the only decent subordinate, that I have."
+
+Others were just rowdy soldiers.
+Only his aide was the one who understood noble ideals.
+
+"They will soon remember who is the king of this land.
+And this outsider knight is definitely not the one."
+
+But the next day, third since the arrival of Urza Resistance to Io Federation, Jeanne's support grow far beyond Dante's imagination.
+
+During yesterday exploration of elven forest, they deduced elven patrols route from footprints, they discovered.
+Soon, the information spread among Io soldiers, and Jeanne's support already reached the point where it would threaten Dante's position.
+
+"...These <span title="jp. 蛮兵">barbarian soldiers</span>!"
+
+He hit the desk with his fist so strongly that it even shook glass on it.
+It was the worst possible scenario for when person, who was known as savior of Urza Federation and hero who defeated demon hero, would come, which had potential to shake his own position.
+To say more, the degree of influence was quite beyond his expectations.
+These simple minded soldiers were so quick to open up their hearts to foreign Commander.
+
+"Regarding the bodyguard known as Fairin, according to information from Tsekhman..."
+
+Commander's aide Qubiley was gracefully giving her report.
+In contrast with red, like tomato, Dante, her skin was so beautifully white that it looked transparent.
+
+"Her existence also plays a big role in Jeanne's support.
+From her teens she was wandering soldier who joined Resistance Armies all over the world.
+And there are records of her serving in south country, where she took down medium sized drake on her own.
+It already became a legend."
+
+She was a dragoon who run through battlefield with dragon fang and was feared by demons.
+And her name was heard even here in Io.
+
+"Even skilled soldiers have some submissive tendencies towards these who achieved deeds on battlefield.
+And there are lot of people among our army that think, as the master of that dragoon, he is trustworthy."
+
+"I understand it!"
+
+Cracking sound could be heard.
+Dante smashed the glass, he was holding, and barked.
+
+"I belong to Io's royal lineage and if times would be better people would already kneel before me.
+Just why... They have to give me so much trouble!"
+
+"Your Majesty."
+
+Beautiful lady placed unfamiliar map on his desk.
+This was...
+
+"Routes through elven forest...?"
+
+"Yes, these are the one Paladin took yesterday.
+So here comes my plan, which originally might not sit well with Your Majesty though."
+
+Towards her master who looked in doubts at map, his aide only gracefully smiled.
+
+"If it will be successful, then Your Majesty's position will once again become firm."
+
+**Perspective changes back**
+
+Io Resistance headquarters first floor.
+As the meeting has ended, Jeanne exited room and clenched her fists.
+
+"The best possible outcome."
+
+"Taking the risk to jump into exploring elven forest had it's effect."
+
+Fairin, who was besides Jeanne, nodded in agreement.
+Unexpectedly they turned towards the end of corridor.
+
+"Bodyguard squad, it is soon our time to shine. Do not neglect your preparations."
+
+"...Finally it is time."
+
+In the dark corner of the corridor, Kai swallowed his breath.
+
+"You heard them, Rinne."
+
+"<span title="jp. ふ、ふぁいっ I'm not even going to try">Fu-fuii</span>?"
+
+The young girl got up in confusion.
+During less than hour meeting, Rinne was able to soundly sleep while standing.
+
+"Y-yup! Ehm, Kai, what is it about?"
+
+"Resistance army is going to commence attack on elven forest.
+And as you heard, we're Jeanne's bodyguards, so I think we're going to fight together."
+
+Which meant front lines.
+Paladin Jeanne took a lead of Resistance vanguard.
+It was her style to bear full responsibility.
+And her bodyguards were no other than Kai and Rinne.
+
+"Why like that? I'm alone is ok, as long as I'm with Kai, it will be all right."
+
+"...I'm really thankful for Rinne's positivity."
+
+Half of Kai's response was with wry smile
+But other half out of honest relief he had from her words.
+He knew how reliable Rinne was, more than anyone else.
+Moreover seeing her so cheerful was encouraging.
+
+"Jeanne? You said it was the best possible outcome."
+
+"As you can see."
+
+Soldiers were exiting meeting room.
+Including commanding officers of Io Resistance Army who attended joined meeting.
+Among them was staff officer Tsekhman, who upon noticing Jeanne's gaze, made small node.
+
+"Io Resistance soldiers were inclined to admit me as battlefield commander of our combined forces.
+But of course Dante was placed as supreme commander."
+
+Being admitted as battlefield commander, didn't only bring her a new rank.
+It meant that they were ready to trust their lives to Jeanne.
+Experienced soldiers were careful so they wouldn't easily bend in front of rank or fame.
+Which meant that admitting Jeanne hold a deep meaning.
+
+"That's great, Jeanne."
+
+"It was worth risking my life.
+To be honest it was really scary going into elven forest day before yesterday...
+Well, that's our inside story. Io side doesn't have to know it."
+
+Embarrassing smile floated on Jeanne's face.
+Seeing her like that - overlapped with the image of his childhood friend in real world.
+
+_She've been called Valkyrie too after all._
+
+_During MDA's time, she was called like that not only by collegues, but even superiors._
+
+From early childhood she have been studying military strategy from veteran.
+And several generations her lineage carried commanding aptitude.
+Moreover she had both beauty and bravery.
+In this world she was probably the only one who would be able channel it into authority, after polishing.
+
+"There is only one concern I have..."
+
+Jeanne looks back at empty room once last person leaves.
+
+"Kai, Rinne, right now among people who left the room, did you notice who were missing?"
+
+"Dante."
+
+"The one called Qubiley, right?"
+
+Both answers were correct.
+But while Kai noticed absence of Commander, Rinne answered with his aide.
+Which he found strange.
+Usually Rinne wouldn't bother to keep track of humans.
+But then he thought back, and it wasn't the first time to happen.
+
+[Hey, Kai, is Qubiley the woman who was next that guy?]
+
+[How unusual for Rinne to be interested in human.]
+
+"Both are correct. Dante didn't come to attend today's meeting.
+And his aide, who was attending until yesterday, too was absent due to urgent business.
+Well, Tsekhman, should report details of the meeting..."
+
+"Wait a second, Jeanne."
+
+He interrupted words of knight who was frowning.
+
+"Rinne, does something worry you about that Commander's aide?"
+
+"...I'm not sure."
+
+Mixed race girl's face looked troubled.
+
+"You know, her smell? Mm, but I'm not all that confident about human's smell...
+I do not want to cause troubles to Kai by making mistake."
+
+"I don't mind, feel free to speak."
+
+"It is quite suspicious. You know... she doesn't smell like human."
+
+_TL Note:_ Told you, it was obvious.
+
+To these words...
+
+"Let us hear it in details."
+
+Fairin was the first to react.
+
+"We should go to the conference room, it will be troublesome if someone else hears us."
+
+**Perspective changes**
+
+Io Resistance headquarters, Commander's office.
+
+"Your Majesty, did you call for me?"
+
+Luxurious looking chandelier was lit and brighten up deep night, when even plants were asleep.
+Military boots were firmly standing on carpet of grape wine colour.
+Staff officer Tsekhman straighten up himself.
+Commander Dante was sitting by his desk, and glared at him while being in posture of resting his chin on his hand.
+
+"Your Majesty..."
+
+"Tsekhman, thank you for your work during today's meeting."
+
+The words of gratitude were coming from female aide who stood by Commander's side.
+
+"I'm sorry that both me and His Majesty were unable to participate.
+I felt ill today."
+
+"No, it is ok, I'm glad to see your recovery."
+
+Ill? There is no trace of that - Tsekhman did his best to suppress these words.
+
+_What a creepy girl._
+
+_I cannot see what is she even thinking._
+
+This year he would become 50 years old.
+Even though his strength declined, he was already in soldier line of work for 32 years
+And Tsekhman had pride in his eye for people.
+So what about this woman?
+Four years ago she had been suddenly summoned to Commander's side as his aide.
+His impression was that she had no aptitude for leadership and her non-disappearing smile was but a mask.
+
+"...So then, what you wanted to talk about?"
+
+"I have good news. Staff officer."
+
+Looking as she has everything prepared, woman gave signal to Commander who was sitting nearby.
+
+"His Majesty made his decision.
+His Majesty intends himself to go to south, where elven forest is.
+Namely Foreign Gods territory."
+
+"Wha!?"
+
+"Commander Jeanne-dono already took part in the war.
+So His Highness decided that we should not let lose such opportunity."
+
+That was something unreal.
+For the emperor, who for several years hasn't even moved from his position.
+
+"Tsekhman."
+
+Plum Commander stood up in relaxed manner.
+
+"I know it.
+My soldiers loyalty is already started bending towards that Commander."
+
+"...T-that...!"
+
+"It is annoying, but surely if I'll face battlefield myself, you'll admit me.
+I'm going to head to where foreign gods are."
+
+"..."
+
+He was at loss of words.
+After all it sounded like Emperor wanted to just repeat Jeanne's deed.
+Even if he'd try to imitate Jeanne, it is not like he would get the same respect.
+That was staff officer honest opinion.
+
+"...For me as both staff officer and your subordinate, your bravery is very reassuring.
+But I would like to hear the goal.
+Once we'll arrive to elven forest, what will be our plan?"
+
+"Our goal will be elfs and angels.
+I intend to catch prisoner."
+
+"What!? How you intend to achieve it?"
+
+"We discovered their traces.
+And our vanguard unit already finished scouting the elven forest.
+Just now I received their report."
+
+He didn't hear about such report at all.
+Considering his long experience as a soldier, he should be first in line to be consulted regarding such important strategy.
+
+"..."
+
+"Are you worried? About His Highness."
+
+He heard calm and gentle voice of Commander's aide.
+As if she saw right through his inner thoughts.
+
+"Operation is planned to start 2 hours later.
+At night 0 o'clock we're to depart from this place."
+
+"In the middle of night!? B-but on such short notice, Urza Resistance would...."
+
+"Tsekhman, think why would I depart so late in night?"
+
+There wasn't much to think about.
+It was in order to be ahead of Urza Resistance.
+Or to be accurate, to outplay Commander Jeanne.
+For emperor the most important thing was to make achievements for [himself].
+
+"...Understood."
+
+He bitterly bowed.
+
+"But Your Highness, if we are going to elven forest, we ought to be in full force.
+I request permission to accompany you for me and my men."
+
+"I permit it. But I prohibit you from leaking our plans to Urza side...
+Let's see, how about letting them know once we arrive."
+
+"...Yes, sir."
+
+Notifying them after they arrive to forest would only mean that Commander Jeanne, who is going to chase after their back, will arrive too late.
+
+_TL Note:_ Nice plan, Qubiley :D
+
+_But was it His Majesty's plan?_
+
+_I feel like it is someone's incitement. If there would such person around His Majesty..._
+
+Tsekhman looked at graceful and beautiful lady by Dante's side.
+He bit his lips.
+
+"Once we're ready, we'll depart."
+
+"Yes, Your Majesty. With me and staff officer by your side, there is nothing to fear."
+
+Beautiful girl smiled while saying these sweet words.
+Two hours later.
+Commander Dante, together with close aides, took the core of Io Resistance Army and departed far into elven forest, deep in the night.
+
+[We arrived at elven forest. Now commencing elf's capture strategy.]
+
+Came report from the <span title="Dante">emperor</span> early in the morning.
+And since that, it was last contact with his elite unit.
