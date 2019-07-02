@@ -1168,7 +1168,7 @@ I do not want to cause troubles to Kai by making mistake."
 
 "I don't mind, feel free to speak."
 
-"It is quite suspicious. You know... she doesn't smell like human."
+"It is quite suspicious. You know... She doesn't smell like human."
 
 _TL Note:_ Told you, it was obvious.
 
