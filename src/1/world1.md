@@ -778,7 +778,7 @@ Following Great War mankind created experimental weapon.
 Using special ore that could disperse magic, they created bullets which could disperse magic when they hit it.
 Literally erasing magic.
 
-"During Great War, Elfs used tools such as these, aren't they?"
+"During Great War, Elves used tools such as these, aren't they?"
 
 But their magic tools were created using their own magic power.
 Since humans lacked magic powers, they had to replace it with a _simplified_ version of elven bullet.

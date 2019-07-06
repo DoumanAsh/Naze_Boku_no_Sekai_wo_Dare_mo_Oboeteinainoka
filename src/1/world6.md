@@ -283,7 +283,7 @@ Demoness opened her eyes.
 
 "The world has changed.
 Sid called it _World Reincarnation_.
-And there is someone who tampered with the world
+And there is someone who tampered with the world.
 Look for him!
 He should be among three remaining hero."
 

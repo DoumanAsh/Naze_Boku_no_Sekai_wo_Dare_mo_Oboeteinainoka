@@ -157,7 +157,7 @@ _It feels like something between elf's and human's_
 
 She had elf ears, and then on her back were wings like that of angel and demon.
 
-"She has features of elfs and angels which belong to foreign gods I think.
+"She has features of elves and angels which belong to foreign gods I think.
 Then she is half between demons and foreign gods?
 Still, other than she looks like a human..."
 
@@ -223,7 +223,7 @@ From palms of her hands, circular patterns of various colours starts shining.
 But what is this exactly.
 It is different from magic of various races.
 In case of demons its colour would be black or purple.
-And both elfs and angels would have white colour.
+And both elves and angels would have white colour.
 At least that is what been known from Great War records.
 But what is this mix of dozens, no, hundreds of colours on top of each other.
 

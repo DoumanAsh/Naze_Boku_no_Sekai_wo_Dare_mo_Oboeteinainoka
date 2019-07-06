@@ -997,7 +997,7 @@ After fire sword attack under the armour could be seen thin silk dress.
 It was thin as paper, but these garments were able to erase any demon magic.
 Armour itself served only as male disguise.
 The actual defence was provided silk dress under.
-It was holy light battle attire and greatest treasure to elfs, which boasted highest magic resistance.
+It was holy light battle attire and greatest treasure to elves, which boasted highest magic resistance.
 It served as embodiment of Paladin(Holy Light Knight) and trump card against demons.
 
 "**Do you want to kill yourself, human!**"

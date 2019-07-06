@@ -825,13 +825,13 @@ It should've been made by enormous strength and no trace of broken pieces could 
 
 "It didn't collapse naturally..."
 
-"Might be demons, or maybe angles and elfs.
+"Might be demons, or maybe angles and elves.
 Hey, Saki, watch out properly now, we're near foreign gods territory."
 
 Io Federation.
 Once they pass the great wall, it will be territory of foreign gods.
 There were angles who could rival demons in magic power.
-And then there were elfs and dwarves who hold equally powerful magic tools.
+And then there were elves and dwarves who hold equally powerful magic tools.
 Last was fairies who could meddle with nature
 The alliance of these four races were called foreign gods.
 

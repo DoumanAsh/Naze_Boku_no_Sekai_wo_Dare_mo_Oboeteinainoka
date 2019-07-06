@@ -188,7 +188,7 @@ They were bewildered.
 "Neither knife or gun could work against Cryptid's dragons.
 As for spirits, bullets just pass through.
 Then there is demon magic that can vaporize buildings.
-And elfs of foreign gods could create magic tools that are superior to our weaponry.
+And elves of foreign gods could create magic tools that are superior to our weaponry.
 Moreover the main reason are leaders of these four races who are just incredible strong"
 
 "You mean four heroes?
@@ -718,7 +718,7 @@ It looked almost like ancient temple.
 One could only wonder who would made such passage.
 
 "Human work? Or maybe... Only foreign gods I guess.
-I remember that elfs and dwarfs tend to build even greater buildings than we're"
+I remember that elves and dwarfs tend to build even greater buildings than we're"
 
 But this was demons graveyard.
 Foreign gods were sealed in a different place.

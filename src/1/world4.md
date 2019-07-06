@@ -279,7 +279,7 @@ Seeing her standing like that, Kai's gaze falls onto her wings.
 
 _In Rinne case there is matter of wings._
 
-_Assuming that her outfit that is similar to that of elfs will be fine_
+_Assuming that her outfit that is similar to that of elves will be fine_
 
 Rinne's peculiar tenma wings.
 And also her elf-like ears.
@@ -514,7 +514,7 @@ Stark naked Rinne moves to stand in front of him.
 "?"
 
 The girl only absent-mindedly titled her head.
-Being close to humans, and with features of fair skinned elfs and angles, Rinne's skin is more white than that of other humans and is very charming.
+Being close to humans, and with features of fair skinned elves and angles, Rinne's skin is more white than that of other humans and is very charming.
 
 "Ah, yes, Kai, look. My wings are perfectly well hidden, right?"
 
@@ -571,9 +571,9 @@ Sid's sword, or _Code Holder_, as far as Kai could remember only possessed his D
 Manifesting through Drake Nail and being able tu cut Rinne's magic.
 Such extraordinary weapon ca be only made by...
 
-"Then it is either elfs or dwarfs?"
+"Then it is either elves or dwarfs?"
 
-Demi-humans of foreign gods race, such elfs, angles and dwarfs, may posses strong magic power.
+Demi-humans of foreign gods race, such elves, angles and dwarfs, may posses strong magic power.
 But comparing to demons, they are not good at firing magic.
 That's why they create magic tools that hold strong power.
 If Sid's sword is too their work, then it could explain its ability to cut magic, but...

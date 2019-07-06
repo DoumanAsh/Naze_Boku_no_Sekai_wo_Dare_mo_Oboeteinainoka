@@ -10,7 +10,7 @@ And this gigantic sea of trees is current domain of Foreign gods.
 
 "Angels built themself palace above clouds,
 Fairies set up themself a village near beautiful lake,
-Elfs and dwarfs made forest itself their home...
+Elves and dwarfs made forest itself their home...
 Well that's what I heard though."
 
 Said Ashlan, while trying to recall it.
@@ -149,7 +149,7 @@ Sound of footsteps trampling over rubble could be heard.
 Soon female bodyguard Fairin stood besides Kai, with her master behind.
 
 "I heard that Io's capital progressed far more with this [greening].
-And elfs and fairies are already been spotted there."
+And elves and fairies are already been spotted there."
 
 "And here...?"
 
@@ -888,7 +888,7 @@ Rinne was lying on top of some wreckage while basking in sunlight.
 The young girl, who was so comfortably napping, opened her eyes when she heard Kai's voice.
 The only one who would remain calm, when so many soldiers were eagerly stomping the earth, would be Rinne.
 
-"When we're going to fight angels and elfs?"
+"When we're going to fight angels and elves?"
 
 "Once we'll finish preparations.
 It was easy to attack Vanessa since she was staying in capital.
@@ -1256,7 +1256,7 @@ That was staff officer honest opinion.
 But I would like to hear the goal.
 Once we'll arrive to elven forest, what will be our plan?"
 
-"Our goal will be elfs and angels.
+"Our goal will be elves and angels.
 I intend to catch prisoner."
 
 "What!? How you intend to achieve it?"

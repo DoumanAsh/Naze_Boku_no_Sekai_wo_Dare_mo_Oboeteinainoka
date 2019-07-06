@@ -174,7 +174,7 @@ Or at least that's what supposed to be.
 
 Hero [Dark Empress] Vanessa who leads, demon race, wielders of powerful magic.
 
-Hero [Heaven Lord] Alfreya who leads foreign gods, composed of angels and elfs.
+Hero [Heaven Lord] Alfreya who leads foreign gods, composed of angels and elves.
 
 Hero [Spirit Sovereign] Rokugen Kyouko who leads spirits, very peculiar creatures like ghosts.
 

@@ -2,7 +2,7 @@
 
 Io Federation.
 Southern ancient forest, popular name is [Elven Forest].
-Home to foreign gods who consisted of four races: elfs, angels, dwarfs and fairies.
+Home to foreign gods who consisted of four races: elves, angels, dwarfs and fairies.
 But for humans it was for the most part one gigantic unexplored region.
 
 Thanks to Io Resistance persistence, little by little the information on forest became spread.
@@ -27,7 +27,7 @@ Something beyond foreign gods expectations were happening at the same day.
 
 -------------------------------------------------------------------------------
 
-"<span title="Elfs">We</span> are no longer necessary!? Please wait a moment, Alfreya-dono... What is meaning of this...!"
+"<span title="Elves">We</span> are no longer necessary!? Please wait a moment, Alfreya-dono... What is meaning of this...!"
 
 Angel palace.
 It was place deep into ancient forest, which stood on top of ancient tree, that was towering above heavens itself.
@@ -39,7 +39,7 @@ The girl was the one who represented her kind and also belonged to hero rank.
 She beautifully fallen onto pure white floor.
 
 "Our co-existence ends here.
-It is not only <span title="Elfs">you</span>.
+It is not only <span title="Elves">you</span>.
 Dwarfs and fairies too are judged as filthy and inferior races."
 
 Answered angel with six enormous wings.
