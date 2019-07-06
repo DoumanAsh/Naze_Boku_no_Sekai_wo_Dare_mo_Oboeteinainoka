@@ -847,7 +847,7 @@ Someone like that who speak frankly is far easier to deal with than for example 
 
 "I'm village's shrine maiden, Reiren.
 I heard from Qubiley about <span title="I'll be using archaic 2d person pronoun for when Reiren speaks">thou</span>.
-Thee are ones who defeated that demon hero."
+Thou are ones who defeated that demon hero."
 
 The elf looked at Kai's party once more.
 
@@ -890,8 +890,8 @@ in order to appeal directly to Heaven Lord, but..."
 So the idea is while humans invade the palace and rampage there, elven elders could coincidently escape.
 Regardless of whether we'll be successful or not, it will not affect elves."
 
-"That's right, if thee shall be crushed, we shall pretend to know nothing.
-But if, thee are to free our elders, we'll release captured humans."
+"That's right, if thou shall be crushed, we shall pretend to know nothing.
+But if, thou are to free our elders, we'll release captured humans."
 
 "...Fairin."
 
@@ -944,14 +944,14 @@ It is quite arrogant for you to say that your life alone would suffice."
 
 Young girl, who was sitting with her legs crossed, raised her knees.
 
-"So what thee means is that rather than Qubiley, it is me, shrine maiden, who ought to accompany thee.
+"So what thou means is that rather than Qubiley, it is me, shrine maiden, who ought to accompany thee.
 If I lied to thee then my own life shall be in danger."
 
 "If there were no lies in your words, then it should be fine to accept such proposition."
 
 "But is that actually good idea?
 Despite my appearance I'm representative of my race.
-In thee words would be millennium rank.
+In thy words would be millennium rank.
 Do not expect it to be easy to take my life."
 
 The elven girl, who was dressed in seven layered spirit garments, was without doubt far stronger than Qubiley.
@@ -979,7 +979,7 @@ Am I wrong?"
 Shrine maiden raised her voice so that her comrades above would hear.
 It's volume was enough to even shake leafs of ancient tree.
 
-"Fairies and dwarves, thee are yet to make a move.
+"Fairies and dwarves, they are yet to make a move.
 If we are to offend Alfreya-dono then it shall lead us to civil war.
 This plan is but mine alone.
 In worse case my life alone shall be at stake." _TL Note:_ `最悪の事態にはワシの命一つでどうにでもなる` I rephrased last sentence, need to re-think?
@@ -1004,7 +1004,7 @@ If thee shall lose nerve, thee shall not return back alive from this forest" _TL
 "You don't have to say it twice."
 
 "Splendid, then let us discuss small details.
-And... It is annoying, but at least for today and tomorrow thee are my guests.
+And... It is annoying, but at least for today and tomorrow thou are my guests.
 Oi, Silk."
 
 She clicked her fingers.
@@ -1076,14 +1076,14 @@ It is beyond my understanding."
 Said shrine maiden Reiren.
 Then she turned towards soundly asleep Rinne.
 
-"We have no intention of attack thee in the sleep.
+"We have no intention to attack thee in the thy sleep.
 As long as our contract is intact, I have no intention of harming thee."
 
 "...Understood."
 
 He sheathed back his bayonet, which he drew as precaution.
 
-"Jeanne, commander of thee, said that the ones who defeated that Vanessa were thou and this girl.
+"Jeanne, commander of thine, said that the ones who defeated that Vanessa were thee and this girl.
 Therefore I have something to ask."
 
 "How did we beat her?"
@@ -1208,7 +1208,7 @@ Towards small back of young girl, who turned back and started leaving, Kai said:
 
 "One last question."
 
-"What is it? But I'm warning thou. If I hear some rudeness, I shall cut thou tongue."
+"What is it? But I'm warning thou. If I hear some rudeness, I shall cut thee tongue."
 
 "Do you know human by name Sid?"
 
