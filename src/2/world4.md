@@ -522,7 +522,7 @@ Comparing to previous trap, its size was much bigger.
 And complexity of its patterns was on entirely different level.
 As soon as he saw it, Kai remembered something similar from MDA's records.
 
-"[<span title="jp. 審門 I'm not sure how to translate it">Judgement door</span>].
+"[<span title="jp. 審門 I'm not sure how to translate it">Judgement gate</span>].
 It is teleportation device of foreign gods...!"
 
 "I remember it from Urza.

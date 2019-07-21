@@ -16,3 +16,4 @@
     - [World.3 Io Resistance](./2/world3.md)
     - [Intermission Heartless Angel](./2/intermission.md)
     - [World.4 Elven Forest](./2/world4.md)
+    - [World.5 Heavens Purgatory](2/world5.md)

@@ -27,3 +27,4 @@ I usually prefer third person perspective, but sometimes author leaves no choice
 Because of that there might be inconsistency narration text.
 
 But in case you'll need to, you can contact me over my mail [douman@gmx.se](mailto:douman@gmx.se)
+Or my personal discord server: https://discordapp.com/invite/D3NvRwE
