@@ -282,7 +282,7 @@ To that Ashlan only shrugged.
 That's our great leader.
 Young, excellent and as you can see quite popular."
 
-"...<span title="jp. 霊光の騎士 Rather than trying to translate, I decided to use good analogy. Literal translation would Knight of Holy/Spirit Light or something">Paladin</span>" -
+"...<span title="jp. 霊光の騎士 It seems to be derived from her special equipment. 霊光 can be translated as Miracle Light">Light Knight</span>" -
 muttered Saki.
 
 "Symbol of hope that Urza Federation will be liberated.

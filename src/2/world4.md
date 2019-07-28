@@ -787,7 +787,7 @@ And the same tree's branches were combined to create small houses.
 Looking above, they could see altar which was watched by around hundred elves.
 Qubiley turned around.
 
-"Paladin Jeanne, you're wearing elven dress under your armour, right?"
+"Light Knight Jeanne, you're wearing elven dress under your armour, right?"
 
 "...That's right."
 
@@ -861,7 +861,7 @@ Jeanne looked up the trees.
 There were appearance of elves, fairies and dwarves.
 There were several hundreds of them, carefully listening to conversation between <ruby>shrine maiden<rt>Reiren</rt></ruby> and <ruby>knight<rt>Jeanne</rt></ruby>.
 
-"Is it true that elven elders have been captured by Heaven Lord Alfreya?"
+"Is it true that elven elder have been captured by Heaven Lord Alfreya?"
 
 "If it wouldn't be, then we wouldn't even talk about it."
 
@@ -879,7 +879,7 @@ Foreign gods were consisting of four races.
 And everything went wrong once Heaven Lord Alfreya suddenly declared that they are not equals, but beneath angels.
 
 "Of course it was unacceptable.
-After discussing among three races, elven elders alongside representative of each race headed for angel palace,
+After discussing among three races, elven elder alongside representative of each race headed for angel palace,
 in order to appeal directly to Heaven Lord, but..."
 
 "They didn't return."
@@ -887,18 +887,18 @@ in order to appeal directly to Heaven Lord, but..."
 "Correct. However if we are to go to the palace uninvited, then rift with angles shall become unrepairable."
 
 "So that's why we are the one to do it?
-So the idea is while humans invade the palace and rampage there, elven elders could coincidently escape.
+So the idea is while humans invade the palace and rampage there, elven elder could coincidently escape.
 Regardless of whether we'll be successful or not, it will not affect elves."
 
 "That's right, if thou shall be crushed, we shall pretend to know nothing.
-But if, thou are to free our elders, we'll release captured humans."
+But if, thou are to free our elder, we'll release captured humans."
 
 "...Fairin."
 
 Jeanne exchanged glances with female bodyguard nearby.
 
 "Do you think it is feasible?
-For six of us marching into angel's den and freeing captured elders under strict guard."
+For six of us marching into angel's den and freeing captured elder under strict guard."
 
 "Impossible. It is likely we'll be surrounded and completely annihilated."
 
@@ -913,7 +913,7 @@ _It could be a clever scheme to deal with us who invaded their village._
 
 _Using angel forces they could trap us. Which would be a certain way to crush us._
 
-Their explanation about captured elven elders by itself was not enough for a trust.
+Their explanation about captured elven elder by itself was not enough for a trust.
 
 "I'll put my own neck on the line."
 
@@ -972,7 +972,7 @@ This ought to satisfy thee?"
 "Please wait, if something would happen to shrine maiden in such situation..."
 
 "Alfreya-dono has changed already.
-And there are no guarantees that elders will come back to us.
+And there are no guarantees that elder will come back to us.
 If we are to remain put, then it would only assert that elves submitted to angels.
 Am I wrong?"
 
@@ -1118,7 +1118,7 @@ And it's attack gravely wounded Vanessa.
 Moreover it was thanks to Code Holder's effect that he was able to make final push against Vanessa.
 
 "Leaving that aside I want to ask why?
-Why you asked us to help free your elders.
+Why you asked us to help free your elder.
 If we meet angels there, we'll have to break through with force."
 
 In worst case scenario they'll have to fight Angel's leader Alfreya.
@@ -1143,7 +1143,7 @@ So it shall become a fight for survival."
 
 "Thee shall not return alive.
 But so that we clear, I'm at most a guide.
-I have no intention of turning against angels and creating ruckus while saving our elders.
+I have no intention of turning against angels and creating ruckus while saving our elder.
 Everything shall be thou, humans, deeds.
 Understand this much."
 

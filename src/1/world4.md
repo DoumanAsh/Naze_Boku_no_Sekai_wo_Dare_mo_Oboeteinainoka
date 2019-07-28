@@ -1262,7 +1262,7 @@ Ashlan tensed and up and looked at massive double door.
 
 "Yep, yep. But one thing I must warn you about.
 The way you address him.
-Treating Paladin without respect will earn you ire of Federation's people."
+Treating Light Knight without respect will earn you ire of Federation's people."
 
 "...Really?"
 
@@ -1289,7 +1289,7 @@ Six of them wore extravagant coat of arms which would indicate that they belong 
 Thanked them person, who sat furthest away from them.
 Gallant, yet neutral male voice that was close to woman's...
 That's what it looked like to him, as Kai knew her true identity.
-Paladin Jeanne.
+Light Knight Jeanne.
 
 ![Round table](./p159.jpg)
 
@@ -1567,7 +1567,7 @@ In fact your ears was so good, that you had troubles sleeping during rain as it 
 
 She became speechless, with a look of utter amazement.
 She forgot to even ask _How you know..._.
-Paladin swallowed her breath.
+Light Knight swallowed her breath.
 
 "So let me then ask you one thing."
 
@@ -1603,7 +1603,7 @@ The one who was watcher over her(Jeanne), said with indifferent voice.
 "...I see."
 
 Hearing bodyguard voice, leader of table relaxed a bit.
-But soon enough her expression stiffen, and Paladin's voice resonated through room.
+But soon enough her expression stiffen, and Light Knight's voice resonated through room.
 
 "I'm sorry to stop in the middle of our talk, but...
 Corporal Saki, Corporal Ashlan, you're to stay at HQ and contact unit that we're going to dispatch to Neo Vishal.
@@ -2226,11 +2226,11 @@ Leader of Resistance raised her head, and with determination in her eyes gave un
 
 "If we're going to hesitate, Neo Vishal will be attacked.
 I must protect the city at all cost.
-That's what it is to be a _Paladin_."
+That's what it is to be a _Light Knight_."
 
 No longer was he facing the childhood friend, he knew.
 Before Rinne and Kai, Jeanne quickly tied her long hair behind.
 
 "We'll do it! We'll challenge demons hero and take Urza Federation back!"
 
-Paladin Jeanne declared it with string determination in her voice.
+Light Knight Jeanne declared it with string determination in her voice.

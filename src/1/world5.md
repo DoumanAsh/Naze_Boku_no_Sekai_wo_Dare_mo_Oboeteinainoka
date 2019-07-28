@@ -172,7 +172,7 @@ And once opened, there would be government palace.
 [To my comrades who gathered here, I have something to tell.]
 
 All armoured vehicles stopped at once.
-Every soldier could hear Paladin Jeanne voice from their communication devices.
+Every soldier could hear Light Knight Jeanne voice from their communication devices.
 
 [First I'd like to give my thanks for believing and following me here.
 My friends, there is no doubt that your loyalty and courage up until know has inspired a hope into humanity.]
@@ -256,7 +256,7 @@ And Fairin who was peeking out of exit's door in order to check situation.
 
 "As we suspected, demons do not expect us to attack government palace."
 
-Paladin raised her hand.
+Light Knight raised her hand.
 And in that instant everyone around them became quiet.
 The silence gave chills, but afterwards.
 
@@ -497,7 +497,7 @@ No need to worry."
 
 "...I'll be waiting at 10th floor"
 
-Paladin and her bodyguards started to run again.
+Light Knight and her bodyguards started to run again.
 From below could be heard sounds of destruction, but it belonged not only to Fairin and huge demon fight.
 Resistance soldiers on first floor already engaged demons too.
 From seventh to eight, and then to ninth floor.
@@ -529,7 +529,7 @@ With bodyguards, it seemed meaningless for commander to rush ahead.
 
 "Jeanne, stop!"
 
-Paladin, who set her foot into hall, have been struck by lightings from dozens of dark purple magic circles.
+Light Knight, who set her foot into hall, have been struck by lightings from dozens of dark purple magic circles.
 Similarly to Rinne's magic, the hall has been covered in lighting.
 So what would happen to human that would dare to dash in?
 The answer was obvious, and that's why Kai doubted own eyes.
@@ -544,7 +544,7 @@ Commander, clad in knight armour, calmly stood there.
 
 "That's right."
 
-Paladin answered to astonished Rinne, with one eye closed.
+Light Knight answered to astonished Rinne, with one eye closed.
 
 "We took _Holy Light Garments_ from elven village in battle with cryptids.
 It is treasure with unparalleled magic resistance."
@@ -963,7 +963,7 @@ At most it was effect of rubber bullets.
 Since bullets impact was diminished, its body couldn't be even scratched with it.
 To that...
 
-Paladin Jeanne sword, cut off the demon's arm that became like whip.
+Light Knight Jeanne sword, cut off the demon's arm that became like whip.
 
 "**!?**"
 
@@ -998,7 +998,7 @@ It was thin as paper, but these garments were able to erase any demon magic.
 Armour itself served only as male disguise.
 The actual defence was provided silk dress under.
 It was holy light battle attire and greatest treasure to elves, which boasted highest magic resistance.
-It served as embodiment of Paladin(Holy Light Knight) and trump card against demons.
+It served as embodiment of Light Knight(Holy Light Knight) and trump card against demons.
 
 "**Do you want to kill yourself, human!**"
 
@@ -1027,7 +1027,7 @@ A very cold sweat.
 
 "Kill myself, you said?"
 
-Forcing her trembling body Paladin started to stand up.
+Forcing her trembling body Light Knight started to stand up.
 
 "That's right, without such resolve there is no way for us humans to defeat you demons!"
 
@@ -1203,7 +1203,7 @@ Vanessa swapped her crossed legs.
 And as if intentionally she almost completely exposed the area in between, while doing so.
 
 "Ah but I remember there was some human rebels.
-From my subordinates I heard about some Paladin, or something like that.
+From my subordinates I heard about some Light Knight, or something like that.
 And according to them he had elven spirit garments.
 Are you the one?"
 
@@ -1457,7 +1457,7 @@ As if seeing the future, Kai could already see the scenery of fire consuming eve
 Vanessa spread both of her hands and looked up.
 But hearing the single word made Kai to remember the moment when he met Rinne.
 
-"Code holder severs the _Fate_.  Now, clear the world of fate of futile deaths."
+[Code holder severs the _Fate_. Now, cut fate of meaningless deaths out of the world.]
 
 "Code holder!"
 

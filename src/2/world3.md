@@ -191,7 +191,7 @@ While his sunburn face was full of old age wrinkles, his body, under uniform, lo
 Fitting exactly to image of experienced soldier.
 
 "I'm staff officer <span title="jp. ツェフヴェン・バッケンハイ">Tsekhman Bakkhai</span>.
-It is my honour to meet you, Paladin.
+It is my honour to meet you, Light Knight.
 Your fame already reaches far.
 And the news of that demon hero Vanessa defeat brings us a new hope."
 
@@ -350,7 +350,7 @@ With that, he considers lowering himself to a commander for a mere group of sold
 Who achieved a great feat of defeating demon hero and taking back human territories.
 And of course he cannot permit someone who becomes more prominent than him, the emperor."
 
-"That's about it, Paladin Jeanne."
+"That's about it, Light Knight Jeanne."
 
 He turned towards them with serious face.
 
@@ -438,7 +438,7 @@ It was quite snappy.
 Kai's mouth was stiffen at the sight of immediate disregard of Jeanne's words.
 Now he could see what staff officer meant.
 
-"I heard they call you Paladin, right?"
+"I heard they call you Light Knight, right?"
 
 "I'm aware of that."
 
@@ -949,7 +949,7 @@ There was also risk of being captured and imprisoned.
 And receiving torture, disgrace, and even losing life.
 Considering the danger, it was unthinkable for Commander himself to lead scouting party.
 
-"Is this Paladin sane!?"
+"Is this Light Knight sane!?"
 
 He kicked the wall with all of his strength.
 As dull sound resound through the room, Io Resistance's leader [Emperor] Dante bitterly gritted his teeth.
@@ -1044,7 +1044,7 @@ This was...
 
 "Routes through elven forest...?"
 
-"Yes, these are the one Paladin took yesterday.
+"Yes, these are the one Light Knight took yesterday.
 So here comes my plan, which originally might not sit well with Your Majesty though."
 
 Towards her master who looked in doubts at map, his aide only gracefully smiled.
@@ -1082,7 +1082,7 @@ During less than hour meeting, Rinne was able to soundly sleep while standing.
 And as you heard, we're Jeanne's bodyguards, so I think we're going to fight together."
 
 Which meant front lines.
-Paladin Jeanne took a lead of Resistance vanguard.
+Light Knight Jeanne took a lead of Resistance vanguard.
 It was her style to bear full responsibility.
 And her bodyguards were no other than Kai and Rinne.
 

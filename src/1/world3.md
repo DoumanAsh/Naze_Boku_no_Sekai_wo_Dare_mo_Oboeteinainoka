@@ -239,8 +239,7 @@ Aside from _simplified elf bullet_, that was stored in his bayonet, he had no me
 Magic's light filled his vision.
 And in that moment...
 
-"Code holder severs the _Fate_.
-Now, clear the world of fate of futile deaths."
+"Code holder severs the _Fate_. Now, cut fate of meaningless deaths out of the world."
 
 To his surprise, gentle female voice could be heard from the sword.
 

@@ -26,7 +26,7 @@ From the cracks on these roads could be seen previously unknown plants.
 "Even if it is only this ruined landscape, but it is thanks to you two that we're able to walk on surface.
 And again thanks to you Demon Hero has been defeated."
 
-Paladin Jeanne, although wearing her armour, returned back to being simple 17 years old girl.
+Light Knight Jeanne, although wearing her armour, returned back to being simple 17 years old girl.
 While her subordinates were dead asleep from fatigue of last battle, she took along her bodyguard Fairin on walk through capital avenues.
 
 "Still, even though you played crucial role, you never showed yourself in public?"

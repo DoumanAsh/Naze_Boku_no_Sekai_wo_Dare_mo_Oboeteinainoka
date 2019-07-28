@@ -263,7 +263,7 @@ Current Jeanne no longer remembers her childhood friend.
 "Ah, sorry, I hear you."
 
 Hearing his name, made Kai come back to his senses.
-Right now Jeanne is leader of Resistance Army and dress like a man knight who is praised by Urza Federation citizens as [Paladin]
+Right now Jeanne is leader of Resistance Army and dress like a man knight who is praised by Urza Federation citizens as [Light Knight]
 
 _Using tanning make-up, she adds more masculine look._
 
@@ -1063,7 +1063,7 @@ Jeanne, who folded her arms was walking with drawn sword, on torn off road.
 "Only Vanessa alone remained in capital, while three other scattered across Urza Federation border to keep other races in check.
 But, Rinne, Kai..."
 
-Paladin turned her to look at them.
+Light Knight turned her to look at them.
 
 "Just to be sure.
 Demons goal was a cease-fire rather than revenge, right?"
@@ -1128,7 +1128,7 @@ That Demon Queen, is she expecting us to move outside of Urza borders?"
 "Watching us fighting with other races and being crushed by them.
 What a convenient request to make."
 
-Somewhat bitter smile appeared on the face of Paladin.
+Somewhat bitter smile appeared on the face of Light Knight.
 
 "Then, it is unlikely for demons to hinder our expedition?"
 
