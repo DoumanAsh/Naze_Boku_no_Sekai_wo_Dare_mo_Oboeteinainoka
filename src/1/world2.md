@@ -1,20 +1,20 @@
 ![Cover](./midashi03.jpg)
 
-"We're here. This is out town, or I prefer to call it our secret base"
+"We're here. This is out town, or, as I prefer to call it, our secret base."
 
 They've been going through ruined city for quite a while.
-But finally Ashlan stopped car by empty highway
+But finally Ashlan stopped car by empty highway.
 
 _TL Note:_ I don't really get this sentence, especially the _道路の一画で_ so I tried my best here...
 
-...It took us for about 30 minutes?
+_It took us for about 30 minutes?_
 
-...Considering that we are coming from direction of 9th Terminal, and this building.
+_Considering that we are coming from direction of 9th Terminal, and this building._
 
 Twin Tower is towering over surroundings.
-It has 10 floors, and despite its sad state with broken windows, its shape is difficult to forget.
+It has 10 floors, and despite it's sad state with broken windows, it's shape was difficult to forget.
 
-"That seems like 10th Terminal's building...? Then it is 10th Terminal?"
+"That seems like 10th Terminal's building...? Then is it 10th Terminal?"
 
 Urza Federation's 10th Terminal.
 Originally at this place has been <span title="As if there were lots of trees and stuff">lushly green</span> avenue.
@@ -28,18 +28,20 @@ Said Ashlan and Saki who came out from car.
 
 "...Well"
 
-Kai is coming from outskirts of 8Th Terminal, and they should know about.
+Kai was coming from outskirts of 8Th Terminal, and they should know about.
 
 "Well, you should take your time to calm down.
 Considering you were just attacked by demon, I imagine you're still a bit confused.
-Rest a bit and calm yourself"
+Rest a bit and calm yourself."
 
 "That's right! Although you seem to know about us,
-your clothes and gun... are not familiar to me"
+your clothes and gun... are not familiar to me."
 
 Both were looking at Kai's attire and bayonet.
 He was wearing MDA's standard equipment, but Saki and Ashlan had something different.
+
 ...No, at its core, the design of both uniform is the same.
+
 ...There are few different details. While both uniforms had coat of arms on left side, theirs was different from Kai's
 Kai's coat of arm belonged to MDA, but these two had something different.
 
@@ -64,7 +66,7 @@ Passing through crashed entrance, they started to descent to underground.
 "I'm pretty sure you can guess just by looking, but do you think there is any electricity left?"
 
 Ashlan pointed towards dark passage with his <span title="If it sounds weird, blame author :)">chin</span>
-It certainly would be pitch black, if not for sun's light that is coming from broken windows.
+It certainly looked pitch black, if not for sun's light that is coming from broken windows.
 
 "You know, I have a favour to ask..."
 
@@ -73,12 +75,12 @@ Kai swallowed his breath, and said.
 "I don't care if you think I lost my memories, but please tell me what happened?
 Why city is ruins and why demons are roaming this place like they own it?"
 
-That demon said: The best way to order around your slave, is to use their language
+That demon said: The best way to order around your slave, is to use their language.
 
 The situation here is different from what Kai remembers.
 He got approximate picture, but right now he needs to know situation with all possible details.
 
-"It is as you can see"
+"It is as you can see."
 
 As they were going through dim underground passage, Ashlan pointed to a ruined walls of the building.
 
@@ -87,15 +89,15 @@ And especially troublesome are four races: Demons, Cryptids, Foreign gods and sp
 We lost to them in last war.
 It is been 30 years ago by now."
 
-"...Mankind has lost? That's..."
+"...Mankind lost? That's..."
 
-This is opposite to what Kai remembers.
+This was a opposite to what Kai remembers.
 He would love to think it is just a bad dream.
 Just what happened when he was shopping with Jeanne?
 
 "...Please continue. What happened to humans? Are they safe?"
 
-"Escaped and hid whenever they could. Barely made it" - answered instead Saki, who was walking besides him.
+"Escaped and hid whenever they could. Barely made it." - answered instead Saki, who was walking besides him.
 
 "The continent is now dominated by these four races.
 And even now they continue to compete for dominance.
@@ -110,9 +112,9 @@ Third underground floor was in complete silence, and then bright light blinded K
 
 From bright light has been shining, and for a second you could think that you're on surface.
 
-...So it was like that. If demons dominate the surface.
+_So it was like that. If demons dominate the surface._
 
-...Humans can escape underground.
+_Humans can escape underground._
 
 They used this big underground shopping mall to create city.
 There were shops, people houses, and even hotels with restaurants.
@@ -130,7 +132,7 @@ Naming city the Neo Vishal, most likely was in place of conquered city on surfac
 "Since demons took away our city and made their nests on its territory,
 it makes sense for us to hide underground, what do you think?"
 
-"...It is really great, to develop it to such extent"
+"...It is really great, to develop it to such extent."
 
 Hearing how this place was made by people who escaped demons in fear,
 Kai imagined it would look miserable.
@@ -151,7 +153,7 @@ And even if they would, to them there isn't much difference between solar panels
 And with electricity we could restart various production plants that could be used to produce medicine and clothes."
 
 There is electricity and food.
-Despite four races dominating continent, humanity is able to survive.
+Despite four races dominating continent, humanity was able to survive.
 
 "Saki, Ashlan, do you live here?"
 
@@ -171,7 +173,7 @@ Resolving himself, Kai looked at two of them.
 Humans lost a Great War.
 But it brings a question then.
 
-"It might sound... as a dumb question. But I really have no idea what's going on here"
+"It might sound... as a dumb question. But I really have no idea what's going on here."
 
 He then pressed on his question to silent Saki and Ashlan.
 
@@ -183,7 +185,7 @@ He then pressed on his question to silent Saki and Ashlan.
 
 They were bewildered.
 
-"Because... there was no way for us to win" - timidly answered Saki.
+"Because... there was no way for us to win." - timidly answered Saki.
 
 "Neither knife or gun could work against Cryptid's dragons.
 As for spirits, bullets just pass through.
@@ -228,9 +230,9 @@ If there would be such guy, do you think we'd continue living underground?"
 Saki and Ashlan looked at each other.
 It looks like, no one is even aware about him.
 
-...Not like they are not aware about him.
+_Not like they are not aware about him._
 
-...Prophet Sid doesn't even exist in this world!?
+_Prophet Sid doesn't even exist in this world!?_
 
 Little by little, Kai come to realization just how much differs this world from what he remembers.
 
@@ -245,9 +247,9 @@ _What would become of world, if Prophet Sid wouldn't exist?_
 Since there was no one to fight against four heroes, mankind lost.
 That's more or less, the outline of current history.
 
-...Certainly at that time...
+_Certainly at that time_
 
-...When we went shopping with Jeanne, because of that phenomenon, something has changed.
+_When we went shopping with Jeanne, because of that phenomenon, something has changed._
 
 The black hole in sky sucked everything in: clouds, buildings, people, even Jeanne.
 Everything except Kai himself.
@@ -255,21 +257,21 @@ Before he became aware, history of the world itself has changed.
 
 "Oh is that...? Hey, Ashlan"
 
-"Yeah, that's our main force coming. Hour earlier than planned"
+"Yeah, that's our main force coming. Hour earlier than planned."
 
 From within city could be heard cheers.
-There is crowd of people.
+There was crowd of people.
 People, who were on their way, stopped and moved toward them to give cheers too.
 
 "We're with Saki are part of unit that is stationed here.
-These guys belong to main body of Resistance.
+These guys belong to main army of Resistance.
 And once a month they are going around human cities.
-Their main duty, to put it simply, is to find a way to re-take Urza Federation"
+Their main duty, to put it simply, is to find a way to re-take Urza Federation."
 
 The hope to take back surface world.
 But still, even if main body of army comes, would it really cause such cheers?
 
-"It seems they are quite popular"
+"It seems they are quite popular."
 
 "Well, that's because there is also Resistance's commander.
 For people it is like a coming of their saviour from demon's menace.
@@ -296,14 +298,14 @@ With the same coat of arms belonging to Resistance.
 
 "Look there, guy in the middle of crowd.
 You can recognize him by his knight like armour.
-Oh, it seems like he is coming here"
+Oh, it seems like he is coming here."
 
 Saki took a breath and continued with admiration in her voice.
 
 "Jeanne-sama is really so cool!
 Despite being a man, his face is prettier than that of most girls here.
 Of course he would be popular.
-And his feminine name is not so bad"
+And his feminine name is not so bad."
 
 _TL Note:_ Yes you got it right, that's our cute osananajimi :D
 
@@ -328,14 +330,14 @@ His gentle facial features gives off a very feminine aura.
 
 But as for Kai...
 
-...The face looks like it is covered with make-up to make it look more boyish.
+_The face looks like it is covered with make-up to make it look more boyish._
 
-...And this armour, could it be to hide feminine slender figure?
+_And this armour, could it be to hide feminine slender figure?_
 
 Voice too, feels like it is forced.
 And _his?_ silver hair...
-Since it is so long for a man, it is tied behind.
-This was just like in their childhood.
+Since it is quite long for a man, it is tied behind.
+This was just like during their childhood.
 Jeanne used to tie her hair like that since long hair caused troubles moving around and running.
 
 "Jeanne?"
@@ -343,9 +345,9 @@ Jeanne used to tie her hair like that since long hair caused troubles moving aro
 "..."
 
 Silver haired knight turned towards him, standing between Saki and Ashlan.
-Urza Resistance commander titled head as if being puzzled.
+Urza Resistance commander titled head, being puzzled.
 
-"Oh, who could it be? I don't recognize him"
+"Oh, who could it be? I don't recognize him."
 
 "We found him on surface and took under protection.
 His name is Kai.
@@ -377,7 +379,7 @@ Seeing some noise, crowd became agitated.
 And not with sympathy towards him.
 They were giving a weird looks to a person of unknown origin, yet who dared to shout at the knight that was symbol of hope for mankind liberation.
 
-"Forgive me" - said knight by the name Jeanne and shook his head.
+"Forgive me." - said knight by the name Jeanne and shook his head.
 
 Pretending to be a man...
 Kai couldn't believe it.
@@ -392,9 +394,9 @@ Saki, Ashlan, hear him out in my steed"
 
 Surrounded by subordinates, Jeanne turns away from Kai.
 
-...Really?
+_Really?_
 
-...Even Jeanne doesn't remember me?
+_Even Jeanne doesn't remember me?_
 
 He really wished for it to be some kind of joke.
 Just a moments ago they were together.
@@ -404,7 +406,7 @@ Just a moments ago they were together.
 Kai bite his lips and kicked ground.
 He moved towards knight, who turned his back to him, despite being pushed back by knight's subordinates.
 
-"Was your dream to become commander by pretending to be man!?
+"Was your dream to become commander by pretending to be a man!?
 That cannot be right?
 You said yourself, that you want to surpass your father, as his daughter.
 Do you not remember even that?"
@@ -447,8 +449,7 @@ Key were sitting in front of desks full of various documents and maps, that he b
 
 "...How could it happen"
 
-
-Before long, he became too tired to neither sigh or even show a bitter smile. _TL Note:_ weird original line `やがて。溜息とも苦笑ともつかない、疲労まじりの息がこぼれた。`
+Before long, he became too tired to either sigh or even show a bitter smile. _TL Note:_ weird original line `やがて。溜息とも苦笑ともつかない、疲労まじりの息がこぼれた。`
 
 "If this is a _general knowledge_ of this world... Then history of this world is certainly different from what I remember"
 
@@ -463,15 +464,15 @@ And the same could be said about people.
 Among citizens of this city Kai was able to find familiar names of his neighbourhood.
 Even currency that were used here, was the same as the one Kai got from his old world.
 
-...There are some minor differences like Ashlan getting over his motion sickness.
+_There are some minor differences like Ashlan getting over his motion sickness._
 
-...But other than that, people here are more or less how he remembered them.
+_But other than that, people here are more or less how he remembered them._
 
 The only mystery is why both Kai and Prophet Sid have been forgotten.
 Both of them never ever existed in first place.
 As if they are erased from history.
 
-"...Just why"
+"...Just why?"
 
 It is understandable why Prophet Sid would cease to exist from this world.
 After all, human hero is the sole reason mankind won Great War.
@@ -484,7 +485,7 @@ _TL Note:_ I wonder if Kai really would love meet himself in this alternative wo
 Even his friends from MDA are here.
 Yet despite that why he is the only one who has been forgotten?
 And what about his parents or relatives?
-Although he couldn't find their records in Neo Vishal, it is possible that they could escape to a different ward.
+Although he couldn't find their records in Neo Vishal, it is possible that they could escape to a different city.
 So for now he can be certain that only he and Prophet Sid are no longer exist.
 
 "Are there any... clues?
@@ -505,9 +506,9 @@ Urza Federation map.
 There was a photo of black pyramid.
 Demons graveyard.
 
-...Wait a second, could it be I made mistake.
+_Wait a second, could it be I made mistake._
 
-...I have feeling I overlooked something regarding this graveyard.
+_I have feeling I overlooked something regarding this graveyard._
 
 "Right! How I could forget about it!?"
 
@@ -518,7 +519,7 @@ Kai vigorously stood up from his chair.
 After winning Great War, mankind creates graveyards to seal away non-human races.
 But in this world we have been defeated.
 
-"There is no Sid in this world... And despite the fact that we lost, these things still there."
+"There is no Sid in this world... And despite the fact that we lost, these things are still there."
 
 If humans would lose, then no one would create graveyards to seal away non-human races.
 Isn't that a contradiction in this world's history?
@@ -541,23 +542,23 @@ What with this creepy triangular build..
 Guess demons made it, right?
 The guy who made this photo, most likely thought so too."
 
-"...Ok, I see. Thanks"
+"...Ok, I see. Thanks."
 
-As expected, both Saki and Ashlan have no idea about graveyard.
+As expected, both Saki and Ashlan had no idea about graveyard.
 No matter how you look at it, it is strange that graveyard is still standing, despite humans losing Great War.
 It might be worthwhile to investigate it.
 
 "Ashlan, are there any car available?"
 
 "M? Do you want me to take you somewher?
-But you remember that main body of army came yesterday.
-For now both me and Saki got to attend meetings, so we cannot move"
+But you do remember that main body of army came yesterday.
+For now both me and Saki got to attend meetings, so we cannot move out."
 
-"I understand that" - said Kai and extend his hand toward Ashlan.
+"I understand that." - said Kai and extend his hand toward Ashlan.
 
 "I can go on my own, so lend me keys.
 If I'll go at highest speed, I'll be able come back by noon,
-so I want you to lend me Resistance's car"
+so I want you to lend me Resistance's car."
 
 -------------------------------------------------------------------------------
 
@@ -566,10 +567,10 @@ so I want you to lend me Resistance's car"
 Graveyard's desert.
 In previous world, Kai were scouting this place together with Saki and Ashlan for year and a half.
 
-"First time I'm coming here alone"
+"First time I'm coming here alone."
 
 Kai looked up from his armoured car.
-Among winds with sands were standing black pyramid.
+Among winds with sands was standing black pyramid.
 
 "Demons occupied Urza's capital and placed patrols all over the place..."
 
@@ -577,7 +578,7 @@ The demons he encountered at 9th Terminal were part of these patrols.
 And on his way here, he often could catch sight of demons.
 With each encounter he had to take a detour, but finally he was able to arrive here.
 
-"...Let's go"
+"...Let's go."
 
 He finally came to this 200 meters tall building.
 Taking his drake nail, he took off from driver's seat.
@@ -589,11 +590,11 @@ And MDA is the only one who posses key to open it.
 
 _I was able to enter once 10 years ago._
 
-_When Jeanne's father was Urza's HQ chief, he was allowed to come together for a learning experience._
+_When Jeanne's father was Urza's HQ chief, he allowed us to come together for a learning experience._
 
 Afterwards he fell into it.
 
-"No, right now, it doesn't matter"
+"No, right now, it doesn't matter."
 
 He slowly walked over graveyard's perimeter.
 Under blazing sun, he felt pain all over his skin.
@@ -607,10 +608,10 @@ It was a special equipment that served as a barrier to prevent demons escape.
 Slightly greenish patterns were visible on its surface, which was proof of it being functional.
 
 "For demons locked inside to remove this barrier and escape... That's impossible I guess.
-Besides if it would happen, I'd expect both Saki and Ashlan say that demons escaped from graveyard"
+Besides if it would happen, I'd expect both Saki and Ashlan say that demons escaped from graveyard."
 
 It could be that sealing stone was left like that since no one sealed demons inside 100 years ago.
-If you think like that, it sounds logical.
+If you think like that, it was sound.
 
 "First time I'm entering from this entrance..."
 
@@ -618,6 +619,7 @@ He goes inside graveyard.
 Instead of front entrance, now he went through hole in rear that was blocked by sealing stone.
 And it is directly connected to the room where demons were sealed.
 Ten years ago when Kai fell inside at the bottom of it instead.
+
 _TL Note:_ to be honest the whole situation feels weird, because main entrance is kinda on ground level too, not sure how exactly he could even fall inside per se.
 
 _But when I feel inside, I lost my consciousness almost immediately._
@@ -652,9 +654,11 @@ And this hero sword was once again before his eyes.
 It is a sword whose light was on par with surface's sunlight.
 Capable of brightening the night.
 The Sid's sword that continued to shine like a sun.
+
 _TL note:_ I tired my best, but it is hard `それは、地上すべてにふりそそぐ太陽の光を凝縮したかのような剣だった。夜を照らす暁の色調──陽光色に輝き続けるシドの剣。`
 
 It could be said that it looked as if God's halo.
+
 _TL note:_ Another weird thingy `喩えるならば神の後光とも言うべき神聖さ。`
 
 And another wondrous thing about it is that the sword was transparent like a crystal.
@@ -712,13 +716,13 @@ And clouds were not only pure white, he could see all seven colours of rainbow.
 "What is this place... And where is passage, I came from?"
 
 Beneath his feet was infinite road made of stone.
-On its sides were standing stone pillars few dozen meters tall.
+On it's sides were standing stone pillars few dozen meters tall.
 Something ancient were engraved on them.
 It looked almost like ancient temple.
 One could only wonder who would made such passage.
 
 "Human work? Or maybe... Only foreign gods I guess.
-I remember that elves and dwarfs tend to build even greater buildings than we're"
+I remember that elves and dwarfs tend to build even greater buildings than we're."
 
 But this was demons graveyard.
 Foreign gods were sealed in a different place.
@@ -730,13 +734,14 @@ Holding to his Drake Nail, he started moving forward.
 To assert where this place ends, Kai ignored crossroads for now.
 
 How much time passed? One hour? Two hour?
-He kept walking further ahead until his senses haven't become numb
+He kept walking further ahead until his senses haven't become numb.
+
 _TL note:_ I have some doubts about meaning of this last line, I wonder if author meant sense of time?
 
 "That is?"
 
 A towering figure entered his field of view.
-The place there looked like some sort of altar.
+The place looked like some sort of altar.
 He ascended a small staircase with less than 10 steps.
 There before him was three solemn marble pillars, towering over surroundings as if reaching the sky itself.
 And in the center of it was...
@@ -747,6 +752,7 @@ As if crucified, there was a girl bound to pillar.
 She looked as sacrifice in some sort of ritual.
 Both of her hands were tied by chains.
 There was a blond girl that were covered in chains up to her face
+
 _TL Note:_ The way she is described is a bit different from prologue where it was said that even her eyes were covered by chains
 
 "...Is there... someone?"
