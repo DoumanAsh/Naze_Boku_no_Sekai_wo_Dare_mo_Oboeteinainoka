@@ -1,6 +1,6 @@
 ![Cover](./midashi04.jpg)
 
-There was a blond girl, bound to pillar.
+There was a blond girl, bound to a pillar.
 
 "Please... Help..."
 
@@ -19,7 +19,7 @@ Gradients of black and white.
 Demon? Or is she angel specimen from cryptid race?
 _TL Note:_ Wait, angels belong to cryptid race? Might be author weird mistake or maybe Kai is being mistaken?
 
-"Angle or demon..."
+"Angel or demon..."
 
 <span title="Sanskrit: Mara">Tenma</span>?
 There is no such race...
@@ -64,25 +64,25 @@ _But asking me(human) to do that._
 
 There is a chance that he would be attacked once he'll get closer.
 It could be a trap after all.
-But Kai hesitated only few seconds.
+But Kai hesitated only for a few seconds.
 
 "...Got it"
 
-He felt the same pressure as when he faced demon at 9th Terminal.
+He felt the same pressure as when he faced the demon at 9th Terminal.
 But there was no malicious intent from this girl.
 Still, he finally found some clue about this place.
 Maybe she knows something about this place.
 
-"I'm going to help you right now, but don't attack me"
+"I'm going to help you right now, but don't attack me."
 
 Kai looked over at girl and raised his Drake Nail.
-He aimed at chains that bound girl by the name Rinne to pillar.
+He aimed at chains that bound the girl, by the name Rinne, to pillar.
 And swung down with all of his strength.
 
 Sound of metallic clank could be heard.
 As the sound echoed through the place, Kai opened his eyes.
 
-"It is hard!? What kind of durability is that!?"
+"It is this hard!? What kind of durability is that!?"
 
 Despite these chains being no thicker than a finger, under the Drake Nail attack it didn't even had a single crack.
 
@@ -102,10 +102,10 @@ These chains, which looked so thin that even could be torn apart by his own hand
 
 "If it doesn't work, then how I'm supposed to do it..."
 
-In Kai hands was only bayonet.
+In Kai hands was only his bayonet.
 If it is not enough, then how he is going to destroy these chains?
 
-"...Wait a sec. There was voice before."
+"...Wait a sec. There was this voice before."
 
 At that time inside graveyard, aside from Rinne's he heard some other voice of old man.
 That voice said to not let go of sword.
@@ -121,9 +121,11 @@ The bayonet in his right hand, started to shine like a sun.
 "Hot!?... This is!?"
 
 Drake Nail started to emit light.
-Its dark blade become semi-transparent.
+It's dark blade become semi-transparent.
 Both gun parts and guard of his sword too somehow transformed into Sid's sword which he saw in graveyard.
-...As if responding to sword's name, it transformed.
+
+_As if responding to sword's name, it transformed._
+
 And after it settled down.
 In Kai's hand was Shining Sword.
 This semi-transparent blade looked as beautiful as most expensive jewel.
@@ -136,7 +138,7 @@ He swung down Code Holder.
 Sound of metallic clank could be heard.
 With the sound of bells ringing, the fragments of chains fell down.
 Dazzling <span title="I guess it means the line left by swing?">line</span> severed chains that bound girl.
-Winged girl were falling down.
+Winged girl was falling down.
 
 "..."
 
@@ -168,6 +170,7 @@ Her chest, which moves up and down with each breath, is surprisingly stands out 
 Back of her white clothes has curve that shows her wast.
 If it wouldn't be for wings, one would think she is 16 years old young girl.
 To add, she had mysterious charm.
+
 _TL Note:_ I must say, author description of girls is sometimes quite weird in their details.
 
 "Is she a mix between human, foreign gods and demons? No... That's impossible"
@@ -227,7 +230,7 @@ And both elves and angels would have white colour.
 At least that is what been known from Great War records.
 But what is this mix of dozens, no, hundreds of colours on top of each other.
 
-"Lowly demon such as you, is not a worthy enemy for me!"
+"Lowly demon, such as you, is not a worthy enemy for me!"
 
 Light of this magic started fired off.
 
@@ -260,7 +263,7 @@ Any magic that is directly hit, as if it wasn't even there in first place, vanis
 And then the girl who fired the magic:
 "...Impossible."
 
-Rinne was standing in still in shock.
+Rinne was standing still in shock.
 Kai looked over Code Holder in his hand.
 
 "What was that!? Since when you damn demons use such weapons!"
@@ -330,7 +333,7 @@ As if she was thinking so, pupils of her eyes were quickly moving.
 "Allow me to thank you for saving me.
 And I'm sorry for attacking you.
 But about race... I'm not going to talk.
-This is not a pleasant subject for me"
+This is not a pleasant subject for me."
 
 "I understand"
 
@@ -371,7 +374,7 @@ Rinne said something unbelievable.
 
 _Her opponent was demon's hero, wasn't it?_
 
-_Not only fighting against such opponent, but even surviving is quite unbelievable_
+_Not only fighting against such opponent, but even surviving is quite unbelievable._
 
 In addition to being locked up here, she also has wings of demon and angel.
 Considering she doesn't like talking about her race, it is not difficult to imagine that Rinne is quite special existence.
@@ -390,7 +393,7 @@ _TL note:_ Let's be real, that's not actually all that impressive.
 "So you used this strength in your merciless attack against me?"
 
 "Didn't I already apologise for it!?
-Really, it was just misunderstanding"
+Really, it was just misunderstanding."
 
 Both her face and ears became red.
 Her elvish ears bounced sideways, likely because she is upset.
@@ -416,7 +419,7 @@ It is believed that once Prophet Sid thought with this sword in Great War.
 
 _I always wondered how exactly single sword was enough to challenge four heroes..._
 
-_Just now I guess is my answer._
+_Guess I got my answer just now._
 
 Sword's voice said to use it to cut _Fate_.
 And with that he cut down Rinne's magic _fate_ of killing him.
@@ -432,12 +435,11 @@ Out of nowhere dark whirlpool appeared in air.
 And it started to expand.
 From there _something_ appeared.
 
-"<span title="jp. 運命特異体 - not sure how to say it better. Btw it refers to Rinne">Fate idiosyncratic body</span> ■■■ is awakening. Risk to New World is estimated as the highest"
+"<span title="jp. 運命特異体 - not sure how to say it better. Btw it refers to Rinne">Fate idiosyncratic body</span> ■■■ is awakening. Risk to New World is estimated as the highest."
 
 "Initiating sealing process with <span title="jp. 切除器官 but furigana is ラスタライザ">rasterrizer</span>..."
 
-Just like ravaged marionette.
-The girls, whose body is covered with various cracks, appears.
+The girl, whose body is covered with various cracks just like that of ravaged marionette, appears.
 Her appearance resembles that of human.
 But on her right shoulder is tentacle that resembles body of snake.
 And on her back could be seen skeletal wings.
@@ -458,7 +460,7 @@ And then it locked me up here."
 
 "Then it is demon?"
 
-If it is Vanessa's servant then it is without doubts a demon... But is it really so?
+If it is Vanessa's servant then it is without doubts a demon... But was it really so?
 If this monster serves Vanessa, it is strange that there were no information on it in their records.
 
 "Let's run! There!"
@@ -485,6 +487,8 @@ Girl's scream echoed through the place.
 
 "Commencing <span title="jp. 無座標化 but I use its furigana">Zero Code</span>"
 
+_TL Note:_ Check following section with original
+
 Myriads of black whirlpools appear.
 Hundreds, thousands of mini black holes, that were used by monster, appear.
 Instantly they all follow towards Rinne.
@@ -505,7 +509,7 @@ _In this ridiculous world..._
 
 _Right before my eyes is real monster... But so what!_
 
-There he has hero's sword.
+There he had hero's sword.
 And Kai himself desperately trained for the day when he'll have to face powerful non-human enemy.
 Regardless of what kind of enemy it is, he only have to fight.
 It is only natural yet he...
@@ -585,7 +589,7 @@ Kai put his hands on clinging girl's back.
 Couldn't blame her for it.
 Being attacked by such monster.
 If by any chance he would be few seconds late, Kai couldn't imagine what would happen.
-Being shaken by it is only natural.
+Being shaken by it was only natural.
 
 "Let's rest for now. Until you'll calm down."
 
@@ -625,7 +629,7 @@ _TL Note:_ A bit weird one `この少女の苦しみが痛いほどに伝わっ�
 
 _What a <span title="jp.皮肉 pretty sure it is not correct word to use here, but author used it">irony</span>?_
 
-_I'm not the only one_
+_I'm not the only one._
 
 Being cast aside by the whole world.
 Who would expect to meet someone, who shared this pain, here.
@@ -652,7 +656,7 @@ Hearing that, Rinne, who were embracing him, looked up.
 
 "There are no people I know.
 I've been left alone.
-So it is kinda  similar."
+So it is kinda similar."
 
 His childhood friend Jeanne, his colleagues Saki and Ashlan.
 All have forgotten about him.
@@ -759,10 +763,10 @@ And then suddenly meeting human who calls her a _comrade_.
 It wouldn't be surprising being confused with just that.
 
 "I'm relieved.
-Just as you've been saved Rinne,
+Just as you've been saved, Rinne,
 your embrace saved me too."
 
-_TL Note:_ This is weird, I'm not sure about its correctness `ほっとしたってこと。さっきリンネが、助かったって俺に抱きついてきたのと同じ`.
+_TL Note:_ This is weird, I'm not sure about it's correctness `ほっとしたってこと。さっきリンネが、助かったって俺に抱きついてきたのと同じ`.
 
 "...Is that so?"
 
