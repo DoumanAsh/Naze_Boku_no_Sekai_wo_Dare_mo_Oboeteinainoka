@@ -48,7 +48,7 @@ In that moment, a drop of tear flow from her eyes.
 
 "Please?"
 
-"...Help me. Remove these chain...."
+"...Help me. Remove these chains...."
 
 Before she could finish the sentence, the girl lost her consciousness and her head hang down
 
@@ -56,8 +56,8 @@ _Help you?_
 
 A non-human who is asking a human for help?
 In known to him history, humans had to fight a great war against other races, including angels and demons.
-So to say, there is bad blood.
-It is highly likely that the instance she is freed, her attitude will change and attack.
+So to say, there was a bad blood.
+It is highly likely that the instance she is freed, her attitude will change and she is going to attack him.
 If he is to consider his safety, she should be left alone until her true nature can be ascertain.
 That is only natural, but...
 
@@ -66,7 +66,7 @@ That is only natural, but...
 The young man grasped a sword tightly in his right hand and approached the girl.
 Even if it is a trap.
 
-_Being alone in this world for so much is my limit_
+_I'm at my limit being alone in this world for so long_
 
 Approaching the crucified girl, he carefully aimed, to make sure to not harm her, and swung down his sword.
 With that, the winged girl has been freed.
