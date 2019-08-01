@@ -607,10 +607,10 @@ Her fingers were burnt, and from her hands blood was flowing.
 "It is painful..."
 
 With a grimace full of pain, winged girl looked up.
-There on building were calmly standing three figures.
+Three figures were standing there on build.
 She clenched her teeth.
 
-"Oh, what a scare face. But now you can partly understand it."
+"Oh, what a scary face. But now you can partly understand it."
 
 ![Demon girl](./Hinemarill_manga.jpg)
 
