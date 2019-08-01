@@ -191,7 +191,7 @@ But...
 "No... Wait, what is this smell."
 
 Kai and elf voices overlapped.
-As strong wind, which was raging at top, changed its direction towards back of the palace, both of them felt bitter smell.
+As strong wind, which was raging at top, changed it's direction towards back of the palace, both of them felt bitter smell.
 It was smell of something burning.
 And even though it was hampered by the strong wind, they could hear some noise in direction of the palace.
 
@@ -767,11 +767,9 @@ and capable of easily cutting in halves the elf's whole body.
 Reiren was yet to notice it's approach as it was coming from her blind spot above.
 And what's more, it's speed was just too fast.
 
-_TL Note:_ Need to check these two lines: `彼女が走ってからの発動じゃない。この場に俺たちが来た時から用意してたのか`
+_It wasn't casted whe she started to run._
 
-_As Reiren is running she cannot cast_
-
-_Was it prepared for us since we came here?_
+_Was it prepared at the time when we came here?_
 
 There was no intention to discuss things any longer.
 Heaven lord Alfreya had no intent other than killing them here.
