@@ -49,7 +49,6 @@ Shadow covered them from above.
 He thought it was shadow of ancient tree, but he didn't expect it to be a shadow of angel palace.
 
 "It is not the only floating fortress of angels.
-However only this one is called angel palace.
 Because Alfreya-dono is residing there...
 Now, here it is."
 
@@ -693,97 +692,97 @@ And then towards light magic formation...
 Angel palace.
 Highest floor - Sky hall [Azure True Heaven] _TL Note:_ `蒼き真天` another weird one, need to think of a proper name?
 
-There were infinite blue skies, without ceiling or walls.
-With only solid floor under their foot.
-Other than that it was place fully exposed to skies.
-It was on the same latitude as clouds and there was no obstacles to winds that washed away enormous clouds.
-Their hair and clothes were fluttering by the wind.
-It felt as if they were standing on top of many thousands meters tall enormous spire, or maybe they were [in the middle of skies]
+There were the infinite blue skies, without ceiling or walls. 
+Other than the solid floor under their feet it was a place fully exposed to the skies.
+
+It was on the same lattitude as the enormous clouds and there were no obstacles to the wind that washed them away. 
+Their hair and clothes were fluttering in the wind. 
+It felt as if they were standing on top of some many thousands meters tall enormous spire, or maybe they were [in the middle of skies].
 And then...
 
-"Heavens are overflown with anger."
+"The heavens are overflown with anger."
 
-There was standing arrogant looking angel with six wings, right in the center of an altar.
-It was tall figure of floating angel.
-With similar to Vicious flax hair and awe-inspiring look.
-Amber eyes reflected strong will and wisdom, and angel's body was well built.
-There was standing foreign god's hero, wearing blue heavenly garments in addition to white one.
+An arrogant looking angel with six wings was standing there right in the center of an altar. 
+It was the awe-inspiring tall figure of a floating angel, with flax hair similar to Vicious'. 
 
-"You who are wingless, you who crawl the ground, you who looks up at the heaven.
-Why cannot you obey?
-Like healing rain falling onto ground from the skies.
-Like apple falling down from air.
-Everything given to earth is blessing from heaven.
+His amber eyes reflected strong will and wisdom, and his body was well built. The Foreign God's hero, wearing blue heavenly garments in addition to white one, was standing there.
+
+"You who are wingless, you who crawl the ground, you who look up at the heaven. 
+Why cannot you obey? 
+Like the healing rains falling onto the ground from the skies,
+or apples falling down from trees,
+everything given to the earth is a blessing from the heavens. 
 Why cannot you comprehend this providence?"
 
-Said angel who was looking up at the skies.
+Said the angel who was looking up at the skies.
 
 "This is why <span title="Angels">we</span> are standing at the top."
 
-Behind was a cross, stuck to the floor.
-These enormous things, that could fit entire human, would be rather coffins in the shape of the cross.
-In this red semi-transparent cross...
-Inside could be seen locked up struggling figure.
+Behind him was a cross, stuck to the floor. 
+This enormous thing that could fit an entire human, was rather a coffin in the shape of a cross. 
+The cross was red and semi-transparent...
+Locked up inside was a struggling figure.
 
 "Now we shall commence execution."
 
-Without any emotion.
-Just like child observing insects under his foot, angel proclaimed emotionlessly.
+Without any emotion. 
+Just like a child observing insects under his foot, the angel proclaimed dispassionately.
 
-"Execution of elven elder." _TL Note:_ I'm a bit unsure if author meant that Alfreya didn't finish the sentence here... `エルフの大長老の処刑をな`
+"That is, execution of the elven elder."
 
-The elf, locked in the cross shaped coffins, was alive.
-And was trying to yell something, yet coffins let no sound to escape.
+The elf, locked in the cross-shaped coffin, was still alive. 
+He was trying to yell something, but the coffin let no sound escape.
 
 "Alfreya....!"
 
-Elven girl roared.
+The elven girl roared.
 
-"Scum like you has no qualifications to lead foreign gods.
-Neither elves, dwarves, fairies or angles.
-And now I'll be the one to deliver thy ending."
+"Scum like thee has no qualification to lead the foreign gods. 
+Neither elves, dwarves, fairies or angles. 
+And now I shall be the one to deliver thy ending."
 
 "W-wait, Reiren!"
 
 "Don't stop me, human!"
 
-Elf shook off Kai's attempt to restrain her and stomped the floor.
-Without doubt her eyes reflected a fury.
-Heaven Lord Alfreya tightly grasped something in hand.
-And then this angel said, with cruel smile:
+Reiren shook off Kai's attempt to restrain her and stomped on the floor. 
+But without a doubt, her eyes were dyed by a deep fury.
+Heaven Lord Alfreya tightly grasped something in his hand. 
+And then with a cruel smile, the angel said:
 
 "Let's deliver <span title="jp. 聖義 can be read as 正義 but considering first kanji and overall atmosphere this seems to be suitable.">heaven's justice</span>."
 
-In angel's hands was brass coloured baton.
-Which then angel pointed at approaching elven girl.
+In the angel's hands was a brass coloured baton,
+which he then pointed at the approaching elven girl.
 <span title="jp. マニフィカトMusic related stuff, google it">Magnificat</span> [O, Sacred star, descend upon the earth]
 
-Large and sinister sword flew in.
-It was only a sword, named [Sacred star], and it's blade was bright red.
-Having neither guard or hilt, it was sword consisting of only blazingly red blade.
-It was magical sword with blade's length over 10 meters,
-and capable of easily cutting in halves the elf's whole body.
+A large and sinister sword flew in. 
+It was a sword named [Sacred star], and its blade was bright red. 
+Having neither guard or hilt, it was a sword consisting of only a blazingly red blade.
+It was a magical sword with a blade length of over 10 meters, 
+and was capable of easily cutting the elf's whole body into halves.
 
-Reiren was yet to notice it's approach as it was coming from her blind spot above.
-And what's more, it's speed was just too fast.
+Reiren was yet to notice its approach as it was coming from her blind spot above her head. 
+And what's more, its speed was just too fast.
 
 _It wasn't casted whe she started to run._
 
 _Was it prepared at the time when we came here?_
 
-There was no intention to discuss things any longer.
+There was no room for further discussion.
 Heaven lord Alfreya had no intent other than killing them here.
 
 "Reiren!"
 
 "...!"
 
-Feeling that something is wrong Jeanne's voice she looked up in the sky, but it was already late.
-Blazing sword was already before elven girl eyes.
+Feeling that something was wrong from Jeanne's voice, she looked up at the sky. It was already late. 
+
+The blazing sword was already before elven girl's eyes.
 
 _Can I cut it!?_
 
-_It cut through demons magic. But there is yet example of it working against angels magic tools._
+_It cut through the demon's magic. But there is yet an example of it working against angel's magic tools._
 
 This hesitation of his stopped just about when it was becoming too late.
 There was no time to waver.
@@ -791,69 +790,69 @@ There was no time to waver.
 "Code Holder!"
 
 Sid's sword.
-As Kai called the name, his Drake Nail transformed into divine sword in the blink of eye.
-Black steeled bayonet became a transparent sword of sunlight colour.
+As Kai called the name, his Drake Nail transformed into the divine sword in the blink of eye.
+The black steeled bayonet became a transparent sword of sunlight colour.
 
-"Down, Reiren!"
+"Get down, Reiren!"
 
 [Code holder severs the _Fate_. Now, cut fate of meaningless deaths out of the world.]
 
-Aiming at flying in red sword, he raised overhead his sword of sunlight colour.
-Both clashed.
-At the moment when blazingly red and sunlight touched each other, red sword broke together with big explosion.
-It became myriad of small fires and disappeared.
+Aiming at the crashing in red sword, he raised his sword of sunlight colour overhead. 
+They clashed. 
+At the moment when blazingly red and sunlight touched each other, the red sword broke together with a big explosion.
+It dissipated into myriad of small flames and disappeared.
 
 "...Wha!?"
 
-Elven shrine maiden turned back.
-And she wasn't alone.
-Even elven elder, who was sealed inside the cross, became astonished.
-They wondered: did human's sword destroyed Heaven Lord Alfreya's magic tool?
-It wasn't a regular sword, yet it wasn't elven magic weapon too, they understood it at first glance.
-Then their question was: just what is this sword in Kai's hands?
+The elven shrine maiden turned back in shock. 
+And she wasn't alone. 
+Even the elven elder, who was sealed inside the cross, became astonished.
+They wondered: did a human's sword destroy Heaven Lord Alfreya's magic tool? 
+It wasn't a regular sword, yet it wasn't elven magic weapon either, they understood it at first glance. 
+Then their question was: just what is this sword in Kai's hands? 
 Moreover...
 
-"Human protected elf?"
+"A human covered for an elf?"
 
-Floating angel squinted at him.
+The floating angel squinted at him.
 
-"Protecting the elf. Such act is beyond my comprehension.
+"Protecting the elf. Such an act is beyond my comprehension. 
 Are you really human?
-Or could it be a elf that pretends to be one?"
+Or could it be that you're an elf that pretends to be one?"
 
-"No, I'm full fledged human."
+"No, I'm a full fledged human."
 
-He stepped forward in front of dumbfounded Reiren.
+He stepped forward in front of the dumbfounded Reiren.
 
-"There is nothing strange about it.
-If by tiny chance elves will hold grudge for her loss, it makes sense for us to help her."
+"There is nothing strange about it. 
+If by some tiny chance elves hold a grudge against us for her loss, it makes sense to help her."
 
-"It is just not balancing out. Own life against life of this insignificant elf."
+"It is just not balancing out. Your own life against the life of this insignificant elf."
 
 The angel stared at Reiren with disdain.
 
 "There might be some secret to your sword, but
-a tiny misstep is going to turn you together with that elf into dust.
+a tiny misstep is going to turn you together with that elf into dust. 
 Staking own life is just not worth it."
 
-"I'm confident enough, well not absolutely though."
+"I'm confident enough, well, not absolutely though."
 
 They exchanged gazes.
-Standing right in front of descending angel, he meet angel's judgemental gaze.
+Standing right in front of the descending angel, he meet his judgemental gaze.
 
-"This is a sword that could stand against demon hero's magic.
+"This is a sword that could stand against the demon hero's magic.
 Challenging you with it is not impossible."
 
 "..."
 
-While remaining silent, angel's shoulders jolted a bit.
+While remaining silent, Alfreya's shoulders jolted a bit.
 
-"I heard such rumours.
-About demon hero being defeated by human.
-I surely thought it is something impossible, but...
-Huh, I see, I see it now!"
+"I heard such rumours...
+About the demon hero being defeated by a human. 
+I surely thought it was impossible, but... 
+Huh, I see, I see it now"
 
-Angel shook his shoulders greatly.
+The angel shook his shoulders greatly.
 
 "That filthy demon, just how foolish she was to be defeated by a mere human."
 
@@ -862,42 +861,40 @@ Angel shook his shoulders greatly.
 "What? Are you conceited this much?"
 
 "That's not what I meant.
-What I want to say: are really in position to call Vanessa [fool] yourself?"
+What I want to say is, are you really in position to call Vanessa a [fool] yourself?"
 
-Demon hero Vanessa is humans enemy.
-The one who destroyed capital and enslaved humans.
-She hold no remorse towards wronged humans.
+Demon hero Vanessa is the enemy of humans. 
+The one who destroyed their capital and enslaved humans. 
+She also held no remorse towards wronged humans. 
 But...
 
-"At least she didn't start punishing own subordinates."
+"At least she didn't start punishing her own subordinates."
 
 "This is what I have decided."
 
 The angel sneered.
 
-"I'm standing highest in heavens.
-Most noble and brightest star.
-I have not even a tiny bit of desire to call these, who goes against me, my subordinates."
+"I'm standing at the highest in heavens: the most noble and brightest star. 
+I have not even a tiny bit of desire to call these, who go against me, my subordinates."
 
 _TL Note:_ damn this guy ego
 
-"This what we call narrow minded.
+"This what we call narrow mindedness.
 Cancel disguise - [Moon Bow]"
 
-From Jeanne's sword appeared light.
-As the light wrapped sword completely, the sword, that knight hold, started to transform.
-Becoming extremely beautiful bow with many gems engraved in.
+A light appeared from Jeanne's sword. 
+As it wrapped her sword completely, it started to transform into an extremely beautiful bow with many gems engraved in it.
 
 "Pierce."
 
-Bow <span title="I think bows normally have no sound when you fire it though">creaked</span>, letting arrow loose and distorting air itself.
+The bow <span title="I think bows normally have no sound when you fire it though">creaked</span>, letting an arrow loose and distorting air itself.
 
-"Is this a elven bow!?"
+"Is this an elven bow!?"
 
 Heaven Lord Alfreya turned mid-air.
-The moment when arrow pierced through wind and passed through, angel's left eye became slightly <span title="I'm not sure what is good term, basically it is from pain.">strained</span>.
+The moment when arrow pierced through the wind, the angel's left eye became a little <span title="I'm not sure what is good term, basically it is from pain.">strained</span>.
 His left cheek was slightly cut.
-Jeanne's arrow was able to penetrate angel's powerful divine protection.
+Jeanne's arrow was able to penetrate the angel's powerful divine protection.
 
 "Human, do you understand what it means to use elven magic weapon with your body?"
 
@@ -907,15 +904,15 @@ The knight answered as if it was something obvious, but...
 
 "...Jeanne!?"
 
-Kai heard about elven magic equipment.
-The origin of her Light Knight title comes from spirit garments and elven bow.
-And in special case even people without magic power are able to use it.
+Kai had heard about her elven magic equipment. 
+The origin of her Light Knight title are her spirit garments and elven bow.
+And in special cases even people without magic power are able to use it.
 
-_But using own life?_
+_But using one's own life?_
 
-_I haven't hear a single of word about it._
+_He hadn't heard a single word about it._
 
-So it made him wonder if it means that the price was her own body for using elven magic tools.
+So it made him wonder if it means that the price for using elven magic tools was her own body.
 
 "Jeanne, that..."
 
@@ -924,121 +921,121 @@ So it made him wonder if it means that the price was her own body for using elve
 Said the Knight while preparing the second arrow.
 
 "And I'm also curious about your sword.
-We win and after that we can properly talk!"
+We win and after that we will properly talk!"
 
 "Disrespectful people."
 
-Angel's six wings became opened.
-And then swung down silver, like fluttering wings.
+The angel spread his six wings.
+And then covered in the hundreds of fluttering feathers, he swung down his silver rod.
 
 Magnificat [Heavenly Zhen Lighting]
 
-Lighting surged.
-In the blink of eye, in front of Kai's eyes light went through Jeanne's whole body.
+Lighting surged. 
+In the blink of an eye, in front of Kai's eyes light went through Jeanne's whole body.
 
 "...Miracle Light!"
 
-While being struck by lighting, the knight shouts out with hoarse voice.
-Under her armour Jeanne's thin silk dress lightens up and weakens continuous lighting attack.
+While being struck by lighting, the knight shouted out with hoarse voice.
+Under her armour Jeanne's thin silk dress lightened up and weakened the continuous lighting attack.
 
-"These are elven spirit garments.
-With extraordinary resistance against magic.
-Angel should know know it well."
+"These are elven spirit garments, 
+and have extraordinary resistance against magic. 
+You should know that pretty well."
 
-Lighting disappearing.
+The lighting disappeared.
 Although she fell to her knees, the knight gritted her teeth to keep her consciousness.
 
-"Foreign gods hero uses magic as source of power.
-And it makes this spirit garments the counter measure against angels." _TL Note:_ I simplified second sentence a bit `それを法具によって発動している以上、この霊装が天使への反撃手段になる` Might need re-work
+"Foreign gods hero uses magic as source of power. 
+As long as you're using a magic tool, this spirit garment makes for the best counter measure against angels."
 
 Since this equipment belongs to foreign gods, angels took no measures against it.
-As originally it was impossible to think of angels and elves competing against each other.
+Originally it was impossible to think of angels and elves fighting against each other.
 
-"Weakling, to whom you say it."
+"Weakling, to whom are you saying it."
 
 Angel started humming.
 
 Magnificat [Look, at the glorious light of judgement]
 
-Lighting attack, that was directly coming from skies, towards multiple fluttering feathers in air, and in that moment they split into hundreds light threads.
+Lighting attack, that was directly coming from the skies, touched the multiple fluttering feathers in air, and in that moment they split into hundreds of light threads.
 
 "Wha!?"
 
-No longer it was single lighting attack, now it became a rain of lighting.
-Blue sky became dyed in white/yellow colours of lighting.
-Soon after, lighting strikes down onto the ground, but now it downpours from every direction.
-One after another lighting strikes at Jeanne's spirit garments.
-More and more lightings were increasing in their number, and aimed towards Jeanne, who was in front of Kai.
-And it was coming from all directions.
-This number wasn't something that you could cut with Code Holder.
+It was no longer a single lighting attack, now it became a rain of lighting. 
+The blue sky became dyed in white/yellow colours of lighting. 
+Soon after, lighting stroke down onto the ground, but now it downpoured from every direction. 
+One after another lighting striked at Jeanne's spirit garments.
+The lighting strikes were increasing in number, and were aimed at Jeanne, who was in front of Kai.
+They were coming from all directions.
+This number wasn't something that one could cut with Code Holder.
 
 "Seven ladies defence formation! Three ladies, come fourth!" _TL Note:_ she says`姫` so even if it sounds weird, I cannot help.
 
-Her seventh layered spirit garments fluttered like mantle.
-Elven girl who took off her seven layered garments, threw three of of these layers.
-In air these silk layers started to emit faint light and loosen up,
-and its threads formed a light pattern in the middle of empty space.
+Her seven layered spirit garments fluttered like a mantle. 
+The elven girl who took off her seven layered garments, threw three of those layers. 
+In midair these silk layers started to emit a faint light and loosen up, 
+and their threads formed a light pattern in the middle of empty space.
 
-It was wide range protective barrier.
+It was a wide range protective barrier.
 
-This circle became like parasol above Kai, Jeanne and Reiren heads.
-And started to reflect back downpouring lighting
+This circle became like a parasol above Kai, Jeanne and Reiren's heads
+and started to reflect back the downpouring lighting.
 
 "...Reiren?"
 
 "I'm but returning a favour.
-Sorry, but I have no plans to be in debt to humans."
+Sorry, but I have no plans to be in debt of humans."
 
 The girl, who now had her white shoulders exposed, turned away in embarrassment.
 
-"Still Heaven lord Alfreya magic tools power has no bounds.
-Even I have a little confidence to defend against all of it.
+"Still the power of Heaven lord Alfreya's magic tools have no bounds. 
+Even I do not have the confidence to defend against all of it. 
 Therefore to overcome this..."
 
 "How about making it four on one?"
 
 "That's right. For a human thee got good head on shoulders. Come along!"
 
-Elven girl started to run.
-Not delaying for a second, Kai run straight ahead through this windy place almost immediately.
-Towards the bloody cross.
-If they could release elven elder from these sealing coffins, this battle would become four against one.
+The elven girl started to run.
+Not delaying for a second, Kai ran straight ahead through this windy place almost immediately.
+Towards the blood red cross.
+If they could release the elven elder from the sealing coffin, this battle would become four against one.
 
 "Is that so?"
 
-But Heaven Lord's expression didn't change at all.
-In angel's hand appeared a trident.
-Angel threw it at elven girl, with it's silver three silver points aiming at her.
+But Heaven Lord's expression didn't change at all. 
+In his hands appeared a trident.
+He then threw it at the elven girl, with its three silver prongs aiming at her.
 
 "Tch, the same thing!"
 
 Reiren used one silk layer of her garments to defend.
-But, silver trident easily pierced through it's defences.
+But, the silver trident easily pierced through its defences.
 
 "...Impossible!?"
 
-Elven shrine maiden Reiren spirit garments [Seven ladies defensive formation].
-Being knitted from ancient tree leafs and Reiren own hair, the magic tool was able to defend against up to seventh offensive magic attacks by absorbing it.
-It could defend even against demons hell fire, and yet it is been torn apart...
+Elven shrine maiden Reiren's spirit garments [Seven ladies defensive formation].
+Being knitted from ancient tree leafs and Reiren's own hair, the magic tool was able to defend against up to seventh offensive magic attacks by absorbing it. 
+It could defend even against demon's hellfire, and yet it just got torn apart...
 
 "Spear of God's wrath.
-This is a magic tool was created in order to pierce through magical defence."
+This magic tool was created in order to pierce through magical defence."
 
-As the trident was about to touch elf's chest...
+As the trident was about to touch the elf's chest...
 
 "You underestimate humans too much, angel!"
 
-Kai's Code Holder knocked down at it's point.
-And the trident rolled down with strong noise.
-It was now a Jeanne's turn to fire at the angel with her arrow.
-And as the angel fended off it with the wing, Reiren finally reached the cross.
-Execution casket.
-Inside the semi-transparent and reddish coffin was struggling elf.
+Kai's Code Holder mowed down horizontally at the trident,
+and it rolled down making a strong noise. 
+It was now Jeanne's turn to fire at the angel with her arrow. 
+And as the angel fended off it with his wing, Reiren finally reached the cross. 
+Execution casket. 
+Inside the semi-transparent and reddish coffin was a struggling elf.
 
 "Just wait, elder!"
 
-Reiren gripped in her hand knife, which shined with colour of full moon.
-It was likely a similar to spear of God's wrath magic tool that could break through magic defence.
+Reiren gripped in her hand a knife, which shined in the colour of full moon. 
+It was likely a similar to the 「Spear of God's wrath」 magic tool that could break through magic defence.
 Holding it tightly with both hands, she swung it down.
 
 It broke.
@@ -1048,25 +1045,25 @@ These were fragments of the broken knife.
 "...Impossible..."
 
 She was certain that it would be able to pierce through.
-With a mix of despair and disbelief, she looked down at knife remnants in her hands.
+With a mix of despair and disbelief, she looked down at the remnants of the knife in her hands.
 
-"This our greatest treasure! Why..."
+"This was our greatest treasure! Why..."
 
-"The gap between mine and your powers is like between heaven and earth."
+"The gap between our powers is like that of heaven and earth."
 
 "Alfreya..."
 
-Elven miko turned over while clenching her teeth.
+The elven shrine maiden turned over while clenching her teeth.
 
-"What is meaning of this! This is but too weird.
-Thee, just where did thee acquired this power!"
+"What is the meaning of this! This is but too weird.
+Thee, just where did thee acquire this power!"
 
 "Reiren? What do you mean?"
 
-"I mean captured elder.
+"I mean, he captured our elder.
 In human terms he would be a [hero rank] and the elder's power is close to that of Alfreya.
 So I mean the power that would be required to lock up the elder is enormous.
-In all actually this casket would deplete a lot of this bastard magic power."
+In all actuality this casket would deplete a lot of this bastard's magic power."
 
 Otherwise it would be destroyed.
 So sealing elven elder should consume a lot of magic power, and yet heaven lord continued to fight.
@@ -1075,13 +1072,13 @@ So sealing elven elder should consume a lot of magic power, and yet heaven lord 
 
 Blazingly red sword, brass baton.
 Silver rod that could summon lighting rain.
-Besides that, in addition to silver trident that could destroy magic defence, Alfreya wore a heaven garments.
+Besides that, in addition to the silver trident that could destroy magic defence, Alfreya himself wore heavenly garments.
 
-_Certainly it seems absurd._
+_Certainly, it seems absurd._
 
-_Just how much magic power this angel holds to carry one like that_
+_Just how much magic power this angel holds to carry on like that_
 
-For foreign gods the organ, that produces magic power, is not capable of invoking magic directly.
+For foreign gods the organ that produces magic power, is not capable of invoking magic directly.
 Therefore they have to make magic tools to serve as their weapons, that are capable of creating pseudo magic spells.
 
 "The efficiency of magic tools is hardly high.
@@ -1089,34 +1086,34 @@ Thou magic powers might be great, but definitely not to this extent!"
 
 "..."
 
-"Answer me, Alfreya. Is this power the reason for thou sudden change!?"
+"Answer me, Alfreya. Is this power the reason behind thou sudden change!?"
 
 "Sudden change?"
 
-Floating in air angel started to descend.
-As the angel's feet touched the floor, all of the sudden there appeared strange black hole.
+The angel who was floating in the air started to descend.
+As his feet touched the floor, all of a sudden a strange black hole appeared there.
 
 "It is different.
-My newly acquired subordinates brought me a great joy in replacing you."
+My newly acquired subordinates brought me great joy in replacing you."
 
 Something started to crawl out from within the black hole.
-It was bizarre and alien creature that was mix of different races.
-Seeing it's appearance Jeanne swallowed her breath, while Reiren took step back.
+It was a bizarre and alien creature that was mix of different races.
+Seeing its appearance Jeanne swallowed her breath, while Reiren took a step back.
 
 "!?"
 
 "Wh-what is this monster...!"
 
-The one who appeared was the girl whose body was partly destroyed.
-While her appearance was that of human girl, on her right shoulder was tentacle which looked like snake's body.
+The one who appeared was a girl whose body was partly destroyed.
+While her appearance was that of human girl, on her right shoulder was tentacle which looked like a snake's body.
 On it's back was skeleton wings and it had two heads.
 This was...
 
-"That rasterrizer!?"
+"The rasterrizer from that time!?"
 
 _TL Note:_ If I remember correctly even Vanessa mentioned Alfreya name when she got attacked by that thing, so not sure if Kai has to be surprised here.
 
-He remembered encounter at the graveyard.
+He remembered their encounter at the graveyard.
 It was the same specimen as the one who appeared in the place where Rinne had been sealed.
 One could only wonder if this thing chased them up to Io.
 
@@ -1125,8 +1122,8 @@ One could only wonder if this thing chased them up to Io.
 "Jeanne, you must not approach it. The same goes for you, Reiren!"
 
 Once again his whole body was filled with dread.
-It was giving off a abnormal sense of discomfort.
-Regardless how much he would see it, the creature was bizarre.
+It was giving off an abnormal sense of discomfort.
+Regardless of how many times he had seen it, the creature was bizarre.
 
 "Oh-ho? Human, you know my subordinate?"
 
@@ -1140,62 +1137,62 @@ Towards angel who wore a smile of derision.
 
 "Are you the one who behind all of it? The world reincarnation."
 
-Once the rasterrizer appeared to keep Vanessa, who started to regain her memories, shut.
-And surely since this monster is subordinate, that angel must know something about world reincarnation that Vanessa tried to speak of.
-Or maybe that angel was indeed the ringleader, whom Vanessa mentioned, behind it.
+Once the rasterrizer appeared to keep Vanessa, who started to regain her memories, silent.
+And surely since this monster is his subordinate, that angel must know something about world reincarnation that Vanessa tried to speak of.
+Or maybe that angel was indeed the ringleader behind it, whom Vanessa mentioned about.
 
 "What are you talking about?"
 
-In response foreign gods hero returned a dubious look.
+In response the foreign gods hero returned a dubious look.
 
 "This is my new power. And world reincarnation? What is it?"
 
-"!? I was wrong, you're not ringleader behind it, and know nothing about world reincarnation!?
+"!? I was wrong, you're not the ringleader behind it, and know nothing about world reincarnation!? 
 Then what about Sid?
 Do you know nothing about prophet Sid!?"
 
 "...Sid."
 
-Angel furrowed his brows.
-Then as the angel put the hand on forehead, his expression seemed distressed now.
+The angel furrowed his brows.
+As he put his hand on his forehead, his expression became distressed.
 
-"Sid... Prophet Sid. I guided."
+"Sid... Prophet Sid. I guided him."
 
 "Eh!?"
 
 "...I... Guided, that human."
 
-Suddenly, angel fell to knees.
-In that instant, Kai witnessed something even more strange.
+Suddenly, the angel fell to his knees.
+In that instant, Kai witnessed something even more bizarre.
 
 <br>
 <br>
 
 Angel palace, corridor with 18 pillars.
 It was filled with light.
-This was the passage among blue skies that led to heaven lord Alfreya.
+This was the passage among the blue skies that led to heaven lord Alfreya.
 There single pillar has collapsed.
 
 Roaring sound and dust filled the place.
-Rinne's magic completely destroyed the pillar from it's center to ground and sky.
-Under the dancing clouds of dust, enormous pile of rubble arose.
+Rinne's magic completely destroyed the pillar from its center to ground and sky.
+Under the dancing clouds of dust, an enormous pile of rubble arose.
 
 "...How terrific, it even broke through my divine protection?"
 
-From under hundred kilograms pile of rubble crept up figure of giant angel.
+From under the hundred kilograms pile of rubble crept up the figure of a giant angel.
 His height was about three meters.
-And each of his bulky hands were thick as Rinne herself and swelling with muscles.
+Each of his bulky hands were thick as Rinne herself and swelling with muscles.
 That was archangel Raphael.
 The angel who introduced himself as such was checking his heavenly garments,
-his whole body had marks of great battle.
+his whole body had marks of a great battle.
 
-"What a unexpected menace you are.
+"What an unexpected menace you are.
 Trespasser, who are you?"
 
 "..."
 
 On Rinne's back were tenma wings.
-Archangel already understood that Rinne body hold factors of multiple races, including foreign gods and demons.
+The archangel already understood that Rinne's body held factors of multiple races, including foreign gods and demons.
 
 "Archangel Raphael."
 
@@ -1210,81 +1207,81 @@ Rinne said, as if spitting.
 "Fumu?"
 
 "I hate this composure of yours.
-All angels are the same with your condescending attitude."
+All angels are the same with their condescending attitudes."
 
-Angels defensive powers.
+Angels' defensive powers.
 In contrast to demons who specialized in releasing their magic outside, angels, who were unable to do so, used their magic power to strengthen their bodies.
-Was it like steel?
-No, it even more powerful.
-Neither Rinne's dragon strength or magic could fatally wound him.
+Was it like steel? 
+No, it was even more powerful.
+Neither Rinne's dragon strength nor magic could fatally wound him.
 Moreover the only wound, that she was able to inflict, was already healing.
 
-"Like moving fortress."
+"Like a moving fortress."
 
-As a guarding to this sacred pillared road, he was close aide of Heaven lord Alfreya.
-If Rinne who was aware of this angel presence, wouldn't be left behind, Kai and others wouldn't be able to take even a single step.
-Which would give enough time to complete elven elder's execution.
+As a guardian of this sacred pillared road, he was a close aide of Heaven lord Alfreya.
+If Rinne who was aware of this angel's presence, didn't stay behind, Kai and the others wouldn't have been able to take even a single step.
+Which would have given enough time to complete the elven elder's execution.
 
 "And what about you? Is this really all of your strength?"
 
 "..."
 
-"Nature of your chaotic magic power.
-Then these wings.
-I also feel strength of cryptids in you.
+"The nature of your mysterious chaotic magic power.
+Then those wings.
+I also feel the strength of cryptids in you.
 Just what is your true nature and the source of your power?"
 
-"I don't know and don't even want to know."
+"I don't know, and don't even want to know."
 
 She continued living without knowing it.
 As long as Kai was with her, she didn't even think about wanting more.
-Once she'd discover... Instinctively she knew that her life will become more difficult.
+Once she discovered... Instinctively she knew that her life would become more difficult.
 
 "Mysterious creature, you shall not pass here."
 
-Archangel Raphael war hammer.
-Using enormous amount of magic power, it's single attack could create invisible wave of destruction that could turn opponents into dust without even touching them.
+Archangel Raphael's war hammer.
+Using an enormous amount of magic power, its single attack could create an invisible wave of destruction that could turn opponents into dust without even touching them.
 
 "...I hate it."
 
 The pillar behind Rinne.
-Aftermath of previous attack completely crushed it as if it was just paper thin.
-Despite her talk, this scenery gave her sense of crisis.
+The aftermath of the previous attack completely crushed it as if it was just paper thin.
+Despite her talk, this scenery gave her a sense of crisis.
 
-"Since you're strong I no longer going to go easy on you.
-And I don't care what will happen after that."
+"Since you're strong I'm no longer going to go easy on you.
+And I don't care what happens afterwards."
 
 "Come already, chaotic one." _TL Note:_ I'm still unsure how to translate `混沌種`
 
-Angel raised his hammer overhead.
+The angel raised his hammer overhead.
 Rinne started creating god-like lightings from her tenma wings.
 
 Magic tool VS magic spell.
-Against magic tool, which was casting pure white light, multi-coloured chaotic lighting attacks roared within this big passage.
+Against magic tool, which was casting pure white light, multi-coloured chaotic lightning attacks roared within this big passage.
 And then they clashed.
-Both Archangel Raphael and Rinned bounced off into air and crashed into pillars.
+Both Archangel Raphael and Rinne bounced off into air and crashed into pillars.
 
 "...kh, it hurts..."
 
-While staggering, winged girl stood up.
+While staggering, the winged girl stood up.
 
-"How dare you to do it my wings."
+"How dare you to do this to my wings."
 
-Receiving attack from the war hammer, she wasn't able to walk straight, she frowned as she was staggering along the wall.
+Receiving the attack from the war hammer, she wasn't able to walk straight. She frowned as she was staggering along the wall.
 
 "Liar."
 
 Said with anger Rinne, who glanced at giant who fell down on his back.
 
-"Even if you pretend to fell down, I'm not going to fall for that."
+"Even if you pretend to fall down, I'm not going to get deceived by that."
 
 "...Why you think so?"
 
 "If you're so beaten that you cannot move, then how come you didn't let go of your war hammer?"
 
-Rinne glared at angel's magic tool.
-Even now archangel Raphael was still tightly holding his war hammer.
-He still had strength to spare, so it wasn't clear when he would be rising.
+Rinne glared at the angel's magic tool.
+Even now archangel Raphael was tightly holding his war hammer.
+He still had the strength to spare, so it wasn't clear when he would be rising.
 
 "Sadly, I have no idea what you're complaining about.
 You, trespasser, defeated me.
@@ -1304,135 +1301,135 @@ There is also Reiren, so if you join forces, it might be possible for you to fre
 
 "Who knows... This is not something I can tell you by myself."
 
-Archangel Raphael real goal was a [test].
-Whether there is someone who holds strength to go against angel's leader who suddenly changed.
-And then Rinne displayed even more than required strength.
+Archangel Raphael's real goal was a [test].
+Whether there is someone who holds the strength to go against the angel's leader who had suddenly changed.
+And then Rinne displayed even more than the required strength.
 
 "Alfreya-sama... changed. Everything started at that time..."
 
 "That time?"
 
-"I mean that monster called rasterrizer.
-As soon as this monster appeared, our leader suddenly changed.
-And so we, battle angles, had to put up with it.
-Waiting for opportunity."
+"I'm referring to that monster called rasterrizer.
+As soon as it appeared, our leader suddenly changed.
+And so we, battle angles, had to put up with it,
+waiting for an opportunity."
 
 -------------------------------------------------------------------------------
 
-"Elven elder is <span title="angels">our</span> old friend.
+"The elven elder is <span title="angels">our</span> old friend.
 Why would we wish for his execution?"
 
 As a sign of truce, she dropped down her battle axe.
-Battle angle Vicious who sat down along the wall had look, full of sorrow.
+Battle angel Vicious who sat down along the wall had look, full of sorrow.
 
-"Human, this much is enough I'll pretend to not notice you, so go ahead." _TL Note:_ I'm not sure how to understand `この場限りにおいて`
+"Human, this much is enough. I'll pretend to not notice you, so go ahead." _TL Note:_ I'm not sure how to understand `この場限りにおいて`
 
 "You're quite careful."
 
 Fairin didn't relax her stance.
 
-"I fought against invaders and suffered humiliated defeat...
+"I fought against invaders and suffered  a humiliating defeat...
 While on surface I might be loyal to my master, behind the scenes I was trying to devise plans to rescue our allied races."
 
 Still Vicious wasn't planning to withdraw so easily.
 At least once she seriously attacked intruders.
-Fairin whole body felt it as there were countless small wounds from battle axe winds.
+Fairin's whole body felt it as there were countless small wounds from the winds of the battle axe.
 
 The same could be said about Saki and Ashlan.
-Both were trying to hide themself in corridor, and were still out of breath from difficult battle.
+They were trying to hide themself in the corridor, and were still out of breath from the difficult battle.
 They were nervously staring at the angel.
 
-"Really!? You are not planning to attack us as soon as we'll turn our backs to you!?"
+"Really!? You are not planning to attack us as soon as we turn our backs to you!?"
 
 "..."
 
-Angel <span title="I'm not sure how exactly sensei means it.">finger traced</span> her battle axe
-Then big weapon disappeared right in front of Ashlan.
+The angel's <span title="I'm not sure how exactly sensei means it.">fingers traced</span> her battle axe.
+The big weapon disappeared right in front of Ashlan.
 She completely let go of her weapon.
-With this, her ability for surprise attack disappeared too.
+With this, her ability for a surprise attack disappeared too.
 
 "I-it is ok now, right? Ashlan?"
 
 "Y-yeah, what should we do now, Fairin-sama?"
 
-"I'm bodyguard of Jeanne-sama."
+"I'm the bodyguard of Jeanne-sama."
 
-They could only go ahead, while she was preparing to answer, she didn't took her eyes from angel.
+They could only go ahead, while she was preparing to answer, she didn't take her eyes off the angel.
 
 "I fought and lost. That is all."
 
 "Which means you let us go.
-And what if as result, foreign gods hero will be defeated?"
+And what if as result, the foreign gods hero gets defeated?"
 
 "..."
 
 At Fairin's provocation, angels eyes were lighted with anger.
 But that was only for a moment.
 
-"I doubt it is possible for humans.
-...But, even if by some miracle it will happen, it will result of Alfreya-sama own will."
+"I doubt it is possible for humans...
+But, even if by some miracle it does happen, it will be result of Alfreya-sama's own will."
 
-For foreign gods alliance to collapse due to internal strife would be the worst possible scenario.
-Comparing to that, even if Heaven lord Alfreya would fall, there will be hope to revive their races alliance.
-This was bitter result of discussion among close aides of Alfreya.
+For the foreign gods alliance to collapse due to internal strife would be the worst possible scenario.
+Compared to that, even if Heaven lord Alfreya would fall, there will be hope to revive their races' alliance.
+This was the bitter result of discussion among close aides of Alfreya.
 
 "Our plan doesn't change.
-Saving elven elder is our utmost priority.
-It will be up to Jeanne-sama how battle with Alfreya will end.
+Saving the elven elder is our utmost priority.
+It will be up to Jeanne-sama how the battle with Alfreya will end.
 Let's go."
 
 Giving a signal with eyes to both of her subordinates she started walking.
 Just before that.
 
-Angel's cries of agony, shook the angel palace.
+An angel's cries of agony, shook the whole palace.
 
 "Alfreya-sama!?... N...no... What was that... This magic power...!"
 
 Vicious, who was sitting down, jumped.
-Beautiful female angel fixed her gaze above at the ceiling with fear in her eyes.
+The beautiful female angel fixed her gaze above at the ceiling with fear in her eyes.
 
 -------------------------------------------------------------------------------
 
 [Unforeseen state of 'shock' is detected in foreign gods hero.
-Estimated to be effect of prohibited word 'Sid'.]
+Estimated to be the effect of prohibited word 'Sid'.]
 
 [Executing 'Zero Code']
 
 [Hero Alfreya 'code' to be erased from the world.]
 
-Angel screamed...
-It was scream due to attack of the creature that angel called [subordinate].
+The angel screamed...
+It was a scream due to attack of the creature that he called his [subordinate].
 
 "...You bastard!?"
 
-At roots of their wings was organ that produced magic power.
-And the monster crushed this vital place of angel with it's hand, forcing him down onto floor.
-Even though heaven lord Alfreya boasted great physical strength, rasterrizer monster was able to overpower the angel.
+At the roots of their wings was the organ that produced magic power.
+And the monster crushed this vital organ of the angel with it's hand, forcing him down onto the floor.
+Even though heaven lord Alfreya boasted great physical strength, the rasterrizer monster was able to overpower the angel.
 
 "Are you rebelling against me!?'
 
-"Wha-what is meaning of this? That thing is not the ally?"
+"Wha-what is meaning of this? Is that thing not his ally?"
 
-Both elf and knight were petrified.
-And then before Kai, who was holding Code Holder, the angel became surrounded by black whirlpool.
-As it appeared, at once it started to close in on angel.
+Both the elf and the knight were petrified.
+And then in front of Kai, who was holding the Code Holder, the angel became surrounded by a black whirlpool.
+As it appeared, at once it started to close in on the angel.
 
 [Zero code]
 
 Erasure.
-As soon as black whirlpool touched part of the body, it started to disappear as letters disappearing by eraser.
+As soon as the black whirlpool touched a part of his body, it started to disappear as if letters disappearing by eraser.
 
 "...!?"
 
-Under great pains angel was agonizing.
-Being completely defenceless and unable to attack back until the very end when angel's body completely disappeared.
+Under great pains the angel was agonizing.
+Being completely defenceless and unable to attack back until the very end when his body completely disappeared.
 It took only several seconds to end.
-And then with falling down noise, only angel's magic tool which was in his grasp until the very end, remained rolling on the floor.
+And then with a falling down noise, only the angel's magic tool which was in his grasp until the very end, remained rolling on the floor.
 
 "...I...What am I looking at right now?"
 
-Elf's whole body was shaking.
-Jeanne, who was nearby, and elder, still sealed in coffin, both became pale.
+The elf's whole body was shaking.
+Jeanne, who was nearby, and the elder, still sealed in his coffin, both became pale.
 Among them only Kai alone kept looking at this tragedy while clenching his teeth.
 
 _It is the same._
@@ -1442,87 +1439,87 @@ _The same as with Vanessa._
 The only difference was the result.
 Even while being taken by surprise, Vanessa was able to strike back.
 But Alfreya was different.
-Thinking of rasterrizer as the subordinate, angel response was too late.
-And due to that lost any chance to attack back.
+Thinking of the rasterrizer as his subordinate, the angel's response was too late.
+And due to that he lost any chance of counterattack.
 
 [...]
 
-At last the ragged doll figure sinks into bottomless, like a swamp, black hole and disappears.
-As foreign gods hero disappeared.
+At last the ragged doll figure sinked into the black hole like a bottomless swamp, and disappeared.
+Same as how the foreign gods hero had disappeared.
 
 _Alfreya vanished._
 
 _This... can it be even called our victory?"_
 
-Looking at results, they at least were able to survive.
-While it was certainty bizarre event, their first priority was freeing elven elder.
+Looking at the results, they at least were able to survive.
+While it was certainty a bizarre event, their first priority was freeing the elven elder.
 That was what everyone thought.
 
 -------------------------------------------------------------------------------
 
 Splash...
 
-From within black hole in the floor, something started crawling out.
+From within the black hole in the floor, something started crawling out.
 
 [...]
 
-There was six winged angel.
-While his heaven garments were somewhat rugged, most likely due to Zero Code, the unchanged figure of great hero started to crawl out of the black hole.
+There was a six winged angel.
+While his heavenly garments were somewhat rugged, most likely due to Zero Code, the unchanged figure of great hero started to crawl out of the black hole.
 
 "Survived!?"
 
 "Wait, Reiren!"
 
-Angel looked strange.
-Jeanne, who noticed strangeness in foreign god hero, stopped elf.
+The angel looked strange.
+Jeanne, who noticed strangeness in the foreign god's hero, stopped elf.
 
 "Look at his wings.
 It looks to me like the feathers are falling over..."
 
-Little by little, feathers of all six wings completely fell off.
+Little by little, feathers of all his six wings completely fell off.
 Even when spreading the wings, feathers would remain in the air, it was obvious proof that something was off.
-Its lost all strength.
-Just like leafs falling from the tree.
-Just like muscles <span title="jp. こそげ落ちるI'm not sure how sensei means it...">disappears</span> from the strong body.
-Wings, which lost all feathers, which were beautifully white faded...
+It had lost all strength.
+Just like leaves falling off a tree.
+Just like muscles disappearing from a strong body.
+The wings, which lost all feathers, which were beautifully white, faded...
 
 [I'm Alfreya reincarnation. Now resuming the role of foreign gods hero.]
 
-In angel's eyes there was no longer any light of conciseness.
-Wings, from which came out feathers, became a mere shadow of itself.
+In the angel's eyes there was no longer any light of consciousness.
+The wings, from which the feathers fell off, became a mere shadow of itself.
 Dark circles appeared under his eyes, his cheeks lost some weight and even his steps weekend.
 Despite that...
 
 "What is this? This bizarre magic power...!"
 
-At root of his wings was light, even more brilliant than before.
-It's god-like shine made even Kai to be awed in fear.
+At the root of his wings was light, even more brilliant than before.
+Its god-like shine made even Kai to be awed in fear.
 
-[I'm Alfreya. It's avatar.]
+[I'm Alfreya. Its avatar.]
 
-Angel who lost his wings continued the monologue.
-It wasn't Heaven Lord.
-Now there was no trace of angel left, instead it was appearance of fallen angel.
+The angel who lost his wings continued his monologue.
+It wasn't the Heaven Lord.
+Now there was no trace of the angel left, instead it was appearance of a fallen angel.
 
 [Only I alone am sacred.
 Only I belong to heavens.]
 
 Fallen angel Alfreya.
 It no longer could be described by a mere change to a character.
-It was complete overwrite.
+It was a complete overwrite.
 After witnessing this transformation, that was Kai's only impression.
 
-_Is this a same phenomena as the one that over-written the world?_
+_Is this the same phenomena as the one that over-written the world?_
 
 _The hero has been over-written. Is that it!?_
 
 [Now I see.]
 
 He spread both of his hands and looked up.
-He used his hands as if to replace no longer moving wings.
+He used his hands as if to replace the no longer moving wings.
 
 [Everything except me.
 First I ought burn down all foreign gods who pollute the earth.]
 
-It was declaration of war.
-It was announcement of complete [genocide] of all foreign gods from fallen angel Alfreya.
+It was the declaration of war.
+It was the announcement of complete [genocide] of all foreign gods from the fallen angel Alfreya.
