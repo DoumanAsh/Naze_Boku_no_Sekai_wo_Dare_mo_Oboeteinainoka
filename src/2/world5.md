@@ -707,7 +707,7 @@ It was the awe-inspiring tall figure of a floating angel, with flax hair similar
 
 His amber eyes reflected strong will and wisdom, and his body was well built. The Foreign God's hero, wearing blue heavenly garments in addition to white one, was standing there.
 
-"You who are wingless, you who crawl the ground, you who looks up at the heaven. 
+"You who are wingless, you who crawl the ground, you who look up at the heaven. 
 Why cannot you obey? 
 Like the healing rains falling onto the ground from the skies,
 or apples falling down from trees,
@@ -737,7 +737,7 @@ He was trying to yell something, but the coffin let no sound escape.
 
 The elven girl roared.
 
-"Scum like you has no qualification to lead the foreign gods. 
+"Scum like thee has no qualification to lead the foreign gods. 
 Neither elves, dwarves, fairies or angles. 
 And now I shall be the one to deliver thy ending."
 
@@ -769,14 +769,14 @@ _It wasn't casted whe she started to run._
 
 _Was it prepared at the time when we came here?_
 
-Heaven lord Alfreya had no intentions for further discussions. 
-His only objective was killing them here.
+There was no room for further discussion.
+Heaven lord Alfreya had no intent other than killing them here.
 
 "Reiren!"
 
 "...!"
 
-Feeling that something was wrong from Jeanne's voice, she looked up in the sky. It was already late. 
+Feeling that something was wrong from Jeanne's voice, she looked up at the sky. It was already late. 
 
 The blazing sword was already before elven girl's eyes.
 
