@@ -694,7 +694,8 @@ Angel palace.
 Highest floor - Sky hall [Azure True Heaven] _TL Note:_ `蒼き真天` another weird one, need to think of a proper name?
 
 There were the infinite blue skies, without ceiling or walls. 
-Other than the solid floor under their feet it was a place fully exposed to the skies. 
+Other than the solid floor under their feet it was a place fully exposed to the skies.
+
 It was on the same lattitude as the enormous clouds and there were no obstacles to the wind that washed them away. 
 Their hair and clothes were fluttering in the wind. 
 It felt as if they were standing on top of some many thousands meters tall enormous spire, or maybe they were [in the middle of skies].
@@ -704,6 +705,7 @@ And then...
 
 An arrogant looking angel with six wings was standing there right in the center of an altar. 
 It was the awe-inspiring tall figure of a floating angel, with flax hair similar to Vicious'. 
+
 His amber eyes reflected strong will and wisdom, and his body was well built. The Foreign God's hero, wearing blue heavenly garments in addition to white one, was standing there.
 
 "You who are wingless, you who crawl the ground, you who looks up at the heaven. 
@@ -751,7 +753,8 @@ And then with a cruel smile, he said:
 
 "Let's deliver <span title="jp. 聖義 can be read as 正義 but considering first kanji and overall atmosphere this seems to be suitable.">heaven's justice</span>."
 
-In the angel's hands was a brass coloured baton, which he then pointed at the approaching elven girl.
+In the angel's hands was a brass coloured baton,
+which he then pointed at the approaching elven girl.
 <span title="jp. マニフィカトMusic related stuff, google it">Magnificat</span> [O, Sacred star, descend upon the earth]
 
 A large and sinister sword flew in. 
@@ -774,7 +777,9 @@ His only objective was killing them here.
 
 "...!"
 
-Feeling that something is wrong from Jeanne's voice, she looked up in the sky. It was already late. The blazing sword was already before elven girl's eyes.
+Feeling that something was wrong from Jeanne's voice, she looked up in the sky. It was already late. 
+
+The blazing sword was already before elven girl's eyes.
 
 _Can I cut it!?_
 
@@ -848,7 +853,7 @@ About the demon hero being defeated by a human.
 I surely thought it was impossible, but... 
 Huh, I see, I see it now"
 
-Angel shook his shoulders greatly.
+The angel shook his shoulders greatly.
 
 "That filthy demon, just how foolish she was to be defeated by a mere human."
 
