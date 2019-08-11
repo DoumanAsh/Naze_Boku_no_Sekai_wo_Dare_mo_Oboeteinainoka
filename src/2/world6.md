@@ -6,7 +6,7 @@ Io's largest unexplored region - The Angel Palace.
 In [Azure True Heaven] hall, on highest floor of it, was standing altar exposed to winds without walls and ceiling.
 In the place where in every direction you could see only blue skies...
 
-"Stop already, Alfreya!"
+"Stop already, Alfreyja!"
 
 The elven girl screamed with hoarse voice.
 
@@ -34,13 +34,13 @@ The floor exploded.
 The white metal floor broke into small pieces, and started falling down towards sea of ancient trees far down below.
 If Jeanne would be late even for an instant, then elven girl would fall down together with these debris.
 
-"...Alfreya. What is meaning of this?"
+"...Alfreyja. What is meaning of this?"
 
 Instead of elven girl, who was kneeling on the floor, Kai cleared his throat and mustered words:
 
 "You, what was just now?"
 
-[...] _TL Note_: _This_ Alfreya dialogues are in brackets.
+[...] _TL Note_: _This_ Alfreyja dialogues are in brackets.
 
 "Where is your magic tool?
 Why angel like you can use magic without magic tool!?"
@@ -56,7 +56,7 @@ The trident, capable of destroying barriers.
 
 All of them were rolling down on the floor.
 Moreover, once attacked by Zero Code, his heavenly garments were torn into pieces.
-And then the fallen angel Alfreya only swung down his left hand towards the Reiren.
+And then the fallen angel Alfreyja only swung down his left hand towards the Reiren.
 
 [This is your answer.]
 
@@ -67,7 +67,7 @@ The angel crushed rolling under his foot baton.
 
 "No!" - the shrine maiden shouted.
 
-"Awaken from your delusion, Alfreya!
+"Awaken from your delusion, Alfreyja!
 Look at thy wings on the back.
 Don't thee see that thy wings are crying?!"
 
@@ -172,7 +172,7 @@ Both girls, unable to muster a single word, were facing down the floor.
 
 [Disappear.]
 
-"Alfreya!"
+"Alfreyja!"
 
 Towards the angel with dark bloody flamberge, that wounded both girls, Kai sent vertical slash with his own sword.
 
@@ -202,7 +202,7 @@ So it made him wonder how these spirit garments would get torn.
 
 Fallen Angel raised his sword high above his head.
 Lord Sword Divine Gift - Reiren protective garment functioned as usual, and was able to receive up to 7 blades.
-And each of the these 7 times Alfreya's sword was destroyed.
+And each of the these 7 times Alfreyja's sword was destroyed.
 And then each time he restored the sword.
 The eighth sword pierced through spirit garment.
 
@@ -222,7 +222,7 @@ It happened hundreds times.
 Fallen angel was overflowing with magic power -
 It was possible feat for him, precisely because he was burning through all of this magic power, to extent that both his body and six wings withered.
 
-"Alfreya."
+"Alfreyja."
 
 Aiming at fallen angel he stomped the floor.
 Kai pressed on the angel who recklessly overpowered himself beyond any limit.
@@ -239,7 +239,7 @@ Right now you are not real you, but simple avatar!"
 They were locked into sword fight.
 Both swords were flashing at enormous speed.
 It continued for five minutes.
-While Alfreya had advantage of height and strength, Kai was able to push back against him with his leg work.
+While Alfreyja had advantage of height and strength, Kai was able to push back against him with his leg work.
 
 [...Are you on equals with me? Just how much strength in your thin arms.]
 
@@ -308,7 +308,7 @@ For that reason he hold a pride for not being defeated against four races heroes
 
 Fallen angel expression was strained.
 Having superior sword skills and Code Holder, capable of cutting off magic, Kai hold advantage.
-As he was burning through surplus of magic power, prolonged battle left Alfreya at disadvantage.
+As he was burning through surplus of magic power, prolonged battle left Alfreyja at disadvantage.
 
 [It seems it is time to deliver judgement for this life.]
 
@@ -361,7 +361,7 @@ She was being held by battle angel Vicious, who attacked them down below.
 
 "Isn't it a bit late to come back to thy senses?"
 
-"...Alfreya-sama."
+"...Alfreyja-sama."
 
 Subordinate angel saw it.
 How her master changed.
@@ -389,8 +389,8 @@ And knight fired the arrow with all of her strength.
 
 [Tch.]
 
-Fallen angel Alfreya was taken aback.
-If it would be heaven lord Alfreya's barrier at full power, then attack just now wouldn't be able to injure him.
+Fallen angel Alfreyja was taken aback.
+If it would be heaven lord Alfreyja's barrier at full power, then attack just now wouldn't be able to injure him.
 This was his price for devoting himself fully to magic attack power.
 
 [Think I'm done, inferior species!?]
@@ -406,7 +406,7 @@ No, he completely forgot about it.
 "Yeah, it is the end."
 
 There was human very close to him.
-Alfreya was trampling over Code Holder under his feet.
+Alfreyja was trampling over Code Holder under his feet.
 And in Kai's hand was no sword, not to mention gun or knife.
 
 [You...?]
@@ -415,14 +415,14 @@ Worthless human.
 
 _TL Note:_ This part is kinda weird `それでも瞬時に油断をぬぐい去ったのは`, I wish author would choose some better wording, because it is just misleading in it's sense.
 
-Nevertheless, likely due to angel Alfreya natural strength, he completely disregarded any notion of carefulness.
+Nevertheless, likely due to angel Alfreyja natural strength, he completely disregarded any notion of carefulness.
 He smashed in full force, with his mysterious sword.
 
 [You do not know when to give up. Just disappear!]
 
 Fallen angel sword slashed air.
 Kai bended over on the floor and narrowly avoided bloody dark blade.
-Like he has been told, right in front of fallen angel Alfreya eyes, it looked like Kai completely disappeared.
+Like he has been told, right in front of fallen angel Alfreyja eyes, it looked like Kai completely disappeared.
 
 "Fallen angel. Now I'll turn your world upside down" _TL Note:_ Needs more accurate translation `お前の天地をひっくり返す`
 
@@ -435,7 +435,7 @@ Empty handed.
 In true world, as Kai belonged to MDA, it was his duty to work on learning presumably anti four races martial arts.
 
 He made a kick attack.
-Putting all strength into the kick and using <span title="It is karate technique I think">edge of the foot</span>, he knocked both legs of fallen angel Alfreya at the same time.
+Putting all strength into the kick and using <span title="It is karate technique I think">edge of the foot</span>, he knocked both legs of fallen angel Alfreyja at the same time.
 Tripping, angel fell down hitting the back of his head.
 Of course with such sturdy body he had no injuries.
 But experiencing something like that for the first time was shocking for angel.
@@ -443,7 +443,7 @@ But experiencing something like that for the first time was shocking for angel.
 It was unthinkable for him.
 He couldn't comprehend just what caused him to fall down.
 
-_Normally such technique wouldn't work against heaven lord Alfreya._
+_Normally such technique wouldn't work against heaven lord Alfreyja._
 
 _After all angels have wings._
 
@@ -454,11 +454,11 @@ For angel who lost his wings in exchange for power, he lost skies.
 
 [...]
 
-For angel, who is closest to skies, being turned upside down like that was something unknown and Alfreya wasn't able to react.
+For angel, who is closest to skies, being turned upside down like that was something unknown and Alfreyja wasn't able to react.
 He couldn't yet comprehend the shock of falling down on his back.
 And then, as his back knocked against floor, there was vital organ of angels, that produced magic power.
 
-"Choosing to <span title="jp. 堕天 fall as if choosing to become fallen angel as it means to lose wings">fall</span> was mistake that led you to defeat. Alfreya..."
+"Choosing to <span title="jp. 堕天 fall as if choosing to become fallen angel as it means to lose wings">fall</span> was mistake that led you to defeat. Alfreyja..."
 
 Kai strikes down with his fist.
 Receiving the fist by his breast, the shock goes through his spine, reaching magic producing organ.
@@ -472,7 +472,7 @@ He couldn't move.
 There was lying down motionless angel, facing up with open eyes.
 And then all of the sudden he burst out blood with intense coughing.
 
-"Alfreya-sama!?"
+"Alfreyja-sama!?"
 
 Battle angel Vicious dived in from above.
 Toward the subordinate that was trying to rush over to her master's place...
@@ -503,7 +503,7 @@ Bloody coffin broke apart and completely disappeared, releasing elven elder.
 The floor shook.
 Foundation of this hall already collapsed and fell down into sea of ancient trees down below.
 
-"Alfreya-sama!?"
+"Alfreyja-sama!?"
 
 Meanwhile, giant angel run straight ahead towards his master side.
 
@@ -517,9 +517,9 @@ Dwarves and fairies...
 Our alliance..."
 
 Snap, it was sound of something breaking.
-Heaven lord Alfreya petrified, and it was sound of him starting to break.
+Heaven lord Alfreyja petrified, and it was sound of him starting to break.
 
-"Alfreya-sama!?"
+"Alfreyja-sama!?"
 
 "This is all result of my own fault.
 It is not fault of these humans.
@@ -575,7 +575,7 @@ Even though you're enemies, you used your own body to to protect elf."
 Elven shrine maiden swallowed her breath.
 Human protected one of the foreign gods.
 It was something that originally would be unthinkable.
-But hearing Alfreya's words made her self-consciousness about it.
+But hearing Alfreyja's words made her self-consciousness about it.
 
 "Who would think that human will be the one to deliver our salvation...
 But, this is the will of the world."
@@ -595,4 +595,4 @@ His strong body petrified, crumbling and turning into dust.
 And then his body disappeared.
 These were last words of foreign gods hero.
 
-A hour later, Heaven Lord Alfreya fortress Angel Palace fell down and then disappeared.
+A hour later, Heaven Lord Alfreyja fortress Angel Palace fell down and then disappeared.

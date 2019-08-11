@@ -185,7 +185,7 @@ This world is somewhat scary."
 Kai nodded in response to girl who tightly hold onto his clothes.
 3 heroes remained:
 
-- Foreign gods have their hero **Heaven Lord Alfreya**
+- Foreign gods have their hero **Heaven Lord Alfreyja**
 - Cryptids have their hero **Fang King Rath=IE**
 - Spirits have their hero **Spirit Sovereign Rokugen Kyouko**
 

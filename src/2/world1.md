@@ -174,7 +174,7 @@ Or at least that's what supposed to be.
 
 Hero [Dark Empress] Vanessa who leads, demon race, wielders of powerful magic.
 
-Hero [Heaven Lord] Alfreya who leads foreign gods, composed of angels and elves.
+Hero [Heaven Lord] Alfreyja who leads foreign gods, composed of angels and elves.
 
 Hero [Spirit Sovereign] Rokugen Kyouko who leads spirits, very peculiar creatures like ghosts.
 
@@ -954,7 +954,7 @@ Well, it is fine, one day I'll just take it by force."
 Demoness ascended to rooftop with her wings.
 
 "But since you picked my interested I'll give you advice.
-If you're going to foreign gods dominion, then beware of Heaven Lord Alfreya.
+If you're going to foreign gods dominion, then beware of Heaven Lord Alfreyja.
 I heard that guy was behaving weirdly recently."
 
 "...What do you mean?"
@@ -1235,7 +1235,7 @@ These four were leading their respective races, which made humanity afraid.
 
 Demon hero [Dark Empress Vanessa].
 
-Foreign god [Heaven Lord Alfreya].
+Foreign god [Heaven Lord Alfreyja].
 
 Cryptid hero [Fang King Rath=IE].
 

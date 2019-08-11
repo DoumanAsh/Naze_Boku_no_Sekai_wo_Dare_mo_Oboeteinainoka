@@ -50,7 +50,7 @@ He thought it was shadow of ancient tree, but he didn't expect it to be a shadow
 
 "It is not the only floating fortress of angels.
 Hovewer it is called a angel palace, not only because it is so high.
-It is also home of Alfreya-dono...
+It is also home of Alfreyja-dono...
 Now, here it is."
 
 Elven girl tore off leaf out of ancient tree.
@@ -90,7 +90,7 @@ After securing elven elder, they would just escape before angels would come rush
 
 "Even you think the same, right?"
 
-"But of course. As long as we are not discovered by Alfreya-dono.
+"But of course. As long as we are not discovered by Alfreyja-dono.
 I wouldn't take such measures otherwise.
 Like this."
 
@@ -280,7 +280,7 @@ _TL Notes:_ Seems a strange countermeasure to be honest, but that's is written b
 "But then we'd be troubled. Dwarves, fairies and elves do not possess wings."
 
 Among foreign gods were their comrades who walked ground.
-For their sake Heaven Lord Alfreya prepared special pathway.
+For their sake Heaven Lord Alfreyja prepared special pathway.
 And right now through exactly such pathway Reiren was running.
 
 "Jeanne-sama, it is a fortunate for us." - Fairin whispered - "Without elven guidance it would be extremely difficult for us to storm this floating fortress."
@@ -343,7 +343,7 @@ Thee should understand that if he'd done it, then it would result in war with an
 
 "Let us hear it."
 
-"It is possible Heaven Lord Alfreya himself punished these angels in courtyard."
+"It is possible Heaven Lord Alfreyja himself punished these angels in courtyard."
 
 "Yes!?"
 
@@ -365,15 +365,15 @@ Elf remained silent as she crossed past gigantic 4 meters tall door and continue
 
 _TL Note:_ I'm a bit unsure what author means by `大きく右に曲がる通路` to be honest
 
-"Alfreya required submission out of others among foreign gods, right?"
+"Alfreyja required submission out of others among foreign gods, right?"
 
 "...That's right."
 
-"But that was only Alfreya demand alone.
+"But that was only Alfreyja demand alone.
 Difficult to image that all other angels agreed with his idea.
 There should be some who objected for sure."
 
-Alfreya punished his disobedient subordinates.
+Alfreyja punished his disobedient subordinates.
 That was her speculation about felled angels in courtyard.
 
 "Argument?" _TL Note:_ I'm a bit confused here. Because `異論` means argument/difference of opinion, but the flow of conversation also allows for it to be her asking for basis of the Fairin's theory.
@@ -383,7 +383,7 @@ Especially since Fairin responds with `ない`, but it feels weird?
 
 To that elven girl replied:
 
-"I'm no longer capable of comprehending Alfreya-dono.
+"I'm no longer capable of comprehending Alfreyja-dono.
 Otherwise I wouldn't disguise myself as human in order to save our <span title="elder">comrade</span>."
 
 Elf slightly shook her head.
@@ -452,7 +452,7 @@ She was standing there in shock, not believing into betrayal of old friend.
 
 Said female angle with battle axe in single hand. _TL Note:_ This one is actually weird for me `戦斧を片手に浮遊する女天使`
 
-"I'm but a servant of Heaven Lord Alfreya-sama.
+"I'm but a servant of Heaven Lord Alfreyja-sama.
 Everything I'm doing is for the sake of that person."
 
 "..."
@@ -463,7 +463,7 @@ Shrine maiden Reiren, you appeared at quite good time."
 Angel with very beautiful face made a distorted smile.
 
 "We shall start execution of elven elder immediately.
-And it will be done by Alfreya-sama himself."
+And it will be done by Alfreyja-sama himself."
 
 "...!?"
 
@@ -484,7 +484,7 @@ Instead of elven shrine maiden Reiren, it was silver haired knight who stepped f
 Not planning to explain the whole situation here, but elder is under our protection."
 
 "A human? Shrine maiden Reiren, to bring humans into this palace, you're already sinner beyond salvation.
-After all there was no mistake to Alfreya-sama's judgement."
+After all there was no mistake to Alfreyja-sama's judgement."
 
 Angel, with battle axe in her hands, flapped her wings.
 
@@ -587,8 +587,8 @@ It wouldn't be strange for angels to hide themself behind these gigantic pillars
 
 "Reiren, are there any other angels we should be aware?"
 
-"If thee are asking about angels who are loyal to Alfreya, then the answer is [all].
-Among angels in angel palace everyone hold respect for Alfreya."
+"If thee are asking about angels who are loyal to Alfreyja, then the answer is [all].
+Among angels in angel palace everyone hold respect for Alfreyja."
 
 On other hand, foreign god already inflicted punishment upon such subordinates.
 And cruelly thrown them out into courtyard.
@@ -605,7 +605,7 @@ As if searching for something she looked at ceiling and then started looking amo
 "Eh?"
 
 "W-what are thee saying, little girl!?
-Just a bit more... There we shall reach that Alfreya.
+Just a bit more... There we shall reach that Alfreyja.
 Look, there is light magic formation, once we'll cross it, we'll be there."
 
 _TL Note:_ I'm a bit unsure what author means here `光の方陣`
@@ -734,7 +734,7 @@ Just like a child observing insects under his foot, the angel proclaimed dispass
 The elf, locked in the cross-shaped coffin, was still alive.
 He was trying to yell something, but the coffin let no sound escape.
 
-"Alfreya....!"
+"Alfreyja....!"
 
 The elven girl roared.
 
@@ -748,7 +748,7 @@ And now I shall be the one to deliver thy ending."
 
 Reiren shook off Kai's attempt to restrain her and stomped on the floor.
 But without a doubt, her eyes were dyed by a deep fury.
-Heaven Lord Alfreya tightly grasped something in his hand.
+Heaven Lord Alfreyja tightly grasped something in his hand.
 And then with a cruel smile, the angel said:
 
 "Let's deliver <span title="jp. 聖義 can be read as 正義 but considering first kanji and overall atmosphere this seems to be suitable.">heaven's justice</span>."
@@ -771,7 +771,7 @@ _It wasn't casted whe she started to run._
 _Was it prepared at the time when we came here?_
 
 There was no room for further discussion.
-Heaven lord Alfreya had no intent other than killing them here.
+Heaven lord Alfreyja had no intent other than killing them here.
 
 "Reiren!"
 
@@ -808,7 +808,7 @@ It dissipated into myriad of small flames and disappeared.
 The elven shrine maiden turned back in shock.
 And she wasn't alone.
 Even the elven elder, who was sealed inside the cross, became astonished.
-They wondered: did a human's sword destroy Heaven Lord Alfreya's magic tool?
+They wondered: did a human's sword destroy Heaven Lord Alfreyja's magic tool?
 It wasn't a regular sword, yet it wasn't elven magic weapon either, they understood it at first glance.
 Then their question was: just what is this sword in Kai's hands?
 Moreover...
@@ -846,7 +846,7 @@ Challenging you with it is not impossible."
 
 "..."
 
-While remaining silent, Alfreya's shoulders jolted a bit.
+While remaining silent, Alfreyja's shoulders jolted a bit.
 
 "I heard such rumours...
 About the demon hero being defeated by a human.
@@ -892,7 +892,7 @@ The bow <span title="I think bows normally have no sound when you fire it though
 
 "Is this an elven bow!?"
 
-Heaven Lord Alfreya turned mid-air.
+Heaven Lord Alfreyja turned mid-air.
 The moment when arrow pierced through the wind, the angel's left eye became a little <span title="I'm not sure what is good term, basically it is from pain.">strained</span>.
 His left cheek was slightly cut.
 Jeanne's arrow was able to penetrate the angel's powerful divine protection.
@@ -989,7 +989,7 @@ Sorry, but I have no plans to be in debt of humans."
 
 The girl, who now had her white shoulders exposed, turned away in embarrassment.
 
-"Still the power of Heaven lord Alfreya's magic tools have no bounds.
+"Still the power of Heaven lord Alfreyja's magic tools have no bounds.
 Even I do not have the confidence to defend against all of it.
 Therefore to overcome this..."
 
@@ -1052,7 +1052,7 @@ With a mix of despair and disbelief, she looked down at the remnants of the knif
 
 "The gap between our powers is like that of heaven and earth."
 
-"Alfreya..."
+"Alfreyja..."
 
 The elven shrine maiden turned over while clenching her teeth.
 
@@ -1062,7 +1062,7 @@ Thee, just where did thee acquire this power!"
 "Reiren? What do you mean?"
 
 "I mean, he captured our elder.
-In human terms he would be a [hero rank] and the elder's power is close to that of Alfreya.
+In human terms he would be a [hero rank] and the elder's power is close to that of Alfreyja.
 So I mean the power that would be required to lock up the elder is enormous.
 In all actuality this casket would deplete a lot of this bastard's magic power."
 
@@ -1073,7 +1073,7 @@ So sealing elven elder should consume a lot of magic power, and yet heaven lord 
 
 Blazingly red sword, brass baton.
 Silver rod that could summon lighting rain.
-Besides that, in addition to the silver trident that could destroy magic defence, Alfreya himself wore heavenly garments.
+Besides that, in addition to the silver trident that could destroy magic defence, Alfreyja himself wore heavenly garments.
 
 _Certainly, it seems absurd._
 
@@ -1087,7 +1087,7 @@ Thou magic powers might be great, but definitely not to this extent!"
 
 "..."
 
-"Answer me, Alfreya. Is this power the reason behind thou sudden change!?"
+"Answer me, Alfreyja. Is this power the reason behind thou sudden change!?"
 
 "Sudden change?"
 
@@ -1112,7 +1112,7 @@ This was...
 
 "The rasterrizer from that time!?"
 
-_TL Note:_ If I remember correctly even Vanessa mentioned Alfreya name when she got attacked by that thing, so not sure if Kai has to be surprised here.
+_TL Note:_ If I remember correctly even Vanessa mentioned Alfreyja name when she got attacked by that thing, so not sure if Kai has to be surprised here.
 
 He remembered their encounter at the graveyard.
 It was the same specimen as the one who appeared in the place where Rinne had been sealed.
@@ -1132,7 +1132,7 @@ The angel's brow raised in pleasant surprise.
 
 "Then we can omit introductions."
 
-"Hero Alfreya, if this is indeed your subordinate, then I have something I want to ask."
+"Hero Alfreyja, if this is indeed your subordinate, then I have something I want to ask."
 
 Towards angel who wore a smile of derision.
 
@@ -1171,7 +1171,7 @@ In that instant, Kai witnessed something even more bizarre.
 
 Angel palace, corridor with 18 pillars.
 It was filled with light.
-This was the passage among the blue skies that led to heaven lord Alfreya.
+This was the passage among the blue skies that led to heaven lord Alfreyja.
 There single pillar has collapsed.
 
 Roaring sound and dust filled the place.
@@ -1219,7 +1219,7 @@ Moreover the only wound, that she was able to inflict, was already healing.
 
 "Like a moving fortress."
 
-As a guardian of this sacred pillared road, he was a close aide of Heaven lord Alfreya.
+As a guardian of this sacred pillared road, he was a close aide of Heaven lord Alfreyja.
 If Rinne who was aware of this angel's presence, didn't stay behind, Kai and the others wouldn't have been able to take even a single step.
 Which would have given enough time to complete the elven elder's execution.
 
@@ -1298,7 +1298,7 @@ Hurry on."
 "I understood your strength well.
 There is also Reiren, so if you join forces, it might be possible for you to free the elder."
 
-"Did you let yourself to be defeated on purpose? Even though you're Alfreya's subordinate."
+"Did you let yourself to be defeated on purpose? Even though you're Alfreyja's subordinate."
 
 "Who knows... This is not something I can tell you by myself."
 
@@ -1306,7 +1306,7 @@ Archangel Raphael's real goal was a [test].
 Whether there is someone who holds the strength to go against the angel's leader who had suddenly changed.
 And then Rinne displayed even more than the required strength.
 
-"Alfreya-sama... changed. Everything started at that time..."
+"Alfreyja-sama... changed. Everything started at that time..."
 
 "That time?"
 
@@ -1368,15 +1368,15 @@ At Fairin's provocation, angels eyes were lighted with anger.
 But that was only for a moment.
 
 "I doubt it is possible for humans...
-But, even if by some miracle it does happen, it will be result of Alfreya-sama's own will."
+But, even if by some miracle it does happen, it will be result of Alfreyja-sama's own will."
 
 For the foreign gods alliance to collapse due to internal strife would be the worst possible scenario.
-Compared to that, even if Heaven lord Alfreya would fall, there will be hope to revive their races' alliance.
-This was the bitter result of discussion among close aides of Alfreya.
+Compared to that, even if Heaven lord Alfreyja would fall, there will be hope to revive their races' alliance.
+This was the bitter result of discussion among close aides of Alfreyja.
 
 "Our plan doesn't change.
 Saving the elven elder is our utmost priority.
-It will be up to Jeanne-sama how the battle with Alfreya will end.
+It will be up to Jeanne-sama how the battle with Alfreyja will end.
 Let's go."
 
 Giving a signal with eyes to both of her subordinates she started walking.
@@ -1384,7 +1384,7 @@ Just before that.
 
 An angel's cries of agony, shook the whole palace.
 
-"Alfreya-sama!?... N...no... What was that... This magic power...!"
+"Alfreyja-sama!?... N...no... What was that... This magic power...!"
 
 Vicious, who was sitting down, jumped.
 The beautiful female angel fixed her gaze above at the ceiling with fear in her eyes.
@@ -1396,7 +1396,7 @@ Estimated to be the effect of prohibited word 'Sid'.]
 
 [Executing 'Zero Code']
 
-[Hero Alfreya 'code' to be erased from the world.]
+[Hero Alfreyja 'code' to be erased from the world.]
 
 The angel screamed...
 It was a scream due to attack of the creature that he called his [subordinate].
@@ -1405,7 +1405,7 @@ It was a scream due to attack of the creature that he called his [subordinate].
 
 At the roots of their wings was the organ that produced magic power.
 And the monster crushed this vital organ of the angel with it's hand, forcing him down onto the floor.
-Even though heaven lord Alfreya boasted great physical strength, the rasterrizer monster was able to overpower the angel.
+Even though heaven lord Alfreyja boasted great physical strength, the rasterrizer monster was able to overpower the angel.
 
 "Are you rebelling against me!?'
 
@@ -1439,7 +1439,7 @@ _The same as with Vanessa._
 
 The only difference was the result.
 Even while being taken by surprise, Vanessa was able to strike back.
-But Alfreya was different.
+But Alfreyja was different.
 Thinking of the rasterrizer as his subordinate, the angel's response was too late.
 And due to that he lost any chance of counterattack.
 
@@ -1448,7 +1448,7 @@ And due to that he lost any chance of counterattack.
 At last the ragged doll figure sinked into the black hole like a bottomless swamp, and disappeared.
 Same as how the foreign gods hero had disappeared.
 
-_Alfreya vanished._
+_Alfreyja vanished._
 
 _This... can it be even called our victory?"_
 
@@ -1484,7 +1484,7 @@ Just like leaves falling off a tree.
 Just like muscles disappearing from a strong body.
 The wings, which lost all feathers, which were beautifully white, faded...
 
-[I'm Alfreya reincarnation. Now resuming the role of foreign gods hero.]
+[I'm Alfreyja reincarnation. Now resuming the role of foreign gods hero.]
 
 In the angel's eyes there was no longer any light of consciousness.
 The wings, from which the feathers fell off, became a mere shadow of itself.
@@ -1496,7 +1496,7 @@ Despite that...
 At the root of his wings was light, even more brilliant than before.
 Its god-like shine made even Kai to be awed in fear.
 
-[I'm Alfreya. Its avatar.]
+[I'm Alfreyja. Its avatar.]
 
 The angel who lost his wings continued his monologue.
 It wasn't the Heaven Lord.
@@ -1505,7 +1505,7 @@ Now there was no trace of the angel left, instead it was appearance of a fallen 
 [Only I alone am sacred.
 Only I belong to heavens.]
 
-Fallen angel Alfreya.
+Fallen angel Alfreyja.
 It no longer could be described by a mere change to a character.
 It was a complete overwrite.
 After witnessing this transformation, that was Kai's only impression.
@@ -1523,4 +1523,4 @@ He used his hands as if to replace the no longer moving wings.
 First I ought burn down all foreign gods who pollute the earth.]
 
 It was the declaration of war.
-It was the announcement of complete [genocide] of all foreign gods from the fallen angel Alfreya.
+It was the announcement of complete [genocide] of all foreign gods from the fallen angel Alfreyja.
