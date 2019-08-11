@@ -54,7 +54,7 @@ The silver baton, capable of calling fourth rain of lighting.
 
 The trident, capable of destroying barriers.
 
-All of them were rolled on the floor.
+All of them were rolling down on the floor.
 Moreover, once attacked by Zero Code, his heavenly garments were torn into pieces.
 And then the fallen angel Alfreya only swung down his left hand towards the Reiren.
 
@@ -78,13 +78,13 @@ And there was a reason for that.
 
 "Just by looking at how much weight thy cheeks lost, I can tell.
 Thy power didn't increase.
-Just _borrows it in advance_.
+Thee just _borrows it in advance_.
 Probably, thee is consuming tremendous amount of magic power..."
 
 _TL Note:_ I'm a bit unsure about `前借り`
 
-Right the fallen angel was burning his magic power beyond any limit.
-If it was car's engine, it would be overheating.
+Right, the fallen angel was burning his magic power beyond any limit.
+If it would be a car's engine, it would be overheating.
 And not being to withstand it, wings, which are closest to magic power producing organ, are degrading.
 
 "Thee is leaking magic power through these wounded wings.
@@ -115,14 +115,14 @@ _Lighting._
 _Is this a lighting attack like before!?_
 
 <span title="jp. 極大 a bit unsure as normally it means maximum">Powerful</span> lighting tears through the cloud.
-Without assistance of magic tool, he is able to display power beyond the limit.
+Without assistance of magic tool, he is able to display power beyond any limit.
 This alone certainly made fallen angel to transcend the angel as the race.
 
 "It might be threatening, but single spell is not enough to scare me!"
 
 Elven girl put out seventh layered protective garments.
 Faintly shining silk garment receives the lighting attack, aiming at her head.
-Regardless how wide would be the scale of lighting, Reiren's spirit garments are able to absorb seven magic attacks.
+Regardless how area wide would be the scale of lighting, Reiren's spirit garments are able to absorb seven magic attacks.
 
 "Reiren, move back. Don't go out at front!"
 
@@ -139,7 +139,7 @@ Magnificat [O my lord, my humble self is the Lord's proxy and judge.] _TL Note:_
 
 It was flamberge, whose blade looked like a imitation of wing.
 One could only wonder just when it has manifested.
-In fallen angel's hand was tightly grasped dark coloured sword, it's colour made it look like it is soaked in blood.
+In fallen angel's hand was tightly grasped dark red coloured sword, it's colour made it look like it was soaked in blood.
 
 Lighting attack was only a distraction.
 By distracting the elven shrine maiden with enormous light, he was able to quickly approach her.
@@ -155,7 +155,7 @@ Before their eyes was terrible scene of emerald blood flowing from girl's should
 
 Jeanne reflexively caught in her arms falling down elven girl.
 
-_TL TODO:_ I'm a bit unsure what author means with next `それが仇`, `仇` reads as _ada_ and can mean various things like: ill intent, grudge or harm.
+_TL TODO:_ I'm a bit unsure what author means with `それが仇`, `仇` reads as _ada_ and can mean various things like: ill intent, grudge or harm.
 
 [So foolish.]
 
@@ -180,7 +180,7 @@ Towards the angel with dark bloody flamberge, that wounded both girls, Kai sent 
 
 While deflecting the sword, fallen angel laughed.
 
-[I see now.]
+[I see it, now.]
 
 "I get it, you flamberge...!"
 
@@ -191,9 +191,9 @@ _His sword is without mistake a magic._
 
 _But why it was able to pierce through Reiren protective garment?_
 
-Seventh coloured garment served barrier.
+Seventh coloured garment served as barrier.
 And was able to withstand up to 7 simultaneous magic attacks.
-Taking into consideration that it could even defend against area wide magic, it's defensive was even above Code Holder.
+Taking into consideration that it could even defend against area wide magic, it's defensive powers were even above Code Holder.
 So it made him wonder how these spirit garments would get torn.
 
 "Since it is magic sword, it can be restored always!"
@@ -203,7 +203,7 @@ So it made him wonder how these spirit garments would get torn.
 Fallen Angel raised his sword high above his head.
 Lord Sword Divine Gift - Reiren protective garment functioned as usual, and was able to receive up to 7 blades.
 And each of the these 7 times Alfreya's sword was destroyed.
-And then of the these 7 times he restored the sword.
+And then each time he restored the sword.
 The eighth sword pierced through spirit garment.
 
 _TL Note:_ Literally cheat. Well, Kai got own cheat.
@@ -243,7 +243,7 @@ While Alfreya had advantage of height and strength, Kai was able to push back ag
 
 [...Are you on equals with me? Just how much strength in your thin arms.]
 
-"Naturally. You might triumph in air, but fighting on the ground is not for you!."
+"Naturally. You might triumph in air, but fighting on the ground is just not for you!."
 
 Losing focus would immediately mean to be pushed back here.
 Gritting his teeth, he repelled angel's sword with Code Holder.
@@ -279,7 +279,7 @@ And to this blade...
 
 "Slow."
 
-Kai's blade of sunlight colour, made vertical slashed towards towards upper air.
+Kai's blade of sunlight colour, made vertical slash towards upper air.
 
 _TL Note:_ `はるか上空へと斬り上げた` A bit unsure how exactly it supposed to look
 
@@ -310,7 +310,7 @@ Fallen angel expression was strained.
 Having superior sword skills and Code Holder, capable of cutting off magic, Kai hold advantage.
 As he was burning through surplus of magic power, prolonged battle left Alfreya at disadvantage.
 
-[It seems it is time to judge this life.]
+[It seems it is time to deliver judgement for this life.]
 
 "What?"
 
@@ -324,7 +324,7 @@ Angle Palace shook.
 The floor, on which Kai was standing, started to tremble.
 He was wondering if ground was rumbling.
 But they were high above in skies.
-Even though tied to the top of ancient tree, it shouldn't be possible for earth vibrations to reach this place.
+Although tied to the top of ancient tree, it shouldn't be possible for earth vibrations to reach this place.
 
 [To destroy this life. The Angel Palace shall collapse.]
 
@@ -341,7 +341,7 @@ Nevertheless he extended his left hand to try to reach Code Holder, which fallen
 
 _To go this far..._
 
-_For just me alone, he seriously planning to collapse angel palace._
+_For just me alone, he seriously planning to destroy angel palace._
 
 [Disappear, human.]
 
@@ -367,7 +367,7 @@ Subordinate angel saw it.
 How her master changed.
 Choosing wicked power and sacrificing own wings.
 And then, for the sake of defeating single human, this fallen angle chosen to even collapse angel palace.
-Therefore she came to conclusion, who to aid.
+Therefore she came to conclusion: to whom give her aid.
 
 "Seven ladies... Come fourth!"
 
@@ -405,7 +405,7 @@ No, he completely forgot about it.
 
 "Yeah, it is the end."
 
-The existence of human that was closest to him.
+There was human very close to him.
 Alfreya was trampling over Code Holder under his feet.
 And in Kai's hand was no sword, not to mention gun or knife.
 
@@ -436,7 +436,7 @@ In true world, as Kai belonged to MDA, it was his duty to work on learning presu
 
 He made a kick attack.
 Putting all strength into the kick and using <span title="It is karate technique I think">edge of the foot</span>, he knocked both legs of fallen angel Alfreya at the same time.
-Tripping, angel fell down on the back of his head.
+Tripping, angel fell down hitting the back of his head.
 Of course with such sturdy body he had no injuries.
 But experiencing something like that for the first time was shocking for angel.
 
@@ -539,7 +539,7 @@ To address Kai.
 I... know about him.
 Even though I've been entrusted by Sid with this, what a mess it turned out to be."
 
-"What do you mean! From Sid?"
+"What do you mean! By Sid?"
 
 It was the same as with Dark Empress Vanessa.
 Just before change due to Zero Code leads to their death, other races heroes remembered about Sid.
