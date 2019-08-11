@@ -851,7 +851,7 @@ Thou are ones who defeated that demon hero."
 
 The elf looked at Kai's party once more.
 
-"That monster once had a fierce battle with Heaven Lord Alfreya-dono.
+"That monster once had a fierce battle with Heaven Lord Alfreyja-dono.
 At that time the outskirts of our forest turned into ashes.
 And for thee to defeat that Vanessa is simply unbelievable..."
 
@@ -861,7 +861,7 @@ Jeanne looked up the trees.
 There were appearance of elves, fairies and dwarves.
 There were several hundreds of them, carefully listening to conversation between <ruby>shrine maiden<rt>Reiren</rt></ruby> and <ruby>knight<rt>Jeanne</rt></ruby>.
 
-"Is it true that elven elder have been captured by Heaven Lord Alfreya?"
+"Is it true that elven elder have been captured by Heaven Lord Alfreyja?"
 
 "If it wouldn't be, then we wouldn't even talk about it."
 
@@ -876,7 +876,7 @@ Once such calm and strong person, who illuminated the path for foreign gods like
 We are beneath angels."
 
 Foreign gods were consisting of four races.
-And everything went wrong once Heaven Lord Alfreya suddenly declared that they are not equals, but beneath angels.
+And everything went wrong once Heaven Lord Alfreyja suddenly declared that they are not equals, but beneath angels.
 
 "Of course it was unacceptable.
 After discussing among three races, elven elder alongside representative of each race headed for angel palace,
@@ -971,7 +971,7 @@ This ought to satisfy thee?"
 
 "Please wait, if something would happen to shrine maiden in such situation..."
 
-"Alfreya-dono has changed already.
+"Alfreyja-dono has changed already.
 And there are no guarantees that elder will come back to us.
 If we are to remain put, then it would only assert that elves submitted to angels.
 Am I wrong?"
@@ -980,7 +980,7 @@ Shrine maiden raised her voice so that her comrades above would hear.
 It's volume was enough to even shake leafs of ancient tree.
 
 "Fairies and dwarves, they are yet to make a move.
-If we are to offend Alfreya-dono then it shall lead us to civil war.
+If we are to offend Alfreyja-dono then it shall lead us to civil war.
 This plan is but mine alone.
 In worse case my life alone shall be at stake." _TL Note:_ `最悪の事態にはワシの命一つでどうにでもなる` I rephrased last sentence, need to re-think?
 
@@ -1094,7 +1094,7 @@ Besides that's a leverage to keep elves in check, isn't?"
 Responding with serious face, elven girl sat down in front of Kai.
 
 "I only wish to ask you one thing:
-The way thee defeated Vanessa, will it work on heaven lord Alfreya too?"
+The way thee defeated Vanessa, will it work on heaven lord Alfreyja too?"
 
 Kai was wondering whether because she was talking with him, but she omitted honorific [dono] now.
 Or maybe...
@@ -1121,9 +1121,9 @@ Moreover it was thanks to Code Holder's effect that he was able to make final pu
 Why you asked us to help free your elder.
 If we meet angels there, we'll have to break through with force."
 
-In worst case scenario they'll have to fight Angel's leader Alfreya.
+In worst case scenario they'll have to fight Angel's leader Alfreyja.
 There was no necessity to fight, and even risking own head with such deal.
-But right now he didn't hear Reiren's muttering something like that. _TL Note:_ `だが今のレーレーンの呟きはそう聞こえなかった` I'm a bit unsure here as it is kinda hard to grasp, whether it supposed to mean that Kai kept his thoughts about Alfreya to himself, or whether she didn't mention it.
+But right now he didn't hear Reiren's muttering something like that. _TL Note:_ `だが今のレーレーンの呟きはそう聞こえなかった` I'm a bit unsure here as it is kinda hard to grasp, whether it supposed to mean that Kai kept his thoughts about Alfreyja to himself, or whether she didn't mention it.
 
 "And I heard you hold hopes for us to defeat foreign gods hero."
 
@@ -1132,7 +1132,7 @@ But right now he didn't hear Reiren's muttering something like that. _TL Note:_ 
 Young elven girl, standing in front of fire, responded with low voice.
 
 "If we'll be discovered it shall come to this.
-Whether thee hopes or not, today's Alfreya-dono will listen to no words.
+Whether thee hopes or not, today's Alfreyja-dono will listen to no words.
 So it shall become a fight for survival."
 
 "..."
@@ -1152,13 +1152,13 @@ Understand this much."
 If elves are to attack angel palace, then foreign gods will descend into civil war.
 That was the reason why Reiren wasn't planning to participate in battle.
 Moreover, the same could be said about dwarves and fairies.
-If heaven lord Alfreya wrath would fall onto elves, two other races had no reason to incur angels wrath.
+If heaven lord Alfreyja wrath would fall onto elves, two other races had no reason to incur angels wrath.
 
 _But if there is even a slight chance that it would come to this..._
 
 _Does this shrine maiden intend to present her own neck in order to beg mercy?_
 
-Not to humans, but Alfreya.
+Not to humans, but Alfreyja.
 
 "How vexing... Why must we accept help of humans?
 Did our people fall so low?"
@@ -1189,7 +1189,7 @@ Well, for the most part, it is about time she spent hiding among Io Resistance."
 There was nothing beautiful about Great War.
 Moreover the whole surprise attack on demons in capital, done by Urza Resistance, wasn't fair and square too.
 
-"By the way, about what you mentioned previous, what if by some chance we'll defeat Alfreya?
+"By the way, about what you mentioned previous, what if by some chance we'll defeat Alfreyja?
 What are you intending to do?"
 
 "What? Are thee worried even about such things?"
@@ -1197,7 +1197,7 @@ What are you intending to do?"
 The elven girl who was serious until now, looked back at him with a grin.
 
 "This strategy of our is itself a treason against angels.
-Are thee perhaps worrying whether I have ambition to become foreign gods hero once Alfreya shall be slain by thee?"
+Are thee perhaps worrying whether I have ambition to become foreign gods hero once Alfreyja shall be slain by thee?"
 
 "Yeah, after all you're cunning."
 
@@ -1231,12 +1231,12 @@ But it might be different for foreign gods hero.
 
 [There is someone who tampered with the world. He should be among three remaining hero.]
 
-Heaven lord Alfreya had a sudden change.
+Heaven lord Alfreyja had a sudden change.
 This was something he heard from shrine maiden Reiren and that made his heart's beating uncontrollable alongside his thoughts.
 
 _I don't think that hero's change is coincidental._
 
-_That makes Alfreya a prime suspect._
+_That makes Alfreyja a prime suspect._
 
 _TL Note:_ Personally I think Kai is too optimistic about it.
 

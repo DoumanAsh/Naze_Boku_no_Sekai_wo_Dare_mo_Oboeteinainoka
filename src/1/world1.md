@@ -251,7 +251,7 @@ But in human language there was a single way to refer to these mightiest: _Four 
 
 Demon's hero **Dark Empress Vanessa**
 
-Foreign god's hero **Heaven Lord Alfreya**
+Foreign god's hero **Heaven Lord Alfreyja**
 
 Cryptid's hero **Fang King Rath=IE**
 

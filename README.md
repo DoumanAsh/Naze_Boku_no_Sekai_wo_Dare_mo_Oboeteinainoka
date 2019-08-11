@@ -28,3 +28,9 @@ Because of that there might be inconsistency narration text.
 
 But in case you'll need to, you can contact me over my mail [douman@gmx.se](mailto:douman@gmx.se)
 Or my personal discord server: https://discordapp.com/invite/D3NvRwE
+
+## Thanks
+
+These are people who helped me with TL:
+
+- [Polta](https://twitter.com/Potla1995) - For giving out feedback and edits to my TL

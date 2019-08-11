@@ -1575,7 +1575,7 @@ Regardless how much succubus struggled, she cannot get away from fang that suck 
 
 [Impact on the world, analysing]
 
-"You filth! I see it now... rasterrizer! It is Alfreya instigation!"
+"You filth! I see it now... rasterrizer! It is Alfreyja instigation!"
 
 [Executing Zero Code. Removing hero Vanessa _Code_ from the world.]
 
@@ -1606,7 +1606,7 @@ She became fusion of bewitching woman and sinister demon.
 Vanessa extended her hand.
 While she have been under so-called Zero Code attack, she instead grabbed so-called rasterrizer monster by its neck in return.
 
-"For Alfreya's dog, my neck would be too luxurious treat."
+"For Alfreyja's dog, my neck would be too luxurious treat."
 
 [Dark Empress Vanessa Resistance parameters have raisen?
 Unforeseen magic power.
@@ -2011,7 +2011,7 @@ But in the end it is all lies."
 
 Spirits have their hero **Spirit Sovereign Rokugen Kyouko**
 
-Foreign gods have their hero **Heaven Lord Alfreya**
+Foreign gods have their hero **Heaven Lord Alfreyja**
 
 Cryptids have their hero **Fang King Rath=IE**
 

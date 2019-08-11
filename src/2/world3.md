@@ -248,7 +248,7 @@ On other hand, Rinne, still not understanding the whole situation, was in the mi
 "We still do not know situation.
 Moreover we do not know location of foreign gods hero, so we have to gather information."
 
-Foreign gods hero [Heaven Lord] Alfreya...
+Foreign gods hero [Heaven Lord] Alfreyja...
 Covered in multiple layered barriers, owner of so-called divine protection.
 Known as [Unsinkable angel].
 This was formidable enemy, who people says was able receive direct hit from Io Federation most powerful artillery without a single scratch.
@@ -257,7 +257,7 @@ _Even the most powerful weaponry cannot pierce through._
 
 _For humans, it might not be exaggeration to say that it was [invincible] opponent._
 
-If Dark Empress Vanessa could be called a strongest spear, then Heaven Lord Alfreya would be said to be invincible shield.
+If Dark Empress Vanessa could be called a strongest spear, then Heaven Lord Alfreyja would be said to be invincible shield.
 This much preparations would be necessary.
 
 "Let's go Rinne."
