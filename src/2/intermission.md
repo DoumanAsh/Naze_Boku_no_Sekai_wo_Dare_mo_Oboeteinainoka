@@ -27,7 +27,7 @@ Something beyond foreign gods expectations were happening at the same day.
 
 -------------------------------------------------------------------------------
 
-"<span title="Elves">We</span> are no longer necessary!? Please wait a moment, Alfreya-dono... What is meaning of this...!"
+"<span title="Elves">We</span> are no longer necessary!? Please wait a moment, Alfreyja-dono... What is meaning of this...!"
 
 Angel palace.
 It was place deep into ancient forest, which stood on top of ancient tree, that was towering above heavens itself.
@@ -43,18 +43,18 @@ It is not only <span title="Elves">you</span>.
 Dwarfs and fairies too are judged as filthy and inferior races."
 
 Answered angel with six enormous wings.
-Heaven Lord Alfreya - the leader of angels and archangel who took a name of foreign gods hero upon.
+Heaven Lord Alfreyja - the leader of angels and archangel who took a name of foreign gods hero upon.
 Great hero, with long hair of flax colour, solemnly told her while standing by altar.
 
 "This country, this world belong to angel's domain.
 This is not a place where you belong."
 
-"...Alfreya-dono, did you lose your mind?"
+"...Alfreyja-dono, did you lose your mind?"
 
 Elf who was unable to rise, glared at standing in front of her angel.
-There was one more figure, besides Heaven Lord Alfreya was standing bizarre monster.
+There was one more figure, besides Heaven Lord Alfreyja was standing bizarre monster.
 
-"Alfreya-dono..."
+"Alfreyja-dono..."
 
 Elven elder, who was girl with bright like moonlight hair, was bleeding from her mouth with emerald blood.
 
@@ -73,7 +73,7 @@ This monster felt like [death] itself.
 
 "You don't need to know."
 
-Heaven Lord Alfreya made chilly declaration.
+Heaven Lord Alfreyja made chilly declaration.
 
 "This very moment I shall cut all our relations with inferior species.
 For all eternity."
