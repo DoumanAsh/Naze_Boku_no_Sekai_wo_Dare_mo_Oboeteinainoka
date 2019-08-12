@@ -114,8 +114,8 @@ _Lightning._
 
 _Is this a lightning attack like before!?_
 
-<span title="jp. 極大 a bit unsure as normally it means maximum">Powerful</span> lightning teared through the clouds.
-Without assistance of magic tool, he was able to display power beyond any limit.
+<span title="jp. 極大 a bit unsure as normally it means maximum">Powerful</span> lightning tore through the clouds.
+Without assistance of magic tools, he was able to display power beyond any limit.
 This alone certainly made the fallen angel to transcend the angels as a race.
 
 "It might be threatening, but a single spell is not enough to gallow me!"
