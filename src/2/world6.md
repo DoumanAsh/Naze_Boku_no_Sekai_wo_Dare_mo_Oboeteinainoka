@@ -30,7 +30,7 @@ Magnificat [The Lord crushes your wings and you fall to the ground, lamenting on
 The air creaked with a thunderous roar.
 The floor exploded.
 The white metal floor broke into tiny pieces, and started falling down towards the sea of ancient trees far down below.
-If Jeanne was late even by an instant, the elven girl would have fallen down together with these debris.
+If Jeanne were late even by an instant, the elven girl would have fallen down together with these debris.
 
 "...Alfreyja. What is the meaning of this?"
 
@@ -61,7 +61,7 @@ And then the fallen angel Alfreyja only swung down his left hand towards the Rei
 They heard the sound of metal crushing.
 The angel crushed the baton that was rolling under his foot.
 
-[By heaven's will, This my power, as shining morning start, ...]
+[By heaven's will, this is my power, as the shining morning star...]
 
 "No!" - the shrine maiden shouted.
 
@@ -99,7 +99,7 @@ Due to that, they created magic tools to assist themselves in manipulating magic
 "Magic tool is what did start foreign gods.
 There is nothing to be ashamed about the magic tool, instead we shouldst be proud of it!
 Forgetting that, and being joyous about using magic without assistance of magic tool.
-Isn't <span title="that = yond in early modern english. Idk if I should stick with this type of old speech...">yond</span> a true disgrace to the foreign gods!"
+Is that not a true disgrace to the foreign gods!"
 
 [Silence.]
 
@@ -118,7 +118,7 @@ This alone certainly made the fallen angel to transcend the angels as a race.
 
 The elven girl put out her seven layered protective garments.
 The faintly shining silk garment received the lightning attack, aiming at her head.
-Regardless of how wide the scale of lightning was to be, Reiren's spirit garments are able to absorb seven magic attacks.
+Regardless of how wide in scale the lightning is, Reiren's spirit garments are able to absorb seven magic attacks.
 
 "Reiren, move back. Don't go out at the front!"
 
@@ -181,7 +181,7 @@ While deflecting the sword, the fallen angel laughed.
 "I get it, your flamberge...!"
 
 Both the human and the fallen angel understood at the same time.
-The moment their swords crossed, they both caught the glimpse of each other's sword's power.
+The moment their swords crossed, they both caught a glimpse of each other's sword's power.
 
 _His sword is without mistake a magic sword._
 
@@ -539,8 +539,8 @@ Even though I've been entrusted by Sid with this, what a mess it turned out to b
 "What do you mean! By Sid?"
 
 It was the same as with Dark Empress Vanessa.
-Just before the change due to Zero Code leads to their death, other race's heroes remembered about Sid.
-It was a common point now.
+Just before disappearing due to the Zero Code change, the other race's hero had remembered about Sid.
+It was a common point between them.
 
 "Are you the same as Vanessa!? What do you know about world reincarnation?"
 
