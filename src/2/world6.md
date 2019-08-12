@@ -27,12 +27,10 @@ Grabbing her by the nape of her neck, Jeanne jumped to the side.
 
 Magnificat [The Lord crushes your wings and you fall to the ground, lamenting one.]
 
-_TL Note:_ re-check `轟ッ、と耳をつんざく大気の軋み`, `轟ッ` is actually  `轟々` I think, considering furigana `ごう`
-
-The atmosphere creaked with a thunderous roar.
+The air creaked with a thunderous roar.
 The floor exploded.
 The white metal floor broke into tiny pieces, and started falling down towards the sea of ancient trees far down below.
-If Jeanne were late even by an instant, the elven girl would have fallen down together with these debris.
+If Jeanne was late even by an instant, the elven girl would have fallen down together with these debris.
 
 "...Alfreyja. What is the meaning of this?"
 
@@ -50,7 +48,7 @@ The angel, when receiving _Zero Code_, let go of all of his magic tools:
 
 The brass baton, capable of summoning blazing red sword.
 
-The silver rod, capable of calling forth rain of lightning.
+The silver baton, capable of calling forth rain of lightning.
 
 The trident, capable of destroying barriers.
 
@@ -63,7 +61,7 @@ And then the fallen angel Alfreyja only swung down his left hand towards the Rei
 They heard the sound of metal crushing.
 The angel crushed the baton that was rolling under his foot.
 
-[By heaven's will, this shining morning star's power, is mine...]
+[By heaven's will, This my power, as shining morning start, ...]
 
 "No!" - the shrine maiden shouted.
 
@@ -80,8 +78,6 @@ And there was a reason for that.
 Thy power didn't increase.
 Thee is just _borrowing it in advance_.
 Probably, thee is consuming a tremendous amount of magic power..."
-
-_TL Note:_ I'm a bit unsure about `前借り`
 
 Right now, the fallen angel was burning his magic power beyond any limit.
 If it were a car's engine, it would be overheating.
@@ -122,7 +118,7 @@ This alone certainly made the fallen angel to transcend the angels as a race.
 
 The elven girl put out her seven layered protective garments.
 The faintly shining silk garment received the lightning attack, aiming at her head.
-Regardless of how wide the scale of lightning were to be, Reiren's spirit garments are able to absorb seven magic attacks.
+Regardless of how wide the scale of lightning was to be, Reiren's spirit garments are able to absorb seven magic attacks.
 
 "Reiren, move back. Don't go out at the front!"
 
