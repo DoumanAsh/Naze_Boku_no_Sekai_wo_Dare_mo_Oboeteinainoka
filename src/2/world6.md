@@ -294,8 +294,6 @@ _If it were something like a familiar magic tool..._
 
 _Like that trident on the ground, it would have certainly been a different story._
 
-_TL Note:_ Next line is kinda hard to get right, I'm not sure about it's meaning `カイは、不慣れな武器に遅れをとるような半端な修練はしていない。`
-
 Kai never fooled around when it came to drills; he would not fall behind against enemies using unfamiliar weapons.
 This was the difference between talent and training alongside enthusiasm.
 For that reason he held a pride for not being defeated against the four race's heroes.
@@ -540,7 +538,7 @@ Even though I've been entrusted by Sid with this, what a mess it turned out to b
 
 It was the same as with Dark Empress Vanessa.
 Just before disappearing due to the Zero Code change, the other race's hero had remembered about Sid.
-It was a common point between them.
+It was quite a coincidence.
 
 "Are you the same as Vanessa!? What do you know about world reincarnation?"
 

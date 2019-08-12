@@ -927,7 +927,7 @@ We win and after that we will properly talk!"
 "Disrespectful people."
 
 The angel spread his six wings.
-And then covered in the hundreds of fluttering feathers, he swung down his silver rod.
+And then covered in the hundreds of fluttering feathers, he swung down his silver baton.
 
 Magnificat [Heavenly Zhen Lighting]
 
