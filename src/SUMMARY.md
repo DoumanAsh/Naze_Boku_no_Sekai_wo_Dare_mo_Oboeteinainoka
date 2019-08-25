@@ -18,3 +18,4 @@
     - [World.4 Elven Forest](./2/world4.md)
     - [World.5 Heavens Purgatory](2/world5.md)
     - [World.6 Black Morning Star](2/world6.md)
+    - [Epilogue The Last two](./2/epilogue.md)

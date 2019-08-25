@@ -1140,7 +1140,7 @@ Towards angel who wore a smile of derision.
 
 Once the rasterrizer appeared to keep Vanessa, who started to regain her memories, silent.
 And surely since this monster is his subordinate, that angel must know something about world reincarnation that Vanessa tried to speak of.
-Or maybe that angel was indeed the ringleader behind it, whom Vanessa mentioned about.
+Or maybe that angel was indeed the culprit behind it, whom Vanessa mentioned about.
 
 "What are you talking about?"
 
@@ -1148,7 +1148,7 @@ In response the foreign gods hero returned a dubious look.
 
 "This is my new power. And world reincarnation? What is it?"
 
-"!? I was wrong, you're not the ringleader behind it, and know nothing about world reincarnation!?
+"!? I was wrong, you're not the one behind it, and know nothing about world reincarnation!?
 Then what about Sid?
 Do you know nothing about prophet Sid!?"
 

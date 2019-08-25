@@ -57,7 +57,7 @@ _And both me and Rinne just appeared in different world._
 But if they'd believe Vanessa's words.
 Then it was actually reverse, and the world itself fall under this unusual phenomena, while Kai and Rinne were able to escape it.
 If that's the case then how should they resolve this problem?
-Obviously by finding ringleader behind alternation of the world.
+Obviously by finding the culprit behind alternation of the world.
 At the present moment, they had no leads, other than Vanessa's words.
 
 "Kai, Rinne."
@@ -219,7 +219,7 @@ Urza Government Palace.
 The proof of their fight.
 There was evidence that humanity took back capital from hands of demon hero.
 
-"I'll find the ringleader behind it.
+"I'll find the culprit behind it.
 Regardless who it is, I'll not back down.
 And..."
 
