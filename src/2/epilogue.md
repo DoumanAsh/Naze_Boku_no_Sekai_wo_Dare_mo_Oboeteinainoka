@@ -585,7 +585,7 @@ There were only two heroes left.
 
 Cryptids hero [Fang King] Rath=IE.
 
-Spirits hero [Spirit Sovereign] Rokugen Kyouko.
+Spirits hero [Spirit Sovereign] Rikugen Kyouko.
 
 If Vanessa words to be believed, then the culprit behind [World Reincarnation] ought to be among the remaining two.
 However...
