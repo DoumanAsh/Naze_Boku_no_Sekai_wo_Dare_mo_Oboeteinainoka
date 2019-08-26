@@ -1,8 +1,8 @@
-![Cover](./midashi09.jpg)
+![Cover](./midashi109.jpg)
 
 Southern part of great continent.
-In Yurun Federation, there is mountain near its border and on top there is waterfall which is counted as sacred among spirits.
-It is unexplored region [Iguazu Fall Great Waterfall].
+In Yurun Federation, there was mountain near its border and on top there was waterfall which was counted as sacred among spirits.
+It was unexplored region known as [Iguazu Fall Great Waterfall].
 
 It was a breeding grounds for mysterious spirits.
 Even though humans, who lost their territories, continued their attempts to invade, they withdrew each time when spirits counter attacked.

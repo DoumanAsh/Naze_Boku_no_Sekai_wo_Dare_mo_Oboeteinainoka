@@ -3,7 +3,7 @@
 Io Federation - 8th ward Cassiopeia -
 Resistance base.
 
-From his office on the second floor, emperor Dante was gazing down lively chatter of his subordinates down below.
+From his office on the second floor, emperor Dante was gazing at lively chatter of his subordinates down below.
 
 "How are you felling?"
 
@@ -15,13 +15,13 @@ Even though he was already over 50 years old, his trained and tanned body looked
 
 "..."
 
-"Falling into such pathetic state, by inhaling this poisonous pollens of elven forest, and remaining unconscious for three days."
+"Falling into such pathetic state, by inhaling this poisonous pollens of elven forest, and remaining unconscious for three days.
 My body still feels heavy.
 And just standing makes my knees about to give away."
 
 It is been two days since his release from elven forest.
-On night before yesterday, while remaining unconscious they've been brought to the base together with military cars.
-And yesterday they came back to their senses.
+On night before yesterday, while remaining unconscious he've been brought to the base together with their military cars.
+And yesterday he came back to their senses.
 Though the same could be said about Tsekhman.
 
 "What about you"
@@ -284,7 +284,7 @@ Remembering the battle day before yesterday, Kai addressed the Commander, who wa
 "Jeanne, how is your wound? This morning, you mentioned it was still in pain."
 
 "It is all right.
-At morning I've been worried since the pain remained, but right now I was walking in forest just fine."
+At morning I've been worried since the pain remained, but today I was able to walk in the forest just fine."
 
 The knight, who was pretending to be a man, placed her hand on armour.
 Armour, that covered Jeanne's body, was solid metal, but despite that she was left  with terrible acute cutting wound, which was going from her back to side.
@@ -374,7 +374,7 @@ Moreover she started putting more strength into her clinging.
 
 "Jeannya is aiming for Kai!"
 
-"This again!? I told you it is misunderstanding, Rinne, could you stop clinging, please?"
+"This again!? I told you it is misunderstanding, Rinne, could you please stop clinging?"
 
 "No way, I'm not leaving you."
 
@@ -386,7 +386,7 @@ From Kai's point of view it looked like two lovely girls are messing around, but
 "You know, Jeannya immediately tries get alone together with Kai, as soon as I take my eyes off.
 That's why it is dangerous to not standing a watch."
 
-"That's false accusations!? I'm always conducting myself as commander when talking to Kai!"
+"That's a false accusations!? I'm always conducting myself as commander when talking to Kai!"
 
 "...Jeanne, so it is like that..."
 
@@ -435,7 +435,7 @@ Elven shrine maiden called out Jeanne from behind.
 Otherwise I wouldn't be leisurely spending time here.
 Thee did the same, didn't thee?"
 
-"..Yeah, we've discussing it with Io Resistance."
+"..Yeah, we've discussed it with Io Resistance."
 
 Looking at Jeanne, who answered like that, there was no Fairin by her side.
 As being responsible for negotiations with foreign gods, Fairin has been finalizing details of agreement in the village.
@@ -480,7 +480,7 @@ Kai, Rinne, Jeanne.
 Fairin, Saki and Ashlan.
 
 At elven village's plaza.
-When Kai arrived there, he could see gathered here Fairin, Saki and Ashlan, in discussion with the elder.
+When Kai arrived there, he could see gathered there Fairin, Saki and Ashlan, in discussion with the elder.
 And up in the tree...
 
 "Forgive me, thee might be worried about it, but this matter concerns all foreign gods.
@@ -611,8 +611,8 @@ Words of both Vanessa and Alfreyja were contradictory to each other.
 The chill, that he felt reaching his neck, made Kai reflexively hold his breath.
 
 It was supposed to take just a bit more...
-Just finding among the culprit among two remaining heroes.
-Although he thought that the culprit is among remaining heroes, he had uncanny feeling that he is walking through never-ending darkness.
+Just finding the culprit among two remaining heroes.
+Although he thought that the culprit was indeed among remaining heroes, he had uncanny feeling that he is walking through never-ending darkness.
 
 "Finding the one behind world reincarnation, and the true colours of rasterrizer..."
 
@@ -736,14 +736,14 @@ Elven leader pointed at the screaming girl.
 
 "Mu?"
 
-"I thought that during our negotiations with humans you would quickly join my side, yet you stood by his side all this time."
+"I thought that during our talks with humans you would quickly join my side, yet you stood by his side all this time."
 
 "That's right! It makes me curious too!"
 
 Seeing the opportunity, Rinne voiced her agreement.
 
 "That elf here is sly fox, standing besides Kai is for me only.
-Could it be... After Jeannya you're the next to aim for Kai!"
+Could it be... First Jeannya, now you're the next to aim for Kai!"
 
 "It is misunderstanding!?"
 
