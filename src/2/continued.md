@@ -1,36 +1,36 @@
 ![Cover](./midashi109.jpg)
 
-Southern part of great continent.
-In Yurun Federation, there was mountain near its border and on top there was waterfall which was counted as sacred among spirits.
-It was unexplored region known as [Iguazu Fall Great Waterfall].
+Southern part of the great continent.
+In Yurun Federation, there was a mountain near its border, and on top there was a waterfall which was considered sacred among spirits.
+It was an unexplored region known as [Iguazu Fall Great Waterfall].
 
-It was a breeding grounds for mysterious spirits.
-Even though humans, who lost their territories, continued their attempts to invade, they withdrew each time when spirits counter attacked.
-And on the cliff, where great waterfall could be overlooked...
+It was the breeding grounds for mysterious spirits.
+Even though humans, who lost their territories, continued their attempts to invade, they had to withdraw every time spirits counterattacked.
+And on the cliff, from where the great waterfall could be seen...
 
 "Long time no see, Rikugen Kyouko.
 Aren't you quite early?"
 
 There was a lone beastman.
-This beastman fur was that of colour of blazing fire, and as he announced himself to the enemy he appeared on opposite side.
+This beastman's fur had colour that of blazing fire, and as he announced himself to the enemy he appeared on opposite side.
 Delighted, he spoke fluently in human language.
 
-"Not accompanied by your subordinates.
+"You're not accompanied by your subordinates.
 Looks like you were in a quite a haste rushing here."
 
 [...]
 
-Face to face with fully blue slime.
-If one would try to compare, it was looking like a solidified and transparent blue, like [ocean], jelly in human shape.
+Face to face with the fully blue slime.
+If one would try to describe her with analogies, she was transparent blue like the [ocean], solidified into a jelly in human shape.
 Spirits hero [Spirits Sovereign] Rikugen Kyouko...
-Deep blue and semi-transparent girl was glaring at cryptids hero without a single word.
+The deep blue and semi-transparent girl was glaring at the cryptids hero without a single word.
 
 "For Vanessa to drop out the first was quite unexpected.
-For such careful demon she made quite a blunder.
+For such a careful demon, she made quite a blunder.
 Don't you think so?"
 
 It was Fang King Rath=IE.
-The cryptids hero, who was regarded as coming from ancient beast lineage, didn't stop ridiculing manner of speech.
+The cryptids hero, who was regarded as coming from ancient beast lineage, didn't stop his ridiculing manner of speech.
 
 "Alfreyja was quite a disappointment."
 
@@ -43,13 +43,13 @@ It is quite lonely now, don't you think?"
 This question wasn't pointed towards to Rikugen Kyouko.
 But towards the monster, that soon enough followed the small beastman.
 It was a rasterrizer...
-Obviously different from the fellow cryptids the monster was being caressed by the Fang King Rath=IE with affection.
+Obviously different from the fellow cryptids, the monster was being caressed by the Fang King Rath=IE with affection.
 
 It was different from Heaven Lord Alfreyja.
 Rasterrizer liked it pretty much.
-Like a faithful dog gladly accepting master's caressing.
+Like a faithful dog gladly accepting its master's caressing.
 
-"Alfreyja end was quite unsightly.
+"Alfreyja's end was quite unsightly.
 Thoughtlessly trying to resist this pup's power and failing to control it.
 His intolerance brought his doom."
 
@@ -62,7 +62,7 @@ And towards such silent treatment.
 
 "Listen, Rikugen Kyouko. Being the sage of this world, you should understand this, right?"
 
-Cryptids hero spread his hands and declared:
+The cryptids hero spread his hands and declared:
 
 "Spirits shall disappear from the face of this world today."
 
@@ -73,8 +73,8 @@ Afterword
 
 Why did angel fall?
 
-Fallen angel - as name suggests, it is a angel that has fallen from heaven.
-This time it is a <span title="Written as enemy">theme</span> of this volume.
+Fallen angel - as name suggests, it is an angel that has fallen from heaven.
+This time it is the <span title="Written as enemy">theme</span> of this volume.
 Still, to add some twist to it, in this novel I explored another meaning behind angels losing their wings.
 Why does fallen angel acquire the strength?
 And then why the price for it are wings?
@@ -85,7 +85,7 @@ First of all thank you, fortunately the first volume was well received, from now
 It makes me really glad, thank you very much!
 
 The story so far is just a prologue, and I want to continue working on it.
-The second volume advanced the plot quite a lot, but I think the pace it is going right now is all right.
+The second volume advanced the plot quite a lot, but I think the pace it is going at right now is all right.
 With that, the world in my work is still having lots of secrets remaining, so I want to continue with the same pace in next volume.
 In addition to that, the next volume is scheduled for 24th February.
 Right now as I'm writing this afterword I'm in the middle of working on next volume.
@@ -94,12 +94,12 @@ And while you're waiting for the next year, if it is ok, allow me to introduce a
 
 "The Last Battlefield Between You and I, or Perhaps the Beginning of the World’s Holy War"
 
-This is heroic fantasy story about clash between young swordsman and witch heroine.
+This is a heroic fantasy story about clash between young swordsman and witch heroine.
 The main hero and heroine are mortal enemies, so what is going to happen to them? - This is the main theme of this work.
 There have been only two volumes published so it should be easy to pick up.
-As "Naze Boku" it was quite well received, and it is a story that I want to continue working on together with Naze Boku.
+Same as "Naze Boku" it was quite well received, and it is a story that I want to continue working on together with Naze Boku.
 It would make me glad if you'd go to pick it at your book store.
-And exactly month later, on 17th November, 3 Volume is going to be published, so timing is perfect to pick it up!
+And exactly one month later, on 17th November, 3 Volume is going to be published, so timing is perfect to pick it up!
 
 Well then, there are not much pages left.
 At last allow me to use this opportunity to express my gratitude.
