@@ -153,7 +153,7 @@ The same goes for dwarves and fairies."
 But before that, Kai."
 
 Reiren, who was ahead of him, stopped.
-And it came to his mind that it was the first time for this elf to address him using something else than [you].
+And it came to his mind that it was the first time for this elf to address him using something other than [you].
 
 "I have one question.
 That girl, called Rinne, is not human."
@@ -269,7 +269,7 @@ Commander aide Qubiley had been putting elven enhancement drug into his meals li
 This drug was able to enhance your mind during battle, but continuously taking the medicine would make you behave violently.
 And in fact it was likely that Dante's violent outbursts were due to taking it every day.
 
-_There was a talk about Dante being violent since birth..._
+_There was a talk of Dante being violent since birth..._
 
 _That's why his subordinates never noticed when it became worse._
 
