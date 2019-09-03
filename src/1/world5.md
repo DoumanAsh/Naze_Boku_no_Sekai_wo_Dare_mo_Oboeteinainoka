@@ -2009,7 +2009,7 @@ How humans are full of potential.
 How you will show future of humanity.
 But in the end it is all lies."
 
-Spirits have their hero **Spirit Sovereign Rokugen Kyouko**
+Spirits have their hero **Spirit Sovereign Rikugen Kyouko**
 
 Foreign gods have their hero **Heaven Lord Alfreyja**
 

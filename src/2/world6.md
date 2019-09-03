@@ -553,7 +553,7 @@ With his body crumbling, the foreign god's hero looked over his subordinates and
 
 "As for World reincarnation, that rasterrizer is related to it.
 Summoning this creature...
-There is a ringleader behind it."
+There is someone behind it."
 
 Still the Angel's gaze was fixed...
 On Kai, not looking away at all.

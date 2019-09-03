@@ -176,7 +176,7 @@ Hero [Dark Empress] Vanessa who leads, demon race, wielders of powerful magic.
 
 Hero [Heaven Lord] Alfreyja who leads foreign gods, composed of angels and elves.
 
-Hero [Spirit Sovereign] Rokugen Kyouko who leads spirits, very peculiar creatures like ghosts.
+Hero [Spirit Sovereign] Rikugen Kyouko who leads spirits, very peculiar creatures like ghosts.
 
 Hero [Fag King] Rath=IE who leads cryptids, gigantic and ferocious beasts.
 
@@ -1239,7 +1239,7 @@ Foreign god [Heaven Lord Alfreyja].
 
 Cryptid hero [Fang King Rath=IE].
 
-Spirit hero [Spirit Sovereign Rokugen Kyouko].
+Spirit hero [Spirit Sovereign Rikugen Kyouko].
 
 The single person hold enough power to destroy a single country.
 Their strength was so big that they could be said to be natural disaster or calamity.

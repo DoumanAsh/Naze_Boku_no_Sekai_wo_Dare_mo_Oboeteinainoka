@@ -255,7 +255,7 @@ Foreign god's hero **Heaven Lord Alfreyja**
 
 Cryptid's hero **Fang King Rath=IE**
 
-Spirit's hero **Spirit Sovereign Rokugen Kyouko**
+Spirit's hero **Spirit Sovereign Rikugen Kyouko**
 
 All four of them boasted unparalleled strength and therefore they led their race.
 But for humans, who were weakest, they were unstoppable obstacle.
