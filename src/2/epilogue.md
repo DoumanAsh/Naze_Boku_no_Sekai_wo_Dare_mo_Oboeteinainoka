@@ -40,7 +40,7 @@ Hearing these words from his Commander, the grey-haired soldier blankly stared w
 
 He turned away from the old soldier.
 And for a short while, they remained silent.
-Only the sound of the seconds hand ticking away echoed in the room, from the clock in the corner...
+Only the sound of the seconds ticking away echoed in the room, from the clock in the corner...
 
 "Is he a destined hero?" _TL Note:_ I honestly not sure how to TL `運命の落とし子か`
 
@@ -90,7 +90,7 @@ There was a matter of signing a treaty with the elven elder.
 It was the first cease-fire agreement between humans and foreign gods.
 According to the emperor's secret plan, he was the one who was supposed to do the honours himself.
 
-But if one would ask if he planned to compete for this important duty, 
+But if one would ask if he planned to compete for this important duty,
 the answer would be no.
 He had no will to compete any longer.
 As his previous words stated: his main credo was to never fight a battle that he cannot win.
@@ -153,7 +153,7 @@ The same goes for dwarves and fairies."
 But before that, Kai."
 
 Reiren, who was ahead of him, stopped.
-And it came to his mind that it was the first time for this elf to address him as something different from [you].
+And it came to his mind that it was the first time for this elf to address him using something else than [you].
 
 "I have one question.
 That girl, called Rinne, is not human."
@@ -220,7 +220,7 @@ _TL Note:_ `自分と主天は、敵味方を越えた共通の意識で繫が�
 The elf coughed.
 
 "I didn't talk about it to my companions in the village.
-If someone came to know that an elf bowed in gratitude to a human, it would become quite an uproar.
+If someone came to know that an elf bowed in gratitude to a human, it would cause quite an uproar.
 I also have to consider my position."
 
 Reiren said in a slightly awkward manner.
@@ -269,7 +269,7 @@ Commander aide Qubiley had been putting elven enhancement drug into his meals li
 This drug was able to enhance your mind during battle, but continuously taking the medicine would make you behave violently.
 And in fact it was likely that Dante's violent outbursts were due to taking it every day.
 
-_It was known that Dante was so violent since birth..._
+_There was a talk about Dante being violent since birth..._
 
 _That's why his subordinates never noticed when it became worse._
 
@@ -329,7 +329,7 @@ She was likely at loss of words, since besides her was Kai.
 "Like any living organism then.
 I have no confidence when it comes to distinguishing male and female among humans.
 Therefore I was thinking thee art man, but once I looked at thee without clothes.
-I was..."
+And, oh my..."
 
 "Do not say!?"
 
@@ -642,7 +642,7 @@ Western country Schultz, which was under cryptid's domination.
 Southern country Yurun, which was under spirit's domination.
 
 It could be either of them, and she was yet to decide where to head.
-Though if they'd want to investigate the reason behind Alfreyja's sudden change, then it would be south where the Fang King was.
+Though if they'd want to investigate the reason behind Alfreyja's sudden change, then it would be the west where the Fang King was.
 But it wasn't something they could tell to their enemies.
 
 "I'm sorry, but I cannot tell you."
