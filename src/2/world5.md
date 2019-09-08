@@ -1,90 +1,93 @@
 ![Cover](./midashi06.jpg)
 
-Depths of elven forest.
-Animal trail, which was illuminated by deep green sunlight.
-Fairin, who stopped on the road, turned off <span title="jp. 通信機 From now on just radio">radio<span>.
+Depths of the elven forest.
+Animal trail, which was illuminated by the deep green sunlight.
+Fairin, stopping her feet, turned off the <span title="jp. 通信機 From now on just radio">radio<span>.
 
 "Jeanne-sama, I've finished contacting our unit at the forest's entrance."
 
 "How is it?"
 
-"While it is now hard to get through due to distance, but I was able to report that we're safe.
-I also requested Io communication unit to work on bettering communications."
+"While it is now hard to get through due to the distance, but I was able to report that we're safe.
+I also requested Io communication unit to work on improving the connection."
 
 "...We'd have to report our triumph after all."
 
 Jeanne tightened her lips.
-Their report this morning was to ensure that it wouldn't be their last call.
-They had to complete their end of deal with elves, retrieve Dante alongside his subordinates and return bakc.
+In order to ensure that their report this morning was not their last call as well,
+they had to complete their end of the deal with the elves, retrieve Dante alongside his subordinates, and return back.
 
-"Is rest already over?"
+"Is the break over?"
 
-Elven shrine maiden Reiren, who was sitting on ancient tree's root, asked.
+Elven shrine maiden Reiren, who was sitting on the ancient tree's root, asked.
 
 "Then let us proceed. We are almost upon our destination."
 
-"...We've been walking for over 1 hour but, are we really so close?"
+"...We've been walking for over an hour, but are we really close?"
 
 Kai called out her, who was about to turn her back to them.
-His hand, on which shoulder he was carrying Drake Nail, was already sweating quite a lot.
-They've been following through serpentine animal trails, thick areas filled with ancient trees and even crossing river within the forest.
+His hand shouldering Drake Nail was already sweating quite a lot.
+They had been following serpentine animal trails, thick areas filled with ancient trees and had even crossed a river within the forest.
 Yet they still hadn't reached their destination.
 
-"I think we should see angel palace now."
+"I think we should be able to see the angel palace now."
 
 "I see it. Look."
 
-Elven girl pointed above their heads.
-The view was obstructed for the most part by branches of towering ancient tree,
-and sky could be hardly seen from within a forest.
+The elven girl pointed above their heads.
+Their view was obstructed for the most part by branches of the towering ancient tree,
+and the sky could be hardly seen from within the forest.
 
-"Angel palace is up there.
-The floating fortress on top of the ancient tree.
-It is finest work of elves, dwarves and fairies.
+"The angel palace is up there.
+The floating fortress built on top of the ancient tree.
+It is the finest work of elves, dwarves and fairies.
 Which we already told thee."
 
 "...Above there?"
 
 Shadow covered them from above.
-He thought it was shadow of ancient tree, but he didn't expect it to be a shadow of angel palace.
+He thought it was the shadow of the ancient tree, but he didn't expect it to be that of the angel palace.
 
-"It is not the only floating fortress of angels.
-Hovewer it is called a angel palace, not only because it is so high.
-It is also home of Alfreyja-dono...
+"It is not the only floating fortress of the angels.
+Hovewer it is called the angel palace, not only because it is so high.
+It is also the home of Alfreyja-dono...
 Now, here it is."
 
-Elven girl tore off leaf out of ancient tree.
-And there was magical circle.
-As she touched it, a huge magic circle of bright light have risen from the ground.
-It was magic with double trigger.
-Before one could activate the teleportation gate, they had to activate small hidden magic circle on tree's trunk.
+The elven girl tore a leaf off the ancient tree.
+And there was a magic circle.
+As she touched it, a huge magic circle of bright light rose from the ground.
+It was a magic with double triggers.
+Before one could activate the teleportation gate, they had to activate the small magic circle hidden on tree's trunk.
 
-"It might be a weird thing to ask for me, but is such complicated device is countermeasure against humans?"
+"It might be a weird thing to ask for me, but is such a complicated device a countermeasure against humans?"
 
 "Well that's quite a question, isn't?
 We are enemies." _TL Note:_ I feel like I didn't express Reiren here well enough, but to be honest it is kinda difficult to get her meaning here `よくもまあ堂々と聞くものじゃ。ワシらは敵じゃぞ`
 
-Girl, who stood on ancient tree's roots, turned towards him with bewildered look.
+The girl, who stood on the ancient tree's roots, turned towards him with a bewildered look.
 She answered with a faint smile.
 
 "The answer is [Nay]. We hold no fear towards humans.
 The only one we regard as dangerous are demons and cryptids, then spirits."
 
-"Demons were the same, completely ignored humans."
+"Demons were also the same; they completely ignored humans."
 
 "...Kai, I see what thee meant by this question.
-If angels are not regarding humans as danger, then it is likely that inside palace there will not be many guards?"
+If angels are not regarding humans as danger, then it is likely that there will not be many guards inside the palace ?"
 
-"Yeah, besides angels are, too, placing majority of their floating fortress alongside Io national border."
+_Edit note @Douman: Reiren says [カイとやら。] here, which means she doesn't call him by name. Do we implement that here by saying something like "...Guy named Kai, I see what thee meant by this question."? It does sound unnatural, not sure what to do with this!_
+
+"Yeah, anyway the angels are probably placing the majority of their floating fortresses alongside the Io national border as well."
+_Edit note @Douman: [どうせ天使たちも X しているんだろ] = "Anyway the angels are also probably doing X"? I think どうせ translates better to anyway? o.o_
 
 The same attitude as that of Urza's demons.
-They are focusing their power on borders as they are wary of invasion from other races.
+They are focusing their power on the borders, as they are wary of invasion from other races.
 
 _Then we have more than enough chances to return alive._
 
-_After all the number of angels is definitely not big inside palace._
+_After all the number of angels inside the palace is definitely not that big._
 
-After securing elven elder, they would just escape before angels would come rushing in from other floating fortress.
+After securing the elven elder, they would just escape before angels come rushing in from the other floating fortresses.
 
 "So thee shall return back alive?"
 
@@ -94,27 +97,27 @@ After securing elven elder, they would just escape before angels would come rush
 I wouldn't take such measures otherwise.
 Like this."
 
-Elven girl used hood of her travelling attire to conceal her face.
-Her figure was concealed by mantle.
-As under it she had her seventh layered spirit garments it was quite big, but with such appearance it was difficult to recognize her as a elf.
+The elven girl used the hood of her travelling attire to conceal her face.
+Her figure was concealed by a mantle.
+It was quite big as she had her seven layered spirit garments under it, but with such an appearance it was difficult to recognize her as an elf.
 
-She used special perfume to mask elven odour as that of human.
-And put on necklace that suppressed her magic powers.
+She used a special perfume to mask her elven odour as that of human,
+And put on a necklace that suppressed her magic powers.
 
 She erased all elven traces in her appearance.
-And right now she looked just like human girl in travelling outfit.
+And right now she looked just like a human girl in travelling outfit.
 
 "How is it?
-With this even if angels would see me, they'd never think it is [elf who is guiding humans]."
+With this even if angels would see me, they'd never think I'm [an elf who is guiding humans]."
 
 "Yeah, then only humans are going to fight with angels.
 And you'll remain neutral."
 
-"That's right, we shall not assist angels and neither will look for opportunity to strike thee.
+"That's right, we shall not assist the angels and neither will look for opportunities to strike thee.
 Elves will keep their promise."
 
 Teleportation magic circle.
-Elven girl stepped into light of so-called gate.
+Elven girl stepped into light of the so-called gate.
 
 "Come, Kai, thee are first after all."
 
@@ -122,25 +125,25 @@ Elven girl stepped into light of so-called gate.
 
 With Drake Nail in his hand, Kai lined up with the elf.
 
-_If it is trap, then stepping in with everyone would meen our complete annihilation._
+_If it is a trap, then stepping in with everyone would mean our complete annihilation._
 
-_I alone will confirm if it safe, and then others will come along._
+_I alone will confirm if it is safe, and then the others will come along._
 
-It was decision they made last night.
+It was a decision they had made last night.
 If Drake Nail is loaded with elven bullets then it is capable of erasing magic power.
-Moreover with Code Holder as his trump card, even if Kai would be surrounded by angels, he still would be able to fight against them.
+Moreover with Code Holder as his trump card, even if Kai would be surrounded by angels, he would still be able to fight against them.
 That's why the scouting duty fell onto him.
 
-"Hey, Kai, wouldn't it be fine for me to go first?" - asked Rinne with uneasiness in her voice - "I'm strong, so even if I surrounded..."
+"Hey, Kai, wouldn't it be fine for me to go first?" - asked Rinne with uneasiness in her voice - "I'm strong, so even if I get surrounded..."
 
-"If only Rinne would remember how to use radio...
-Not being able to contact us after going in, would make it meaningless."
+"If only Rinne remembered how to use the radio...
+Not being able to contact us after going in would make it meaningless."
 
 Putting his hands on her shoulders, Kai responded with a joke.
 
 "...I'm leaving you a dangerous role. I'll be praying for your safety."
 
-"Once I'll confirm it is safe, I'll call you."
+"Once I confirm it is safe, I'll call you."
 
 Responding with these words to Jeanne, Kai stepped into light of magic circle.
 
