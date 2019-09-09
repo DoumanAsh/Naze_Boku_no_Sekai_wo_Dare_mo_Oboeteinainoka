@@ -240,10 +240,10 @@ This is the beginning of his adventure.
 Afterword
 ---
 
-Thank you for picking “Why no one remembers my world?”.
+Thank you for picking “Why does no one remember my world?”.
 This is author, Sazane Key.
 
-How was the first volume of “Why no one remembers my world?”?
+How was the first volume of “Why does no one remember my world?”?
 
 For protagonist of the story it is quite rough start.
 Being forgotten by his childhood friend, and comrades.

@@ -20,3 +20,5 @@
     - [World.6 Black Morning Star](2/world6.md)
     - [Epilogue The Last two](./2/epilogue.md)
     - [Continued Last Hero](./2/continued.md)
+* [Volume 3](./3/index.md)
+    - [World.1 To The South](./3/world1.md)

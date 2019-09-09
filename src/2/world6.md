@@ -391,7 +391,7 @@ This was his price for devoting himself fully to magic attack power.
 
 He roared.
 The overpowered angel was yet to fall.
-_Edit note: Just what kind of overclocking is this lol._
+_ED note: Just what kind of overclocking is this lol._
 
 He was transforming all of his life force into magic power.
 In fact he was using so much power that his wings had completely withered. Yet, as he received Jeanne's attack his killing intent was only rising more.

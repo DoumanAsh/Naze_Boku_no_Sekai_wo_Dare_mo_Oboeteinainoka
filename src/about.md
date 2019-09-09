@@ -6,7 +6,7 @@
 
 ## Synopsis
 
-“Why no one remembers my world?”
+“Why does no one remember my world?”
 
 The era when the five great races were competing for hegemony ended with the victory of mankind led by the hero Sid.
 However, that world was suddenly “overwritten” in front of a boy named Kai.

@@ -752,8 +752,8 @@ And mighty demoness only shrugged in response with chuckle.
 It was cold voice, the voice hold enough power to just freeze humans.
 
 "Don't get carried away.
-Altough it was miracle piled on another miracle that you were able to defeat onee-sama,
-If three of us would remain here at capital, you'd have no chance of winning."
+It was miracle after another that you were able to defeat onee-sama,
+Still If three of us would remain here at capital, you'd have no chance of winning."
 
 At the time when he was fighting Dark Empress, these three hero ranked demons never showed themself.
 Just where they were...?
