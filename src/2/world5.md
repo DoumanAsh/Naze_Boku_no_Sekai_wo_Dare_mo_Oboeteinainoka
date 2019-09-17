@@ -1519,8 +1519,8 @@ _The hero has been over-written. Is that it!?_
 He spread both of his hands and looked up.
 He used his hands as if to replace the no longer moving wings.
 
-[Everything except me.
-First I ought burn down all foreign gods who pollute the earth.]
+[Everyone except me.
+First I ought burn down all corrupted foreign gods who walk the ground.]
 
 It was the declaration of war.
 It was the announcement of complete [genocide] of all foreign gods from the fallen angel Alfreyja.

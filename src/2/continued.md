@@ -80,7 +80,7 @@ Why does fallen angel acquire the strength?
 And then why the price for it are wings?
 I hope you were able enjoy this second volume.
 
-Well then, I thank you for choosing to read “Why no one remembers my world?” Volume 2.
+Well then, I thank you for choosing to read “Why does no one remember my world?” Volume 2.
 First of all thank you, fortunately the first volume was well received, from now on I'll be able to continue this series.
 It makes me really glad, thank you very much!
 

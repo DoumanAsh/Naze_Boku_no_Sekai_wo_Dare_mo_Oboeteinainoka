@@ -745,7 +745,7 @@ Seeing the opportunity, Rinne voiced her agreement.
 "That elf here is a sly fox. Standing next to Kai is only for me.
 Could it be... First Jeannya, now you're the next to aim for Kai!"
 
-_Edit Note: Go for it, Rinne! Fight to claim back your rightful place!_
+_ED Note: Go for it, Rinne! Fight to claim back your rightful place!_
 
 "It is a misunderstanding!?"
 
