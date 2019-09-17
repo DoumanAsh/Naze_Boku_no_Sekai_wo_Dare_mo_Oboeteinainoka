@@ -2,7 +2,7 @@
 
 A solemn ancient tree was standing upright.
 Being several hundred years old, the tree had grown so much that it seemed to be piercing through the heavens.
-It had countless branches; its thick leafs were still fresh emitted a wild fragrance.
+It had countless branches; its thick leafs were still fresh, emitting a wild fragrance.
 
 Elven forest...
 At the place where this ancient tree several hundred years old was standing, the scenery was captivating in all directions.
@@ -52,9 +52,6 @@ Saying so, Kai jumped up from the root on which he was sitting.
 
 "Don't worry. When it comes to Rinne, wherever I am, she can quickly..."
 
-_TL Note:_ TODO `リンネなら俺がどこにいてもすぐ──` I'm not sure how to re-order sentence to not miss the port about Kay's place
-_ED Note:_ How does the above wording sound?
-
 "Quickly?"
 
 "...She'll come back for sure.
@@ -96,7 +93,7 @@ They tend to carry on, without sleeping or even a single drop of water."
 "I cannot imagine."
 
 "Yeah, hearing it made me shiver.
-And we were fighting against races that could calmly talk about something like that."
+And we were fighting against the race that could calmly talk about something like that."
 
 A bitter smile appeared on the female commander's face.
 
@@ -412,6 +409,7 @@ My body, which has no unnecessary meat, is in fact the best!"
 "What is wrong with being flat!?"
 
 _TL Note:_ Oi, Rinne did you get bullying license on our flat goddess!?
+
 _ED Note:_ She's not wrong though... :eyes:
 
 Rising both of her hands above her head, she poured spring water onto Rinne's face.
@@ -565,7 +563,7 @@ Each of the 18 human cities is guarded by Resistance soldiers, who serve as defe
 The headquarters of the Resistance was in 8th ward Cassiopeia.
 It was at the site of what was once a large scale factory, and in one of the areas there...
 
-"Jeanne-dono, are you about to depart...?"
+"Jeanne-dono is about to depart... right?"
 
 In the office for commanding officers.
 There were three man and woman standing in this room, with curtains obscuring the sunlight.
