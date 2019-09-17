@@ -4,7 +4,7 @@ Continent's eastern part -
 Third of it is covered by mountains, while the remaining parts are assumed to be covered by forests.
 The reason for it to be assumption is quite simple.
 It was one of [unexplored regions] which humans are yet to step on and investigate.
-Taking as example world's largest forest <span title="jp. シィエル・ミ">Ciel Mi</span>, humanity only investigate at most 20% of it.
+Taking as example world's largest forest <span title="jp. シィエル・ミリ">Ciel Mir</span>, humanity only investigate at most 20% of it.
 There are even reports indicating that there dozens of undiscovered animals, insects and plants.
 And this gigantic sea of trees is current domain of Foreign gods.
 

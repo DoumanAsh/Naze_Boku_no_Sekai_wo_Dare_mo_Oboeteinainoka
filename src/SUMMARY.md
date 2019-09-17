@@ -22,3 +22,4 @@
     - [Continued Last Hero](./2/continued.md)
 * [Volume 3](./3/index.md)
     - [World.1 To The South](./3/world1.md)
+    - [World.2 Elven Forest, Gods Hokora](./3/world2.md)
