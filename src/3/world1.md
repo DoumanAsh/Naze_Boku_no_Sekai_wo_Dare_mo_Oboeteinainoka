@@ -260,7 +260,7 @@ And there is even small fish swimming around."
 
 "U-umu.
 It is filtered water from within underground after all.
-For every living creature in the forest this is a basin, with an abundance of clear water....
+With an abundance of clear water, this is a watering place for every living creature of the forest...
 Wait, no, that's not it!"
 
 She waved her hand and pointed towards Rinne in front of her.
