@@ -75,10 +75,7 @@ The only one we regard as dangerous are demons and cryptids, then spirits."
 "...Kai, I see what thee meant by this question.
 If angels are not regarding humans as danger, then it is likely that there will not be many guards inside the palace ?"
 
-_Edit note @Douman: Reiren says [カイとやら。] here, which means she doesn't call him by name. Do we implement that here by saying something like "...Guy named Kai, I see what thee meant by this question."? It does sound unnatural, not sure what to do with this!_
-
-"Yeah, anyway the angels are probably placing the majority of their floating fortresses alongside the Io national border as well."
-_Edit note @Douman: [どうせ天使たちも X しているんだろ] = "Anyway the angels are also probably doing X"? I think どうせ translates better to anyway? o.o_
+"Yeah. Besides angels are probably placing the majority of their floating fortresses alongside the Io national border as well."
 
 The same attitude as that of Urza's demons.
 They are focusing their power on the borders, as they are wary of invasion from other races.
