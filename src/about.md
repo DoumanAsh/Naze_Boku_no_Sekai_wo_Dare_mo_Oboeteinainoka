@@ -34,3 +34,13 @@ Or my personal discord server: https://discordapp.com/invite/D3NvRwE
 These are people who helped me with TL:
 
 - [Polta](https://twitter.com/Potla1995) - For giving out feedback and edits to my TL
+
+## Support author
+
+If you enjoy the novel, be sure to support Sazane-sensei
+
+- Buy novel
+    - [Publisher](https://mfbunkoj.jp/special/nazeboku/)
+    - [Rakuten](https://books.rakuten.co.jp/search?sitem=%E3%81%AA%E3%81%9C%E5%83%95%E3%81%AE%E4%B8%96%E7%95%8C%E3%82%92%E8%AA%B0%E3%82%82%E8%A6%9A%E3%81%88%E3%81%A6%E3%81%84%E3%81%AA%E3%81%84%E3%81%AE%E3%81%8B&g=101903&l-id=search-l-genre-2) - Easily can be made DRM free
+- [Sazane Key twitter](https://twitter.com/sazanek)
+
