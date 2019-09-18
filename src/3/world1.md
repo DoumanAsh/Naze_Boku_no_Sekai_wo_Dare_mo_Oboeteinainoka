@@ -432,6 +432,7 @@ Appearing out of the bushes in front of the girls while searching for them, Kai 
 He looked back and forth between the clothes of two girls on the bank side, and the girls themself soaking in cold water.
 
 _ED Note:_ Here comes the most cliché event of all time!
+
 "..Ah, s-sorry! I didn't mean..."
 
 "Kai, how is it? Did you find them?"
@@ -464,7 +465,7 @@ And the victor in this war was humanity, with [prophet] Sid as their leader.
 Sid had crushed the four other races and sealed them away in remote regions.
 
 However...
-This history disappeared all of the sudden.
+That history disappeared all of the sudden.
 Instead it became the opposite.
 It became a history where [humanity was defeated in the great war].
 
