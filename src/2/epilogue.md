@@ -437,8 +437,8 @@ Thee did the same, didn't thee?"
 
 "..Yeah, we've discussed it with Io Resistance."
 
-Looking at Jeanne, who answered like that, there was no Fairin by her side.
-As being responsible for negotiations with foreign gods, Fairin has been finalizing details of the agreement in the village.
+Looking at Jeanne, who answered like that, there was no Farin by her side.
+As being responsible for negotiations with foreign gods, Farin has been finalizing details of the agreement in the village.
 
 "And then, Kai.
 As we've been discussing yesterday.
@@ -477,10 +477,10 @@ Therefore, the fact that Alfreyja disappeared wasn't revealed to Io Resistance.
 
 This secret was shared only by six people who infiltrated the angel palace.
 Kai, Rinne, Jeanne.
-Fairin, Saki and Ashlan.
+Farin, Saki and Ashlan.
 
 At the elven village's plaza.
-When Kai arrived there, he could see gathered there Fairin, Saki and Ashlan, in discussion with the elder.
+When Kai arrived there, he could see gathered there Farin, Saki and Ashlan, in discussion with the elder.
 And up in the tree...
 
 "Forgive me, thee might be worried about it, but this matter concerns all foreign gods.
@@ -500,7 +500,7 @@ Besides her Kai could also spot the archangel, who had fought against Rinne.
 
 "Regarding the ceasefire, we've already reached a conclusion with this human."
 
-The elder glanced towards Fairin.
+The elder glanced towards Farin.
 Despite being surrounded by many foreign gods, she remained calm.
 
 "We do not have a habit of keeping records in paper.
@@ -664,7 +664,7 @@ They had no way to counter, if the foreign gods would decide to attack.
 
 "What?"
 
-Jeanne, and Fairin also, both raised their eyebrows.
+Jeanne, and Farin also, both raised their eyebrows.
 And Rinne, who was besides Kai and up until now was uninterested, had dumbfounded look.
 
 "...I'd like to hear the details."

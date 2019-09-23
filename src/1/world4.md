@@ -1356,7 +1356,7 @@ Merit for saving city should go to Rinne.
 
 "However, young man, just who are you?" - addressed him, with a husky voice, a woman that sat by round table.
 
-"<span title="jp. 花琳 Her name is written with kanji, which is rare. But furigana reads like something resembling Fuarin which I decided to tranform a bit">Fairin</span>.
+"<span title="jp. 花琳 Her name is written with kanji, which is rare. But furigana reads like something resembling Fuarin which I decided to tranform a bit">Farin</span>.
 I'm in charge of Jeanne-sama's guards."
 
 "I'm Kai Sakuravent, and this is Rinne."
@@ -1369,7 +1369,7 @@ _But she was actually guard. In MDA they are called bodyguards._
 
 He wasn't acquainted with her in real world, but this much was obvious.
 She is sharp.
-The moment they entered the room, this bodyguard woman Fairin had her eyes on Rinne.
+The moment they entered the room, this bodyguard woman Farin had her eyes on Rinne.
 Other races has certain eye-catching presence.
 Kai, himself, met lots of various people while training in martial arts,
 but never he met someone who clearly gave such _strong_ impression.
@@ -1438,7 +1438,7 @@ This bayonet is latest anti non-humans weapon, built based on Great War records.
 It is not weapon of this world."
 
 Elf bullet which looked like a fragment of crystal.
-Kai threw it without words and Fairin caught it.
+Kai threw it without words and Farin caught it.
 
 "The same about my martial arts.
 The gargoyle, that attacked Neo Vishal, and cryptids, with their thick skin, are not affected by bullets.
@@ -1449,7 +1449,7 @@ Their origin lay in Prophet Sid who defeated four heroes..."
 
 <span title="I guess author wants to say that someone lost patience">Dam has been broken</span>.
 The angry voice of man, who lost his patience, shook the round table.
-He was sitting left to the Fairin.
+He was sitting left to the Farin.
 The arrogant top brass stands up with his face fully red, and hits round table with his fists.
 
 "You say that we, humans, won Great War...?
@@ -1501,7 +1501,7 @@ Jeanne put her joined together hands on table.
 "Let's carry on.
 Two demons that attacked Neo Vishal.
 Despite losing your gun, you were able to turn tables with your combat prowess.
-It was sight to behold, right, Fairin?"
+It was sight to behold, right, Farin?"
 
 "Yes"
 
@@ -1511,10 +1511,10 @@ what do you think we ought to treat him like?"
 "As commanding officer.
 Or maybe he could assist me in guarding duties."
 
-At Fairin's words round table became noisy.
+At Farin's words round table became noisy.
 The old gray-haired soldier could no longer let it pass and stood up.
 
-"I'm saying it as staff officer, Fairin, your jokes are too much."
+"I'm saying it as staff officer, Farin, your jokes are too much."
 
 "I'm dead serious."
 
@@ -1523,7 +1523,7 @@ But didn't you tell that you're more than enough as bodyguard to Jeanne-sama."
 
 "It is but my evaluation of his combat prowess."
 
-With mechanical voice, Fairin carried on.
+With mechanical voice, Farin carried on.
 
 "However Jeanne-sama.
 What staff officer said is on point,
@@ -1548,7 +1548,7 @@ If I'd to say more, childhood friends who were living nearby."
 "You and me...?"
 
 As one would expect, Jeanne was speechless at this unexpected remark.
-And Fairin, who was besides her, raised eyebrow in surprise.
+And Farin, who was besides her, raised eyebrow in surprise.
 In in front of these two...
 
 "Agge, and Gerr"
@@ -1593,7 +1593,7 @@ Therefore, she carried her act of a _man_ in Resistance Army.
 
 "That's enough."
 
-Fairin clasped hands.
+Farin clasped hands.
 The one who was watcher over her(Jeanne), said with indifferent voice.
 
 "Jeanne-sama, it is about time for our contact with South Yurun army."
@@ -1608,7 +1608,7 @@ Corporal Saki, Corporal Ashlan, you're to stay at HQ and contact unit that we're
 ...Kai, and Rinne, you said..."
 
 Jeanne stood up.
-After whispering something to Fairin, she turned toward them.
+After whispering something to Farin, she turned toward them.
 
 "We'll prepare a guest room for you.
 Let us talk again tomorrow."
@@ -1758,7 +1758,7 @@ It's timing was almost as if waiting for both of them to notice the presence.
 "There is something to discuss."
 
 Quite peculiar and rough voice responded back.
-It belonged to Jeanne's bodyguard, Fairin Lyna <span title="Yes, I seriously have no idea how it is supposed to be. jp. ユビキタス">Ubiquitous</span>.
+It belonged to Jeanne's bodyguard, Farin Lyna <span title="Yes, I seriously have no idea how it is supposed to be. jp. ユビキタス">Ubiquitous</span>.
 She was the one who left the strongest impression among these present during today's meeting.
 
 "Not with me, but with Jeanne-sama."
@@ -1767,17 +1767,17 @@ She was the one who left the strongest impression among these present during tod
 
 With Rinne standing by, he moved to open door.
 There, amidst dim corridor, was standing a lone bodyguard.
-Looking at her again, the guard by name Fairin, looked fairly young.
+Looking at her again, the guard by name Farin, looked fairly young.
 Most likely around mid twenties.
 
 "Both of you are here. Good."
 
-Fairin noticed Rinne besides a bed.
+Farin noticed Rinne besides a bed.
 Together with her cold gray eyes, her face looked like that of beautifully carved sculpture.
 
-![Fairin](./Fairin_manga.png)
+![Farin](./Farin_manga.png)
 
-_TL Note:_ Fairin is pretty beautiful, true. So here is she from manga.
+_TL Note:_ Farin is pretty beautiful, true. So here is she from manga.
 In few ranobe illustrations she is not so cold and cool looking as in manga.
 And to be honest I think manga got her right, she also looks a bit older in manga thanks to that.
 
@@ -1807,7 +1807,7 @@ Just what sort of talk it is?
 
 "There is one thing I'd like to hear."
 
-Said Fairin while going up stairs.
+Said Farin while going up stairs.
 
 "According to corporal Saki, gargoyle's body is under petrification spell which they cast themself.
 And when sprinkle water over them, as they become wet, they also lose ability to fly."
@@ -1821,7 +1821,7 @@ Top brass were really pleased to find out reason."
 
 "This knowledge, does it come from your _another_ world?"
 
-Fairin halted her step when they were moving from second to third floor.
+Farin halted her step when they were moving from second to third floor.
 Woman bodyguard turned <span title="Towards Kai">around</span>.
 
 "Gargoyles weakness is a common knowledge for humans from the world where we won Great Way?"
@@ -1838,7 +1838,7 @@ It is just accidental discovery."
 
 "...Is that all for now?"
 
-Fairin quickly turned back.
+Farin quickly turned back.
 Considering he caught unexpected attention, Kai prepared to receive more serious questioning.
 
 "These five at round table, completely misunderstood you.
@@ -1857,7 +1857,7 @@ Placing her hands on double doors, female bodyguard slowly started to open it up
 
 "My master will decide whether you're _necessary_ to our cause or not."
 
-"Thank you, Fairin."
+"Thank you, Farin."
 
 Jeanne's room shined in its illumination.
 And before the wide round table, _<span title="Accent on her looking that woman, rather than man">she</span>_ was standing.
@@ -1875,7 +1875,7 @@ She was standing there, with her hands behind on round table, and having slight 
 It would be really bad to be seen like that."
 
 She said with a well <span title="I.e. she no longer forces her voice to be more a man like">familiar</span> voice of his childhood friend.
-He now understood why Fairin didn't want anyone to spot them.
+He now understood why Farin didn't want anyone to spot them.
 
 "Good evening, Kai. And to you, Rinne, too."
 
@@ -1903,7 +1903,7 @@ I've been taught by my father, for this exact moment when he'll no longer be abl
 
 "Yes, and since then I succeeded him.
 I've been pretending to be a man since my early childhood.
-So aside from Fairin, and my father's subordinates among high ranking officers in Resistance, no one knows about my secret."
+So aside from Farin, and my father's subordinates among high ranking officers in Resistance, no one knows about my secret."
 
 "And why you trust such important secret to me?" _TL Note:_ I'm not sure if it is a joke, since Kai himself already knows this secret of hers...
 
@@ -1911,7 +1911,7 @@ So aside from Fairin, and my father's subordinates among high ranking officers i
 
 So she means it as a token of good faith, for their upcoming negotiations.
 
-"Both me and Fairin rate you highly.
+"Both me and Farin rate you highly.
 Having strength to fight demon scouts, and adding to that your knowledge.
 You might bring a new hope to Resistance."
 
@@ -1919,7 +1919,7 @@ You might bring a new hope to Resistance."
 
 "To defend Neo Vishal at any cost."
 
-Her guard Fairin stepped forward.
+Her guard Farin stepped forward.
 
 "In past, whenever demons discover human settlements they move enormous army to take it over.
 We've chosen to evacuate citizens before that would happen."
@@ -1930,7 +1930,7 @@ We've chosen to evacuate citizens before that would happen."
 And make use of territorial advantage we have."
 
 Urza Federation map was on the wall.
-Fairin pointed to various red dot marks there.
+Farin pointed to various red dot marks there.
 
 "Neo Vishal is surrounded by five other cities.
 In each of them we have Resistance branches so when demons will attack..."
@@ -1979,7 +1979,7 @@ You want us to attack capital that became demon stronghold, before they'll reach
 
 "...Only one?"
 
-Both Jeanne and Fairin had puzzled looks.
+Both Jeanne and Farin had puzzled looks.
 But not because they had no idea who that could be, but precisely because they figured it out, they had this reaction.
 
 "It cannot be..."
@@ -2043,7 +2043,7 @@ and even if I'd be surrounded by demons I think I'll be fine."
 ![Rinne is strong](./Rinne_manga.png)
 
 Her magic...
-Hearing Rinne to slip like that made him really scared, but it seems both Fairin and Jeanne didn't purse the topic.
+Hearing Rinne to slip like that made him really scared, but it seems both Farin and Jeanne didn't purse the topic.
 They were so absorbed in current discussion, that likely just assumed that word magic was used by mistake.
 
 "For most part it is as Rinne says.
@@ -2061,7 +2061,7 @@ For Kai who knows it, that's the only thing he can do.
 
 "What is your reason?"
 
-Fairin muttered.
+Farin muttered.
 
 "I don't understand why are you so fired up.
 Challenging Dark Empress for the sake of that city.
@@ -2146,9 +2146,9 @@ Resistance leader already had serious expression on her face, fitting the discus
 As soon as all of our forces will enter its grounds, it is likely that we'll get discovered.
 Before we'll be able to reach the palace, our way will be blocked..."
 
-"We can attack from underground." _TL Note:_ Fairin says
+"We can attack from underground." _TL Note:_ Farin says
 
-"...Fairin?"
+"...Farin?"
 
 Before her dumbfounded master, female bodyguard quickly moved towards round table.
 She pointed towards enlarged map of Urza Federation.
@@ -2165,7 +2165,7 @@ And station near our HQ is connected with it too."
 
 "Yes. It is unlikely for tanks to go through, but armoured cars should be able."
 
-"Understood. But Fairin...
+"Understood. But Farin...
 Why you've been quiet about it?
 Secret shortcut to capital is strategically important information for Resistance."
 

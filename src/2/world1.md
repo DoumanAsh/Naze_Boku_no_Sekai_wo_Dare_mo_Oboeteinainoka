@@ -300,7 +300,7 @@ And make this Government Palace new base of Urza Resistance."
 
 Husky voice could be heard together with sound of footsteps.
 Stopping to bow before Jeanne, female staff gracefully turned towards him.
-Security chief, Fairin, who also follows Jeanne as her bodyguard.
+Security chief, Farin, who also follows Jeanne as her bodyguard.
 Her age is in mid twenties.
 Her beautiful face featured pair of cold grey eyes.
 Being on par with man's height, her whole body looked well trained.
@@ -311,7 +311,7 @@ Since then they escaped to live underground or in ruins."
 
 "...Yeah."
 
-While Fairin was stating obvious thing, for Kai this was quite abnormal [common sense].
+While Farin was stating obvious thing, for Kai this was quite abnormal [common sense].
 In this Urza Federation humans lost in Great War against demons.
 And since then they hid in so-called Human Cities in order to live.
 
@@ -341,7 +341,7 @@ Since the time when demon attacked 30 years ago, its remained like that.
 
 "Besides it is been only week."
 
-Fairin shrugged her shoulders.
+Farin shrugged her shoulders.
 
 "So there are many who in doubts about demon withdrawal.
 And what's more for last 30 years, they grew fond of their Human cities."
@@ -359,23 +359,23 @@ jp. 人類特区, firugana: ヒユーマンシテイ
 "Unless demons will not be completely eliminated from Urza Federation, humanity cannot return back to surface.
 And thus Jeanne-sama..."
 
-Fairin made signal with her eyes.
+Farin made signal with her eyes.
 
 "It is time for meeting. We should head to council room."
 
 "Yes, I was heading there."
 
-Together with Fairin Jeanne headed there.
+Together with Farin Jeanne headed there.
 But, as if some idea suddenly came to her, she turned back.
 
 "Kai, could make sure to have free time at evening. Together with Rinne."
 
 "Is it about expedition?"
 
-"Yeah, as we're dealing with relocation of headquarters, we're discussing it with Fairin.
+"Yeah, as we're dealing with relocation of headquarters, we're discussing it with Farin.
 I'd like to hear your opinion too."
 
-Together with Fairin and two captains, Jeanne headed out.
+Together with Farin and two captains, Jeanne headed out.
 
 "...Well, I guess I'll keep company to Rinne."
 
@@ -986,7 +986,7 @@ Just when they were able infiltrate and come so close?"
 
 "Could they be here for revenge?"
 
-Bodyguard Fairin looked up at building's rooftop.
+Bodyguard Farin looked up at building's rooftop.
 Just hour ago there were three hero rank demons.
 
 "No doubt demons had the same feeling about our surprise attack, as we're having now.
@@ -1074,7 +1074,7 @@ Demons goal was a cease-fire rather than revenge, right?"
 
 "So she said."
 
-"This is troubling. Fairin, what do you think?"
+"This is troubling. Farin, what do you think?"
 
 Jeanne looked at her bodyguard.
 
@@ -1164,21 +1164,21 @@ She said while folding her arms.
 But her bodyguard who was besides, seeing it, had quite amusing look.
 Which was quite unusual if you think about her normal poker face.
 
-"Fairin."
+"Farin."
 
 "My apologises, please continue your talk."
 
 "Well fine, anyway as for division of our forces, we should decide it within next few days.
 Once we divide our forces into expedition and defence unit, expedition forces will need to quickly prepare for move."
 
-Both Jeanne and Fairin will join expedition forces.
+Both Jeanne and Farin will join expedition forces.
 And Kai with Rinne will be joining them too.
 
 "Let's return to government palace."
 
-![Jeanne and Fairin](./p057.jpg)
+![Jeanne and Farin](./p057.jpg)
 
-Jeanne gave signal to Fairin and turned around.
+Jeanne gave signal to Farin and turned around.
 
 "We'll have investigation units to check this place, though I doubt there are any clues left by demons."
 
@@ -1353,7 +1353,7 @@ Before she could finish, behind them suddenly door was opened.
 
 Surprised, Rinne screamed and jumped on spot.
 While both were watching each other, the Resistance leader came in with her armour on.
-Soon enough Fairin appeared behind her.
+Soon enough Farin appeared behind her.
 
 "Sorry making you wait, but we finally finished arranging expedition."
 
@@ -1378,12 +1378,12 @@ The reason Rinne jumped though is mostly out of surprise from Jeanne's sudden ap
 
 _TL Note:_ Pretty sure only Kai wants to refrain actually
 
-"Fairin, show the thing we talked about to them."
+"Farin, show the thing we talked about to them."
 
 "Yes - here is document that describes organization of our expedition.
 Both of you will participating as part of escort unit."
 
-They looked at paper that Fairin handed.
+They looked at paper that Farin handed.
 
 "Escort unit...?"
 
@@ -1392,10 +1392,10 @@ Heading towards territories, dominated by other races, is dangerous.
 Early on we decided on establishing escort unit."
 
 Which seemed only natural.
-While Fairin already said, but just to be sure Kai asked her to confirm.
+While Farin already said, but just to be sure Kai asked her to confirm.
 
 "I'm seeing only three people here, it is not mistake?
-Me, Rinne and Fairin."
+Me, Rinne and Farin."
 
 "You'll be in name only."
 
@@ -1433,7 +1433,7 @@ They are already quite old, so they are not fit for such expedition."
 She put her hand around chest, as if being shy about disguised as man.
 
 "Among expedition forces, the only one who will know about me are you three.
-Fairin, Kai and Rinne.
+Farin, Kai and Rinne.
 Especially you Kai."
 
 "W-what?"
@@ -1507,7 +1507,7 @@ Jeanne's voice echoed through the room.
 
 "I knew it, Jeannya..."
 
-"You're misunderstanding!? Fairin, you too say something!"
+"You're misunderstanding!? Farin, you too say something!"
 
 "When we were going to the conference room, Jeanne-sama foots were working more than usual.
 Like she have been wondering [I wonder if Kai is there?]..."

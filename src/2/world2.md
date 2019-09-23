@@ -223,7 +223,7 @@ While Kai's car was right behind it.
 Cadillac one.
 Once it was a personal transport to the king of Urza.
 And it was so called [Moving shelter] armoured car that could defend against demon magic.
-Jeanne together with her bodyguard Fairin were riding it.
+Jeanne together with her bodyguard Farin were riding it.
 
 [According to map, two kilometres ahead should be resting point where we can stop.
 While it is likely overgrown with weed since humans no longer live there, but we should be able to take a break there.]
@@ -406,7 +406,7 @@ _Ah but there is one who would be paying attention._
 
 _She should know that it is not result of firing my bullets._
 
-Fairin, who was also known as Dragoon.
+Farin, who was also known as Dragoon.
 Female warrior who took upon herself role of Jeanne's bodyguard.
 She most likely would be watching the spectacle from another car.
 
@@ -497,7 +497,7 @@ It makes sense for commander... Wait, what you said now, Rinne?"
 "Originally it is our tent."
 
 Clank of metal could be heard.
-In their rear was silver haired commander, behind her was bodyguard Fairin.
+In their rear was silver haired commander, behind her was bodyguard Farin.
 
 "Jeanne's tent?"
 
@@ -510,7 +510,7 @@ The expedition baggage is quite limited as our cars cannot carry too much."
 
 With the girl's voice, armoured knight whispered to him.
 
-"For me and Fairin sleeping together would be suspicious.
+"For me and Farin sleeping together would be suspicious.
 Commander and his female bodyguard.
 Sleeping in alone in single tent would bring unwanted rumours."
 
@@ -528,7 +528,7 @@ But here in expedition it was quite difficult task.
 
 "Hm? To me?"
 
-Fairin beckoned him step outside of tent.
+Farin beckoned him step outside of tent.
 It was quite unusual for this female warrior to call anyone, other than Jeanne, by name.
 
 "I'll be standing guard outside to make sure to keep unwanted company awway."
@@ -551,7 +551,7 @@ I'm sure you understand but she is going to take her armour off."
 
 "I know, but it is my duty to warn you as her guard."
 
-Fairin was grinning.
+Farin was grinning.
 
 "I'm leaving Jeanne-sama to you."
 
@@ -561,15 +561,15 @@ Kai entered the tent.
 There were two girls illuminated by the lamp inside.
 Rinne was already in her favourite pyjamas, and Jeanne took off her armour and was wearing some man pyjamas.
 
-"I s-see. While Fairin called me over, you already changed."
+"I s-see. While Farin called me over, you already changed."
 
-"What's with Fairin?"
+"What's with Farin?"
 
 Jeanne was still with her hair tied.
 While she was quite tall for a girl of her age, but without armour she looked quite slender.
 So man pyjamas didn't make much of disguise and looked baggy on her.
 
-"Did Fairin say something?"
+"Did Farin say something?"
 
 "No, nothing. It is already resolved."
 

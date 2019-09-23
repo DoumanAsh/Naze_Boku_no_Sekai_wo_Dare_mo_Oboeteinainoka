@@ -27,7 +27,7 @@ From the cracks on these roads could be seen previously unknown plants.
 And again thanks to you Demon Hero has been defeated."
 
 Light Knight Jeanne, although wearing her armour, returned back to being simple 17 years old girl.
-While her subordinates were dead asleep from fatigue of last battle, she took along her bodyguard Fairin on walk through capital avenues.
+While her subordinates were dead asleep from fatigue of last battle, she took along her bodyguard Farin on walk through capital avenues.
 
 "Still, even though you played crucial role, you never showed yourself in public?"
 
@@ -63,7 +63,7 @@ At the present moment, they had no leads, other than Vanessa's words.
 "Kai, Rinne."
 
 Jeanne picked up her pace.
-As if in order to move apart from her bodyguard Fairin.
+As if in order to move apart from her bodyguard Farin.
 
 "Thanks to retake of this land, we will be able greatly increase our activity.
 First we're going to move Resistance headquarters here.
@@ -330,8 +330,8 @@ It is but my guess, but I'm pretty sure we'll see her once more.
 Who knows, maybe she'll have actual fun with hero-kun ;)
 
 There is another comment I'd like to make: about illustrations.
-I do enjoy neco-sensei style, but I found that in manga both Fairin and Vanessa made quite better.
-Especially Fairin, who in manga retains her cool poker face.
+I do enjoy neco-sensei style, but I found that in manga both Farin and Vanessa made quite better.
+Especially Farin, who in manga retains her cool poker face.
 On other hand I prefer Jeanne and Rinne in ranobe illustrations, so I wouldn't say manga 100% better.
 But I do suggest to read manga which already covers first volume (at least I found this much scans online)
 I also added quite a lot illustrations from manga, as there are just too many cute girls to miss :)

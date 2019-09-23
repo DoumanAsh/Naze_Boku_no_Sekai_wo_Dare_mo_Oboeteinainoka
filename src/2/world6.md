@@ -378,7 +378,7 @@ The chest of the fallen angel, who was glaring at Reiren, was pierced by a shini
 "...Do not underestimate... Our stubbornness!"
 
 Said the knight Jeanne who was kneeling down on one knee.
-Behind was her bodyguard Fairin, supporting her.
+Behind was her bodyguard Farin, supporting her.
 And the knight fired the arrow with all of her strength.
 
 [Tch.]

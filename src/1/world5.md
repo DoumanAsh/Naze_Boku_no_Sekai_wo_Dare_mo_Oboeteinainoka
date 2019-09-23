@@ -28,7 +28,7 @@ Ashlan, who was sitting on driver seat, made a bitter smile.
 "Still I'm surprised about this Urza's king private station and it's being connected to abandoned subway.
 That's just straight path to government palace?"
 
-"Right. And also our Fairin went to check it out yesterday."
+"Right. And also our Farin went to check it out yesterday."
 
 Saki, who has been chewing gum, replied.
 Contrarily to her usual passenger seat, this time she took one of the back seats.
@@ -54,7 +54,7 @@ There is high chance of success, if we'll land surprise attack."
 "And it will be great opportunity for us to display our skills."
 
 "Then there at great hall on 10th floor, Jeanne-sama and her bodyguards will hold Vanessa's retainers.
-It is certainly dangerous, but I believe Jeanne-sama and Fairin-sama will pull it off.
+It is certainly dangerous, but I believe Jeanne-sama and Farin-sama will pull it off.
 But, if you'd ask me what aspect of our plan worries me, it would be..."
 
 "Let's hear it."
@@ -248,9 +248,9 @@ There, twenty meters above underground, was private station exit.
 
 Daylight could be seen through cracks in ceiling.
 This light illuminated both Jeanne and her bodyguards.
-And Fairin who was peeking out of exit's door in order to check situation.
+And Farin who was peeking out of exit's door in order to check situation.
 
-"Fairin, how palace's entrance looks?"
+"Farin, how palace's entrance looks?"
 
 "Three demons, but it seems they are just passing by. Will not pose a problem."
 
@@ -368,7 +368,7 @@ And the second battalion surrounded <span title="Rather than surrounding the who
 "That was quite interesting bullet."
 
 Besides Kai who run toward entrance, appeared running figure of tall woman soldier.
-Carrying Shamshir, curved sword that he wasn't well familiar yet, Fairin said almost as if whispering.
+Carrying Shamshir, curved sword that he wasn't well familiar yet, Farin said almost as if whispering.
 
 "Lighting attack with such vast range. It has terrific power."
 
@@ -387,7 +387,7 @@ Did she see it?
 From far behind, while everyone was focused at gargoyles, this female bodyguard was keeping eye on Kai's hands.
 Not only her sight was abnormally good, but her intuition was right on spot too.
 
-_TL Note:_ Being popular is hard, even cool Fairin keeps eye on you, hero-kun
+_TL Note:_ Being popular is hard, even cool Farin keeps eye on you, hero-kun
 
 "I only want to hear one thing from you.
 You and that girl of yours said that you're going to fight Vanessa.
@@ -470,7 +470,7 @@ In that moment.
 
 Fingers of the gigantic hand were severed.
 Captured solder easily slide off from the hand's palm.
-Fairin, who stood on top of ventilation duct by the wall, caught him by the scruff of the neck.
+Farin, who stood on top of ventilation duct by the wall, caught him by the scruff of the neck.
 
 _TL Note:_ I'm a bit unsure here if she caught the falling guy, or not
 `摑まれていた傭兵があっさりと掌から滑りおちる。その首根っこを捕まえて受けとめたのは、壁に配置された排気ダクトに立つ花琳だった。`
@@ -478,12 +478,12 @@ _TL Note:_ I'm a bit unsure here if she caught the falling guy, or not
 "....**Human**!"
 
 Huge demon roar could be heard.
-With a scorn on her face Fairin raisen her right hand.
+With a scorn on her face Farin raisen her right hand.
 Shamshir, which just now cut off demon's fingers, was pointing toward demon neck.
 
 "Jeanne-sama, go ahead first."
 
-"Fairin!"
+"Farin!"
 
 "Its body is strong and thick.
 Which has bad affinity with guns.
@@ -498,7 +498,7 @@ No need to worry."
 "...I'll be waiting at 10th floor"
 
 Light Knight and her bodyguards started to run again.
-From below could be heard sounds of destruction, but it belonged not only to Fairin and huge demon fight.
+From below could be heard sounds of destruction, but it belonged not only to Farin and huge demon fight.
 Resistance soldiers on first floor already engaged demons too.
 From seventh to eight, and then to ninth floor.
 While climbing in silence Jeanne suddenly turned her face towards Kai, who was behind.
@@ -508,12 +508,12 @@ While climbing in silence Jeanne suddenly turned her face towards Kai, who was b
 "..."
 
 It seems she saw through his worries.
-While her bodyguard Fairin was fighting, for Jeanne facing Vanessa's trusted subordinates would be too dangerous.
+While her bodyguard Farin was fighting, for Jeanne facing Vanessa's trusted subordinates would be too dangerous.
 This is what Kai was wondering on whether he should say it or not.
 
 "Even if we got with ease on this floor, both me and my bodyguards will be able to defend ourself."
 
-"...Even without Fairin?"
+"...Even without Farin?"
 
 "Of course. As leader I ought to be the bravest!"
 
@@ -1065,15 +1065,15 @@ In the instance Shamshir flashed.
 
 "It is been a bit crowded on my way, so I had to clean up while coming here."
 
-"...I've been covered in sweat, you know" _TL Note:_ The meaning is a bit unclear here as I feel it is half-joke complaint from Jeanne about Fairin being so late.
+"...I've been covered in sweat, you know" _TL Note:_ The meaning is a bit unclear here as I feel it is half-joke complaint from Jeanne about Farin being so late.
 
-Fairin, the bodyguard, Resistance leader, and unexpectedly Jeanne's adjutant.
+Farin, the bodyguard, Resistance leader, and unexpectedly Jeanne's adjutant.
 She, whose duty was to guard Jeanne, barely made it in time.
 
 "**...You, bastard... I heard about you...**"
 
 Muffled voice of magic beast could be heard.
-Its fangs were smashed and it looked at Fairin, who was holding Shamshir in both of her hands, with contempt.
+Its fangs were smashed and it looked at Farin, who was holding Shamshir in both of her hands, with contempt.
 
 "**There was human who boasted great strength... <span title="jp. 竜戦士, literal Dragon Soldier, while furigana ドラグナー">Dragoon</span>!**"
 
@@ -1081,7 +1081,7 @@ Its fangs were smashed and it looked at Fairin, who was holding Shamshir in both
 
 Shamshir, whose blade was bright red, was made of drake fang.
 Kai's bayonet _Drake Nail_ at most was just its imitation.
-But in Fairin hands was real thing.
+But in Farin hands was real thing.
 It was the highest grade of sword made from ingredients that came from cryptids.
 As it resembled dragon's fang, she was known Dragoon among demons, who were scared of it.
 

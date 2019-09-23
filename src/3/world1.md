@@ -578,7 +578,7 @@ The man who serves as the right hand to Io Resistance's Commander.
 Our, Urza Resistance's, morale is at its peak.
 To suggest not to continue our expedition..."
 
-Face to face with the old soldier was Fairin, one of the Urza Resistance's top brass.
+Face to face with the old soldier was Farin, one of the Urza Resistance's top brass.
 Normally being by Jeanne's side as her guard, right now she had to separate with her master, in order to inform them.
 
 "And the reason is...
@@ -588,7 +588,7 @@ You do not want to lose your momentum here?"
 
 "That's right. However..."
 
-Said Commander's bodyguard Fairin.
+Said Commander's bodyguard Farin.
 And then Urza strongest female warrior continued with husky voice...
 
 "Jeanne-sama is concerned.
@@ -603,7 +603,7 @@ And then the ceasefire with the foreign gods too, wasn't the result of an actual
 
 "What an unlovely boring response."
 
-Behind the old soldier, a plump man turned away from a window, slowly turning towards Fairin.
+Behind the old soldier, a plump man turned away from a window, slowly turning towards Farin.
 
 "Reclaiming Urza's capital, and then achieving truce with foreign gods in this country...
 Despite achieving so much, he has no intention to relax even a bit?"
@@ -639,14 +639,14 @@ The kind of species that would fight until the very end.
 
 "South Yurun Resistance Army Commander is an acquaintance of mine."
 
-Fairin replied.
+Farin replied.
 And the staff officer, who raised his eyebrow at her words, said:
 
 "Lion King Balmung?"
 
 "Yeah, I've been indebted to him. Hopefully he still remembers me."
 
-Fairin faintly smiled.
+Farin faintly smiled.
 It was quite rare for this female soldier, who remained cold as steel, to show such emotions.
 
 "I have no doubt that he is a great commander."
@@ -678,7 +678,7 @@ That was Jeanne's plan.
 
 "...It is a pity." _TL Note:_ This `……惜しいですね` is a bit unclear, but I think she actually means that Dante's wits are wasted on him?
 
-Fairin chuckled.
+Farin chuckled.
 It was simply her way to express admiration for Dante's insight.
 
 "Commander Dante, it might be rude, but I'd like to say one thing."

@@ -146,7 +146,7 @@ There is no need to stand watch, they could just wait until city will be consume
 "That's right."
 
 Sound of footsteps trampling over rubble could be heard.
-Soon female bodyguard Fairin stood besides Kai, with her master behind.
+Soon female bodyguard Farin stood besides Kai, with her master behind.
 
 "I heard that Io's capital progressed far more with this [greening].
 And elves and fairies are already been spotted there."
@@ -162,7 +162,7 @@ In the shadows between buildings he could see burned down overgrown vines.
 
 "Understood."
 
-Fairin pushed her through back, and her subordinates followed suit.
+Farin pushed her through back, and her subordinates followed suit.
 Then cheers could be heard.
 Moreover applauses resounded through the area surrounded by buildings.
 
@@ -202,7 +202,7 @@ They exchanged handshakes.
 Even for a girl Jeanne was quite tall, but staff officer Tsekhman was even more taller.
 Among his fellow soldiers he had quite prominent physique.
 
-"And you too, it is been a while, Fairin."
+"And you too, it is been a while, Farin."
 
 After greeting Jeanne, he shifted his gaze towards female bodyguard.
 Wild smile appeared on his face.
@@ -218,11 +218,11 @@ Moreover, I'm not that old to say that I lived this long.
 They didn't exchange handshakes, instead they knocked each other fists.
 It didn't look like a polite exchange between officers, but rather exchange between veteran soldiers.
 
-"Fairin, is staff officer Tsekhman your acquaintance?"
+"Farin, is staff officer Tsekhman your acquaintance?"
 
 "We fought... Excuse me. Go ahead, Jeanne-sama."
 
-With a serious nod, Fairin took a step back.
+With a serious nod, Farin took a step back.
 
 "Staff officer, I'd like to have a talk with Commander Dante-dono at once.
 We need to grasp the current situation in Io Federation and start establishing our cooperation."
@@ -234,7 +234,7 @@ He respectfully bowed.
 "I'll guide you to Commander's office immediately.
 As for your subordinates, we already preparing lodgings and storehouse for them."
 
-"Understood. I'd like request to allow my bodyguards to accompany me: Fairin, Kai, Rinne."
+"Understood. I'd like request to allow my bodyguards to accompany me: Farin, Kai, Rinne."
 
 Jeanne exchanged looks with these who had to follow her.
 On other hand, Rinne, still not understanding the whole situation, was in the middle of relentlessly looking around.
@@ -323,7 +323,7 @@ Also map of the ward, and if possible I'd like to share it with at least command
 With a nod, old soldier turned around towards staircase.
 But, as he was about to make a first step, Io Resistance staff officer stopped.
 
-"Jeanne-dono... No, how about I'll ask you, Fairin?"
+"Jeanne-dono... No, how about I'll ask you, Farin?"
 
 With a glint in his eyes, old soldier addressed Urza Resistance female warrior.
 
@@ -735,9 +735,9 @@ Blond girl titled her head.
 "Here you are."
 
 Husky voice shadowed Rinne's own voice.
-Fairin walked with drawn sword in her hand.
+Farin walked with drawn sword in her hand.
 
-"Fairin-sama!?"
+"Farin-sama!?"
 
 "T-thank you for your hard work!" _TL Note:_ Not sure how to phrase `ご、ご苦労様ですっ！`
 
@@ -748,7 +748,7 @@ And then she casually squatted down and while keeping the sword in right hand...
 
 "It is training sword, so it's edge is dull."
 
-Noticing Kai's gaze, Fairin flipped the sword in her hand.
+Noticing Kai's gaze, Farin flipped the sword in her hand.
 
 "I've been mingling with Io soldiers."
 
@@ -757,14 +757,14 @@ Noticing Kai's gaze, Fairin flipped the sword in her hand.
 "Not something so serious, it is just the fastest way to learn about each other.
 And since I won, tomorrow's joint session will directed by Jeanne-sama."
 
-Fairin then pointed with her eyes towards 10 meters away from Kai's group.
+Farin then pointed with her eyes towards 10 meters away from Kai's group.
 Towards the Commander who was walking among each squad while they were having the meal.
 
 _TL Note:_ Might need to revisit this one `食事中の各班を労い歩く指揮官の姿が。`
 
 "Dante looks favourably at these below him."
 
-Fairin said in a voice could be only heard by four of them: Kai, Rinne, and Saki with Ashlan.
+Farin said in a voice could be only heard by four of them: Kai, Rinne, and Saki with Ashlan.
 
 "Since the defeat in Great War, there was no precedent of human cooperation crossing national borders.
 And as it is our first attempt, we'll have bothersome power struggle between two armies."
@@ -786,7 +786,7 @@ If staff officer Tsekhman shall become responsible for army's tactics, then Io s
 
 "This only my script, mine and staff officer."
 
-Fairin answered with all seriousness.
+Farin answered with all seriousness.
 
 "For Dante, the most important thing is his own skin.
 He might be their Commander, but he had zero battle experience against foreign gods.
@@ -812,7 +812,7 @@ Jeanne-sama will be guided by elites of Io Resistance.
 There is no other way to earn their trust, aside from entrusting own life to them.
 <span title="Just to clarify she talks about Tsekhman">He</span> understands that too."
 
-With sound of 'hah', Fairin narrowed down here eyes and shrugged.
+With sound of 'hah', Farin narrowed down here eyes and shrugged.
 For Kai it was first time seeing such gesture from her.
 
 "For me it is quite unsettling, but he didn't want to hear anything."
@@ -822,7 +822,7 @@ For Kai it was first time seeing such gesture from her.
 "If Jeanne-sama will not return from the forest, I'm going to burn it all down and cut down remaining foreign gods.
 I'm already resolved to it."
 
-Fairin turned around and he could see her profile.
+Farin turned around and he could see her profile.
 Her strong will to destroy the foreign gods were coming from absolute loyalty to the master.
 Before Kai could say anything Urza's strongest warrior already returned back.
 
@@ -868,7 +868,7 @@ Kai said so, while looking at Io soldiers, surrounding Jeanne.
 
 "..."
 
-Fairin, who leaned against wall at the back of the building, remained silent since Jeanne return.
+Farin, who leaned against wall at the back of the building, remained silent since Jeanne return.
 She slowly raised her head.
 
 "And how do I look like?"
@@ -877,7 +877,7 @@ She slowly raised her head.
 
 "I'll lecture Jeanne-sama later on."
 
-Fairin wakes up from her listless state.
+Farin wakes up from her listless state.
 Until her master's return, this bodyguard was waiting her return more than 10 hours without food.
 
 "Rinne, I'm going to meeting, but what are you going to do?"
@@ -1013,7 +1013,7 @@ It was the worst possible scenario for when person, who was known as savior of U
 To say more, the degree of influence was quite beyond his expectations.
 These simple minded soldiers were so quick to open up their hearts to foreign Commander.
 
-"Regarding the bodyguard known as Fairin, according to information from Tsekhman..."
+"Regarding the bodyguard known as Farin, according to information from Tsekhman..."
 
 Commander's aide Qubiley was gracefully giving her report.
 In contrast with red, like tomato, Dante, her skin was so beautifully white that it looked transparent.
@@ -1060,7 +1060,7 @@ As the meeting has ended, Jeanne exited room and clenched her fists.
 
 "Taking the risk to jump into exploring elven forest had it's effect."
 
-Fairin, who was besides Jeanne, nodded in agreement.
+Farin, who was besides Jeanne, nodded in agreement.
 Unexpectedly they turned towards the end of corridor.
 
 "Bodyguard squad, it is soon our time to shine. Do not neglect your preparations."
@@ -1176,7 +1176,7 @@ To these words...
 
 "Let us hear it in details."
 
-Fairin was the first to react.
+Farin was the first to react.
 
 "We should go to the conference room, it will be troublesome if someone else hears us."
 

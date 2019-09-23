@@ -2,7 +2,7 @@
 
 Depths of the elven forest.
 Animal trail, which was illuminated by the deep green sunlight.
-Fairin, stopping her feet, turned off the <span title="jp. 通信機 From now on just radio">radio<span>.
+Farin, stopping her feet, turned off the <span title="jp. 通信機 From now on just radio">radio<span>.
 
 "Jeanne-sama, I've finished contacting our unit at the forest's entrance."
 
@@ -283,7 +283,7 @@ Among foreign gods were their comrades who walked ground.
 For their sake Heaven Lord Alfreyja prepared special pathway.
 And right now through exactly such pathway Reiren was running.
 
-"Jeanne-sama, it is a fortunate for us." - Fairin whispered - "Without elven guidance it would be extremely difficult for us to storm this floating fortress."
+"Jeanne-sama, it is a fortunate for us." - Farin whispered - "Without elven guidance it would be extremely difficult for us to storm this floating fortress."
 
 "Looking back it might be thanks to Dante."
 
@@ -347,7 +347,7 @@ Thee should understand that if he'd done it, then it would result in war with an
 
 "Yes!?"
 
-"W-what do you mean, Fairin-sama!?"
+"W-what do you mean, Farin-sama!?"
 
 Elven shrine maiden remained silent.
 And the one who shouted in surprise were Saki and Ashlan, who were in the end of their formation.
@@ -376,8 +376,8 @@ There should be some who objected for sure."
 Alfreyja punished his disobedient subordinates.
 That was her speculation about felled angels in courtyard.
 
-"Argument?" _TL Note:_ I'm a bit confused here. Because `異論` means argument/difference of opinion, but the flow of conversation also allows for it to be her asking for basis of the Fairin's theory.
-Especially since Fairin responds with `ない`, but it feels weird?
+"Argument?" _TL Note:_ I'm a bit confused here. Because `異論` means argument/difference of opinion, but the flow of conversation also allows for it to be her asking for basis of the Farin's theory.
+Especially since Farin responds with `ない`, but it feels weird?
 
 "Yes, and if we're talking about possible scenarios, we cannot deny that it is the most likely scenario."
 
@@ -502,7 +502,7 @@ She didn't meant to use axe's blade to strike.
 Angel, who was clad in winds that were just like small storm, dived in from the broken roof.
 And she swung down her axe towards Jeanne and elven girl who stood just behind her.
 
-"Fairin."
+"Farin."
 
 "...Surge" _TL Note:_ Not sure how to translate  it `迸れ`
 
@@ -533,7 +533,7 @@ And despite having strong divine protection, Vicious stepped back to avoid being
 
 "Jeanne-sama, please go ahead."
 
-![Fairin](./p227.jpg)
+![Farin](./p227.jpg)
 
 She pointed with pair of her shamshirs towards back of the altar.
 There was door leading to another room.
@@ -555,7 +555,7 @@ Ashlan, who was firing barrage from his machine gun, was keeping angel pinned do
 Angel's body wasn't much different from that of humans and elves.
 She couldn't avoid injuries if she'd be shot, so Vicious had no choice but to focus keeping her divine protection.
 
-"Go, Kai! We have Fairin-sama so we'll manage somehow!"
+"Go, Kai! We have Farin-sama so we'll manage somehow!"
 
 "Thanks. Jeanne, Rinne!"
 
@@ -1327,14 +1327,14 @@ Battle angel Vicious who sat down along the wall had look, full of sorrow.
 
 "You're quite careful."
 
-Fairin didn't relax her stance.
+Farin didn't relax her stance.
 
 "I fought against invaders and suffered  a humiliating defeat...
 While on surface I might be loyal to my master, behind the scenes I was trying to devise plans to rescue our allied races."
 
 Still Vicious wasn't planning to withdraw so easily.
 At least once she seriously attacked intruders.
-Fairin's whole body felt it as there were countless small wounds from the winds of the battle axe.
+Farin's whole body felt it as there were countless small wounds from the winds of the battle axe.
 
 The same could be said about Saki and Ashlan.
 They were trying to hide themself in the corridor, and were still out of breath from the difficult battle.
@@ -1351,7 +1351,7 @@ With this, her ability for a surprise attack disappeared too.
 
 "I-it is ok now, right? Ashlan?"
 
-"Y-yeah, what should we do now, Fairin-sama?"
+"Y-yeah, what should we do now, Farin-sama?"
 
 "I'm the bodyguard of Jeanne-sama."
 
@@ -1364,7 +1364,7 @@ And what if as result, the foreign gods hero gets defeated?"
 
 "..."
 
-At Fairin's provocation, angels eyes were lighted with anger.
+At Farin's provocation, angels eyes were lighted with anger.
 But that was only for a moment.
 
 "I doubt it is possible for humans...

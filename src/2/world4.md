@@ -75,7 +75,7 @@ _It is troublesome, we cannot blame Dante alone._
 _It is hightly likely that there was someone behind putting this idea into his mind._
 
 This was suspicion shared by only four people.
-Kai and Rinne here, and Fairin and Jeanne who were riding car behind.
+Kai and Rinne here, and Farin and Jeanne who were riding car behind.
 
 "I'm sorry, Kai."
 
@@ -159,7 +159,7 @@ And a few days ago, he decided to help Jeanne's with search through the forest.
 
 Jeanne fixed her gaze on a animal trail.
 Towards the road, in between enormous trees that stood like a wall, which was entangled by ancient tree's roots.
-And there were Fairin and Rinne, who already stepped onto the road.
+And there were Farin and Rinne, who already stepped onto the road.
 
 "Kai, here, here! Come quickly!"
 
@@ -203,7 +203,7 @@ You are not to abandon this place."
 
 Jeanne's elite forces, who were accompanying them until now, saluted.
 
-"Fairin-sama, we're leaving Jeanne-sama to you."
+"Farin-sama, we're leaving Jeanne-sama to you."
 
 "It is just a simple walk.
 It is nothing like our operation during capital's re-take...
@@ -238,7 +238,7 @@ It should be safe as long as we take the road I took three days ago."
 
 "Understood."
 
-Fairin, who was holding her shamshir in the right hand, responded.
+Farin, who was holding her shamshir in the right hand, responded.
 
 "Corporal Ashlan, Corporal Saki, how is our rear?"
 
@@ -317,7 +317,7 @@ Said Jeanne who carried on through the road full of fallen leafs.
 "Yup!"
 
 _TL Note:_ You know what is strange, I wonder why Jeanne is not surprised at all by Rinne.
-I mean sure Fairin has suspicion about Rinne, but I'm pretty sure Jeanne has no idea,
+I mean sure Farin has suspicion about Rinne, but I'm pretty sure Jeanne has no idea,
 so it is actually kinda weird that she accepts the fact that Rinne can easily spot non-human and magic.
 
 Rinne raised her voice, most likely out of happiness for being praised.
@@ -420,7 +420,7 @@ Most likely it has been dropped here very recently."
 
 "They activated the trap and were killed. Or perhaps captured?"
 
-Jeanne receive the gun from Fairin.
+Jeanne receive the gun from Farin.
 After taking a look at it, knight pulled out the magazine.
 Dropping the remaining bullets out of it, she looked at their number.
 
@@ -446,7 +446,7 @@ And what's more troublesome is that together with sunlight filtering through tre
 
 "Quite clever: hiding light of magic circles in sunlight filtering through trees."
 
-Fairin took a breath with mix of surprise and admiration.
+Farin took a breath with mix of surprise and admiration.
 
 "I [see] now that it is been pointed out, but otherwise it would be nearly impossible to spot.
 ...Jeanne-sama, it seems emperor's group were done by it."
@@ -496,7 +496,7 @@ Not even 10 meters away from the animal trail, which Jeanne shown, there was thi
 "It is well hidden behind brushes and trees.
 So it is not surprise that Jeanne-sama didn't notice it, and the same about Io soldiers."
 
-Fairin looked back at the road.
+Farin looked back at the road.
 
 "I see, they are observing humans from there?
 It would seem Io Resistance scouting was exposed."
@@ -546,7 +546,7 @@ And then all of the sudden it risen in the middle of air.
 
 "Jeanne-sama, please move away, it is starting!"
 
-Fairin rushed towards her master.
+Farin rushed towards her master.
 But both were already wrapped into the light.
 And then it expanded towards Kai and Rinne.
 Up until it covered even Saki and Ashlan.
@@ -579,7 +579,7 @@ Kai stood alongside with Rinne in clam and lighted by sun clearing.
 
 "...No problem."
 
-There were Jeanne and Fairin.
+There were Jeanne and Farin.
 And away from them were Saki and Ashlan, who fell on their backs.
 
 "Ashlan, you shameless, you used this opportunity to grab my ass!"
@@ -588,7 +588,7 @@ And away from them were Saki and Ashlan, who fell on their backs.
 
 "Silence, do not raise your voice within enemy positions."
 
-Fairin words quickly silenced both of them.
+Farin words quickly silenced both of them.
 
 _This is?_
 
@@ -609,7 +609,7 @@ The one who jumped out of brushes was small person of foreign gods.
 With big golden eyes, gradient hair that changed from fluorescent green to light pink and height around Kai's waist.
 She was wearing sorceress like long robe and hat, almost like out of fairy tail.
 
-"...Fairin, is that...?"
+"...Farin, is that...?"
 
 "Please step back, Jeanne-sama.
 It is without doubts a fairy.
@@ -629,7 +629,7 @@ Fairy looked up at Ashlan.
 
 _TL Note:_ Damn, Ashlan, cannot you at least be considerate of loli
 
-Next she looked at Saki, then Kai with Rinne, and then at Fairin and Jeanne.
+Next she looked at Saki, then Kai with Rinne, and then at Farin and Jeanne.
 
 "From which forest are you, elves?
 Oh, but I don't feel magic power from you?"
@@ -669,7 +669,7 @@ They glanced with rising hostility towards them and started preparing their arro
 
 "Jeanne-sama, move behind me. I'll restrain them."
 
-Fairin readied her shamshir and prepared to launch towards them.
+Farin readied her shamshir and prepared to launch towards them.
 But, all of the sudden Urza strongest warrior narrowed her eyes and stopped.
 
 "I see, you are no longer planning to hide your true nature."
@@ -754,7 +754,7 @@ Qubiley pointed towards deep within forest.
 
 "..."
 
-Jeanne and Fairin both gulped.
+Jeanne and Farin both gulped.
 Saki and Ashlan became speechless in amazement.
 
 "Hey, I don't get you, you know?"
@@ -893,7 +893,7 @@ Regardless of whether we'll be successful or not, it will not affect elves."
 "That's right, if thou shall be crushed, we shall pretend to know nothing.
 But if, thou are to free our elder, we'll release captured humans."
 
-"...Fairin."
+"...Farin."
 
 Jeanne exchanged glances with female bodyguard nearby.
 
@@ -931,7 +931,7 @@ Whether you'll take me hostage or cut into pieces, you're free to do as you wish
 
 "Rejected. It is just not enough" _TL Note:_ `却下。天秤が釣り合わないな` she talks about balancing weights, but I'm not sure how to put it in english. TODO
 
-Fairin outright denied her declaration of being ready to put her own life.
+Farin outright denied her declaration of being ready to put her own life.
 
 "We have six people here, and not to mention twenty more hostages.
 It is quite arrogant for you to say that your life alone would suffice."
@@ -961,7 +961,7 @@ Her accompanying them would only increase the danger. _TL Note:_ `同行させ�
 
 "...Human, I say thee are pretty good."
 
-In response to Fairin, elven shrine maiden Reiren responded with belligerent expression.
+In response to Farin, elven shrine maiden Reiren responded with belligerent expression.
 
 "Isn't it a fine idea, I shall accompany thee.
 We'll sneak into the angel palace and I'll guide thee to their prisons.
@@ -1022,7 +1022,7 @@ And as the wind floated, leaf of ancient tree fell at Kai's foot.
 "Fairy magic?"
 
 Big leaf was on the ground.
-Not only for Kai, but Rinne, Jeanne, Fairin and Saki with Ashlan, each got own leaf from ancient tree.
+Not only for Kai, but Rinne, Jeanne, Farin and Saki with Ashlan, each got own leaf from ancient tree.
 
 _Did she just rise winds by moving only her fingers alone?_
 
@@ -1172,7 +1172,7 @@ There are no problems?"
 "None, but Jeanne is yet to return back though?"
 
 "If thee are uncertain then why not contact her over that communication device?
-Both Jeanne with Fairin and thee are free to do as you will."
+Both Jeanne with Farin and thee are free to do as you will."
 
 The girl who was now standing looked at him.
 
