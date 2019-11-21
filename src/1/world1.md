@@ -756,7 +756,7 @@ Thanks to broken lock, Kai was able to take out his bayonet.
 
 "I'll be your opponent" - said Kai, while taking his bayonet, pointing its gun toward demon and placing his finger on trigger.
 
-All-purpose assault bayonet "Drake Nail".
+It was general purpose assault bayonet [Drake Nail].
 This weapon has been developed by MDA against non-human races using records from Great War.
 And it is been modelled after Drake's <span title="Not sure if you can call it nail though...">nail</span> from Cryptid race.
 
