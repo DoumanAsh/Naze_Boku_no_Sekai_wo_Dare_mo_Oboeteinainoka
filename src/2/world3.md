@@ -414,7 +414,7 @@ His chubby body looked quite greasy.
 He was glaring at them with a glint of sharpness in his eyes.
 But it was a glance far from intellectual person.
 
-"I'm Commander of Urza Resistance, Jeanne E Anisu."
+"I'm Commander of Urza Resistance, Jeanne E Anise."
 
 "..."
 

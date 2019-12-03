@@ -1408,7 +1408,7 @@ This should be fine, right, Jeanne-sama?"
 "Yeah, after all they are our allies."
 
 They heard friendly girl's voice.
-It was voice of the girl of the same age as Kai - Jeanne E Anisu own voice, rather than voice of Resistance Leader.
+It was voice of the girl of the same age as Kai - Jeanne E Anise own voice, rather than voice of Resistance Leader.
 
 "Jeanne-sama."
 

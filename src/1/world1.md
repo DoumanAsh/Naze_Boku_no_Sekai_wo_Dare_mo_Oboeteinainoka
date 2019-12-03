@@ -333,8 +333,8 @@ Both of them risen to try and take a peek at content of Jeanne's message on Kai'
 _To Kai_
 
 _Tomorrow you're off duty, right?_
-_Let's meet in front of cat's statue of 9th terminal at 10AM_
-_But make sure to keep it a secret from Saki and Ashlan, ok?_
+_Let's meet in front of cat's statue of 9th terminal at 10AM._
+_But make sure to keep it a secret from both Saki and Ashlan, ok?_
 
 "..."
 
@@ -344,8 +344,8 @@ There are already two curious people that are trying to approach Kai for a sneak
 
 "Kai, what Jeanne says?"
 
-"Even I got nothing from her. Suspicious, a secret from both me and Saki...?
-Hey, Kai, could it be are you gotten in some <span title="Sounds more fun this way">forbidden</span> relationships with Jeanne!?"
+"Even I got nothing from her. That's suspicious: a secret from both me and Saki...?
+Hey, Kai, could it be you are into some <span title="Sounds more fun this way">forbidden</span> relationships with Jeanne!?"
 
 "Hold on" - said Kai and extended his hand to stop them.
 
@@ -353,12 +353,12 @@ Hey, Kai, could it be are you gotten in some <span title="Sounds more fun this w
 
 "Oh ho, is that so, Kai? Then just what was that ringtone?"
 
-"Trying to lie to us so lamely. Could it be this is some special message, Kai-kun?"
+"Trying to lie to us so lamely. Could it be some sort of special message, Kai-kun?"
 
 Saki is smirking, and Ashlan has a ghastly look on his face.
 Both were approaching Kai to take a look at his communication device.
 
-"...Ah by the way"
+"...Ah, by the way"
 
 Kai tightly grasped his communication device and turned his back towards them.
 And he run at full speed.
@@ -367,7 +367,7 @@ And he run at full speed.
 
 "Oi, stop, you bastard!"
 
-"Someone! Help us to catch and stop Kai! He is a criminal who wants to conspire in secret with Jeanne in some wicked scheme!"
+"Someone! Help us to catch and stop Kai! He is a criminal who wants to secretly conspire with Jeanne in some wicked scheme!"
 
 "That's misunderstanding...! I only wanted to take my training seriously!"
 
@@ -404,7 +404,7 @@ But it ended pretty quickly and she already smiled.
 
 "Since I'm leaving to capital on next week, I'll make exception this time."
 
-Jeanne E Anisu.
+Jeanne E Anise.
 
 She is somewhat tall, comparing to most girls of her age, and has slender figure.
 Together with long silver hair, her face gives off a dignified aura fitting to a model on magazine's cover.
@@ -486,7 +486,7 @@ And even carrying leadership aptitude from generation to generation in her famil
 Together with her beauty, Jeanne already has been acknowledged by top brass in Urza's HQ for her charisma.
 To no one surprise, a notice about Jeanne's transfer to capital became a grave news to all of her male colleagues.
 
-"Even Ashlan is down because of that. Sake is the same."
+"Even Ashlan is down because of that. Saki is the same."
 
 "...Well, most likely last time we'll be seeing each other after all."
 
@@ -513,7 +513,7 @@ Probably only few exceptions, like Kai, would willingly continue their service i
 
 "Well, I want too, you know?"
 
-"I know. You want to surpass your old man, right? Like how many tens of times I heard this story?"
+"I know. You want to surpass your old man, right? Like how many dozens of times I heard this story?"
 
 "Think you lost one digit, it is at least one hundred."
 
