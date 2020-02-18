@@ -5,7 +5,7 @@ _TL Note:_ Hokora is a mini shinto shrine.
 The green labyrinth [Ciel Mir Forest] - was a natural maze, with many trees, towering over the ground, being lined up in disarray.
 Only a sparse amount of light could pass through the cover of densely growing leaves.
 
-The ground was covered in muddy leaf mould
+The ground was covered in muddy leaf mould.
 Leaves blown by the wind were shaking and rustling with a pleasant sound.
 The serenity of this land had likely been undisturbed for hundreds of years.
 And now that...
@@ -73,7 +73,7 @@ Reiren nonchalantly answered.
 "Hey, wait a second!?"
 
 From their back seats on left and right, Resistance soldiers Saki and Ashlan shouted.
-Up until now they were completely bored, but now they reached out in confusion
+Up until now they were completely bored, but now they reached out in confusion.
 
 "Wait, wait, Reiren-chan!? You're our expert on this Elven forest, right?
 What are we going to do if this thing appears!"
@@ -97,7 +97,7 @@ This was how Jeanne explained her presence to soldiers like Saki and Ashlan.
 Rinne was sulking from her seat at the back.
 
 "I cannot agree with this arrangement.
-Why this elf.... I mean Reiren is sitting together with Kai and enjoying herself?"
+Why this elf.... I mean Reiren, sitting together with Kai and enjoying herself?"
 
 "I'm supposed to guide thee, am I not?
 Human's maps have nothing on these woodlands after all."
@@ -143,26 +143,26 @@ _Humanity's triumph in the Great War belongs to the true history._
 
 _But it is not all that good. For example this forest._
 
-The forest, that remained standing in this world, made Kai to feel conflicted.
-For hundred of thousands species that were living in the largest in the world forest, rather than a world, where humanity won, the current world is much more desirable.
+The forest, that remained flourishing in this world, made Kai to feel conflicted.
+For the hundred of thousands species that were living in the largest forest in the world, the current world is much more desirable than one where humanity had won.
 
 [All units, report: is everything in order?]
 
-Jeanne radioed to all (cars) at once, from the cadillac, which was in the column's center.
+Jeanne radioed to all (cars) at once, from the cadillac, which was in the queue's center.
 
-[This forest has thousands of unknown to us animals and plants.
-There are poisonous flowers meadows, and also butterflies that spread the poison.
-Everyone be sure to report if you feel unwell or uncomfortable.]
+[This forest has thousands of animals and plants unknown to us.
+There are poisonous flower meadows, and also butterflies that spread the poison.
+Everyone, be sure to report if you feel unwell or uncomfortable.]
 
 "...Good grief, what a great commander."
 
-Elven shrine maiden said, while folding her arms.
-Commander Jeanne didn't end her communications with orders alone.
+The elven shrine maiden said, while folding her arms.
+Commander Jeanne never ended her communications with orders alone.
 She would always end with words of appreciation for the work of her subordinates.
-As she was likely spot the subtle anxiety.
+As she was probably attentive to these subtleties.
 
-As they were proceeding deeper into these unfamiliar lands...
-If they'd lose their way, there would be no way to return.
+As they were proceeding deeper into the unfamiliar lands...
+If they lost their way, it would be impossible to return.
 She(Jeanne) understood the anxiety and fears of her subordinates, who were challenging such dangerous lands.
 
 [Vanguard car, what is situation? Any changes?]
@@ -171,40 +171,40 @@ She(Jeanne) understood the anxiety and fears of her subordinates, who were chall
 
 Reiren gave a prompt response.
 
-"In first place, if the forest would be actually so dangerous, foreign gods wouldn't even approach it.
+"In the first place, if the forest were actually so dangerous, the foreign gods wouldn't even approach it.
 But oh well, thee can leave it to me.
 Even I have no desire to get myself killed after all.
 So I'm going to choose the safest route."
 
 [Please do so.]
 
-They could hear Jeanne's chuckle from radio.
+They could hear Jeanne chuckle over the radio.
 
-[Want to check one thing.
-Does this forest, Ciel Mir, goes all the way until Yurun in south?]
+[Just want to check one thing.
+Does this forest, Ciel Mir, go all the way until Yurun in the south?]
 
 "Indeed so.
-I also made a direct trip on foot.
+I had also made a direct trip on foot.
 At that time it took me around 7 days."
 
-Even for elf, who was able to easily leap from branch to branch of the ancient tree, almost like flying, it took seven days.
+Even for the elf, who was able to easily leap from branch to branch of the ancient trees, almost like flying, it took seven days.
 
 It made him wonder just how big this maze of the forest was.
 Hearing Reiren's answer astonished him.
 
-[And with our current pace?]
+[And at our current pace?]
 
 "Ideally it should take us 3 days and 3 nights.
-But along the way we should be able to find few fruits, edible by humans.
+But along the way we should be able to find some fruits edible by humans.
 No need to worry about provisions."
 
-[Understood. I suppose I should be thankful to the Dante for supplying us with brand new batteries.]
+[Understood. I suppose we should be thankful to the Dante for supplying us with brand new batteries.]
 
-Io Resistance's base was at Cassiopeia, which was industrial city in past.
+Io Resistance's base was at Cassiopeia, which was an industrial city in the past.
 
-If it wouldn't be for plants that could supply their cars with new batteries, there would be no way for them to carry out their plan of traversing through this maze of the forest.
+If it weren't for plants that could supply their cars with new batteries, there would be no way for them to carry out their plan of traversing through this maze of a forest.
 
-"With our current pace, we should be able to reach a stream, abundant with spring water, within 2 hours."
+"At our current pace, we should be able to reach a stream abundant with spring water, within 2 hours."
 
 [So you heard her, my friends.
 Our next break...]
@@ -216,26 +216,26 @@ Rinne, who stretched her neck from the rear, pointed towards the front glass.
 She was pointing towards the clearance between two ancient trees.
 As it was still far away, it wasn't very clearly visible.
 
-"Hm? Meaning?"
+"Hmm? Meaning?"
 
 "There is something weird there.
-There are many trees fallen down,
-and even ground became messy."
+Many trees have fallen down,
+and even the ground is messy."
 
 "...What!?"
 
-Unintentionally, he put more force to his grip.
-As they were running straight towards the direction, which Rinne pointed, at that moment...
+Unintentionally, he put more force in his grip.
+As they were running straight towards the direction Rinne pointed at, right then...
 
 "Stop this thing!"
 
-Elven shrine maiden grasped Kai's left hand and started pulling it. _TL Note:_ A bit of trivia: Japan is one of these countries where cars are right handed.
+The elven shrine maiden grasped Kai's left hand and started pulling it. _TL Note:_ A bit of trivia: Japan is one of these countries where cars are right handed.
 
-And as a stiff look appeared on hear face...
+And as a stiff look appeared on her face...
 
 "What is that thing...!"
 
-"Jeanne, stop. There is something ahead!"
+"Jeanne, stop. There is something up ahead!"
 
 All cars started to slow down at once.
 Their wheels, stopping all of the sudden, blew up a pile of fallen laves, leaving them dancing in the air.
@@ -246,62 +246,62 @@ _TL TODO:_ `勢いよく回転していた車輪が止まった反動に噴き�
 
 "Humph! I'm more useful to Kai than you."
 
-Then Reiren and Rinne jumped out of the car.
+Reiren and Rinne jumped out of the car.
 
 "Kai, what's wrong? Did something happen?"
 
-Jeanne appeared from cadillac behind them.
-Besides her was the female bodyguard Farin, walking with already unsheathed sword.
+Jeanne appeared from the cadillac behind them.
+Besides her was the female bodyguard Farin, walking with her sword already unsheathed.
 
 "Rinne and Reiren spotted something.
 Jeanne, wait here.
-You should be ready to give order any time, if there is really something there."
+You should be ready to give orders at any moment, if there really is something there."
 
-Urza Resistance forces were about 150 people.
+The Urza Resistance forces were about 150 in number.
 And as it was not yet clear what [was there], it was unwise to move all forces.
 
-"Kai, it might be good idea to take it with you."
+"Kai, it might be good idea to take that with you."
 
 "Mm... Yeah, got it."
 
-Rinne, who peered into driver window, pointed at black bayonet.
+Rinne, who peered into the driver's window, pointed at his black bayonet.
 It was a general purpose assault bayonet [Drake Nail].
 Looking similar to Drake's claw, it was a weapon, developed by MDA based on records from the Great War.
 
 _Rinne tells me to take my weapon..._
 
-_Is it dangerous to such extent?_
+_Is it dangerous to such an extent?_
 
 "You're going to get devoured there."
 
-Ominous words escaped lips of elven shrine maiden.
+Ominous words escaped lips of the elven shrine maiden.
 
-"Since I'm used to walking the forest, I'll be leading the way.
+"Since I'm used to walking in the forest, I'll be leading the way.
 Kai, Rinne, follow me."
 
-The elf leaped towards ancient tree's root.
+The elf leaped towards the ancient tree's root.
 
-And then from root to root, just like locust, she easily repeated her jump with ease.
-In the blink of eye, her figure started to disappear.
+And then from root to root, just like a locust, she easily repeated her jumps with ease.
+In the blink of an eye, her figure started to disappear.
 
 "Oi, Reiren, you're going too far ahead alone... Damn it."
 
 He exchanged glances with Rinne.
-And then grabbing the Drake Nail, he run after.
+And then grabbing the Drake Nail, he ran after.
 
 The forest was filled with piles of fallen leaves.
-Having no idea what could be hidden behinds these ancient trees and brushes, Kai had to remain cautious while running.
+Having no idea what could be hidden behind the ancient trees and brushes, Kai had to remain cautious while running.
 
-"Kai, be careful, if thee step on this mushroom, thy foot going to be swollen"
+"Kai, be careful, if thee step on this mushroom, thy foot is going to be swollen"
 
 "Uo!?"
 
-"Ah, and that's tree bug too. Its bite can take off a finger."
+"Ah, and that tree bug too. Its bite can take off a finger."
 
 "As I thought, this forest is just absurd..."
 
-Comparing to the forest surrounding elven village, it was extremely big and strange natural system.
-Still Kai wondered what would make the elf, who was supposed to be very knowledgeable, to regard something as unnatural.
+Compared to the forest surrounding the elven village, it was an extremely big and strange natural system.
+Still, Kai wondered what would make the elf, who was supposed to be very knowledgeable, to regard something as unnatural.
 
 "Kai, it's here."
 
@@ -311,37 +311,37 @@ _TL Note:_ I'm not really sure how author means `害` here?
 
 "I suspect the evil being is no longer here.
 Still do not relax.
-I don't know where it could be hiding."
+We don't know where it could be hiding."
 
 "What do you mean...?!
 This is...!?"
 
 A shiver went down his spine.
-It became clear to him once Kai went around the ancient tree.
+It became clear to him once Kai circled behind the ancient tree.
 
-There were mowed down and devoured trees...
+The trees were mowed down and devoured...
 
 Dozens of fallen trees had their bark and branches chewed off with terrific strength.
-On the ground were footsteps that looked like a hole.
+On the ground were footsteps that resembled giant holes.
 These were absurdly large footprints.
 
-_Magical beasts that we saw in demons den was certainly big, but..._
+_Magical beasts that we saw in the demon's den were certainly big, but..._
 
-_This looks much worse than their wildness._
+_This looks much worse than their rampage._
 
-It looked like a raging storm passed here.
+It looked as if a raging storm had passed through.
 
 "Well then, I'm at a loss here.
 Certainly I'm proud of being knowledgeable about the forest, but..."
 
-Said elven girl, who was surveying the traces of destruction with awkward expression on her face.
+Said the elven girl, who was surveying the traces of destruction with an awkward expression on her face.
 
 "I cannot fathom what could cause such ruckus.
 Being able to mow down these ancient trees?
 Just what sort of monster could do it?
 There is certainly no living being like that in this forest."
 
-"To me it looks like a giant dragon being raging though..."
+"To me it looks like a giant dragon raging though..."
 
 "Huh? Wait a second, Kai, where do thee think we are?"
 
@@ -349,71 +349,71 @@ Elven shrine maiden spread her hands.
 
 "This land belongs to foreign gods.
 We're in the east of great continent, while cryptids like dragons reside in the west.
-They are completely on opposite side of the continent."
+They are on completely opposite sides of the continent."
 
 "Sure, I know.
-But are there any other race that is capable of such feat?"
+But is there any other race that is capable of such a feat?"
 
 "..."
 
-Having enough strength to mow down the ancient tree.
-And leave these gigantic footprints, smashing and destroying all plants.
-There were no other race, possessing such destructive nature.
+Having enough strength to mow down the ancient trees.
+And leave these gigantic footprints, smashing and destroying everything.
+There was no other race possessing such a destructive nature.
 
 "I'm with Kai on this."
 
 "Mm?"
 
-"There is animal's scent."
+"There is some animal's scent."
 
 This gigantic footprint is not easy to recognize because of muddy ground.
-But as Rinne brought closer her face to it, she could feel traces of it.
+But as Rinne brought her face closer, she could feel traces of it.
 
-"Feels like the cryptid.
-Cannot say which kind, but I'm certain it is not the dragon."
+"Feels like a cryptid.
+Cannot say which kind, but I'm certain it is not a dragon."
 
 "...Truly?"
 
 The elf became speechless.
-This way it meant that giant cryptid was able to trespass onto their, foreign gods, territory.
-It was equal as to what humans would call, when burglar would enter their house.
+This meant that a giant cryptid was able to trespass onto their, foreign gods', territory.
+It was analogous to what humans would call burglars breaking into their house.
 
-"Then what about this cryptid size!?
-If such thing would cross the border, then angels would definitely notice it!"
+"Then what about this cryptid's size!?
+If such a thing were to cross the border, the angels would have definitely noticed it!"
 
-Among foreign gods who lived in the forest were elves, dwarves and fairies.
-On other angels, who lived in their sky palaces, watched over the Io territory from the sky.
-For Reiren it was obvious to place her faith in their watch.
+Among the foreign gods who lived in the forest were elves, dwarves and fairies.
+On the other hand angels, who lived in their sky palaces, watched over the Io territory from the sky.
+For Reiren it was obvious to place faith in their watch.
 
-"I might have idea about it.
+"I might have an idea about it.
 On our way from Urza, we met a cryptid.
 But at that time it was just a wyvern."
 
 It was at the time when they departed from the capital of Urza, on their way to the Io.
-On highway amidst snowy mountain range, they were suddenly attacked by it.
+On the highway amidst snowy mountain range, they were suddenly attacked by it.
 
 [...Kai, above! It is coming from the sky!]
 
 [Wyvern!]
 
-[What is meaning of it, isn't it supposed to be demon territory? Why cryptid is here!?]
+[What is meaning of it, isn't it supposed to be the demon's territory? What is a cryptid doing here!?]
 
-"...In northern country? So you've been attacked by cryptids there?"
+"...In the northern country? So thee were attacked by cryptids there?"
 
 "I doubted my own eyes.
-At that time we lost two cars in battle with it.
+At that time we lost two cars in the battle.
 We were fortunate that it ended only with that."
 
-Even now they were puzzled by goal of that cryptid, stepping onto Urza territory.
+Even now they were puzzled by the goal of that cryptid, stepping onto Urza territory.
 
-"Soon after Vanessa's defeat, we had Wyvern intrude upon Urza borders.
+"Soon after Vanessa's defeat, we had a wyvern intrude upon Urza borders.
 And now after Alfreyja's defeat.
 The timing is quite similar I think."
 
-"If cryptids are trespassing territories of other countries..."
+"If cryptids are trespassing the territories of other countries..."
 
 Reiren made a grimace.
-But while elven shrine maiden was lost in thought, he heard Jeanne's voice from the radio.
+While the elven shrine maiden was lost in thought, Jeanne's voice could be heard from the radio.
 
 _TL TODO:_ `エルフの巫女が返事を探しあぐねている間に、通信機を経由してジャンヌの声が。` First part is a bit confusing, mostly because of `探しあぐねている`
 
@@ -423,18 +423,18 @@ _TL TODO:_ `エルフの巫女が返事を探しあぐねている間に、通�
 Jeanne, I think you can come here too.
 It is just..."
 
-The criminal behind this destruction already left.
-As Kai was watching footprints, which were following deeper into the forest, he tightly grasped the radio.
+The criminal behind the destruction had already left.
+As Kai was watching the footprints which continued deeper into the forest, he tightly grasped the radio.
 
-"We might have hard time reaching the southern border."
+"We might have a hard time reaching the southern border."
 
 -------------------------------------------------------------------------------
 
 <a href="#Part2" id="Part2" class="Bookmark"></a>
 
-The green maze was repainted by madder red colour.
-Behind these thick leaves, sun could be seen going down to the horizon.
-Before long the night has arrived.
+The green maze was repainted by a madder red colour.
+Behind the thick leaves, the sun could be seen going down to the horizon.
+Before long, the night had arrived.
 
 _TL Note:_ Author uses `生い茂る葉の上では` here, which is hard to get right for me so I re-phrased.
 But probably I need to come back to it.
