@@ -159,7 +159,7 @@ Everyone, be sure to report if you feel unwell or uncomfortable.]
 The elven shrine maiden said, while folding her arms.
 Commander Jeanne never ended her communications with orders alone.
 She would always end with words of appreciation for the work of her subordinates.
-As she was probably attentive to these subtleties.
+Her subtle consideration could not go unnoticed.
 
 As they were proceeding deeper into the unfamiliar lands...
 If they lost their way, it would be impossible to return.
@@ -432,80 +432,81 @@ As Kai was watching the footprints which continued deeper into the forest, he ti
 
 <a href="#Part2" id="Part2" class="Bookmark"></a>
 
-The green maze was repainted by a madder red colour.
-Behind the thick leaves, the sun could be seen going down to the horizon.
+The green maze was repainted in a madder red colour.
+Behind the thick leaves, the sun could be seen setting down to the horizon.
 Before long, the night had arrived.
 
 _TL Note:_ Author uses `生い茂る葉の上では` here, which is hard to get right for me so I re-phrased.
 But probably I need to come back to it.
 
-"Did I not tell that forest's ecosystem changes as day and night?"
+"Did I not tell that this forest's ecosystem is different during the day and night?"
 
 "Lots more incests appear. Also big sized animals I think.
-These are rarely approaching our village, but once night falls fairies are always laying down animal repelling spell."
+They rarely approach our village, but once night falls, the fairies are always laying down spells to repel animals."
 
-They were in the clearing.
+They were in a clearing of the forest.
 Assembling the tent, near the stream with spring water.
 As Kai was working on setting up the tent, Reiren was observing with curiosity.
 
-By the way, nearby was Rinne, who was sitting doing nothing.
+By the way, Rinne who was nearby, was sitting down, doing nothing.
 
-"Hey, Kai? Is it done yet? It is so boring that I'm feeling sleepy..."
+"Hey, Kai? Is it done yet? It is so boring that I'm getting sleepy..."
 
 "I'll finish soon."
 
 She was like a kitten who wanted to play.
-Comparing to such Rinne, Reiren, who was looking with a great curiosity at tents, set up by humans, looked like a loyal dog.
+Compared to such Rinne, Reiren, who was looking with a great curiosity at the tents being set up by the humans, resembled a loyal dog.
 
 "Come to think of it... Reiren, you seem calm now."
 
 "What are thee talking about?"
 
 "Well, there are lots of humans around.
-Considering you've been sent with us as representative of the elven village, I expected you'd be complaining a lot...
+Considering that you've been sent with us as a representative of the elven village, I expected you to be complaining a lot...
 Really, thanks."
 
 Rinne and Reiren.
-Both looked like a fairly skinned beautiful maidens.
-As long as neither Rinne's wing or Reiren's ears are discovered, no one would suspect a thing.
+Both looked like fair skinned beautiful maidens.
+As long as neither Rinne's wing or Reiren's ears were discovered, no one would suspect a thing.
 
-"If I'd be on guard always, it would only make me suspicious, don't you think?"
+"If I were to be on guard all the time, it would only make me suspicious, don't you think?"
 
-Elven shrine maiden didn't even bat an eye at soldier, who passed by her back just now.
-In such situation where she was surrounded by more hundred of enemies.
+The elven shrine maiden didn't even bat an eye at a soldier who passed by her back just then.
+In such a situation where she was surrounded by more than a hundred enemies.
 
 _TL Note:_ Ehm... Technically they are in truce though?
+_ED Note:_ Shrugs, Maybe the elf still have misgivings about Kai and his group?
 
 "That's why I restrain myself.
 In all reality I want to fuss and complain about it."
 
 "Well, I understand..."
 
-"Still, it is hard for me to tolerate getting myself stained by human smell.
+"Still, it is hard for me to tolerate getting stained by human smell.
 I shall take a stroll in the forest."
 
-But before the elven girl, who stood up, turned her back towards them.
+But before the elven girl who stood up, turned her back towards them.
 
-"Wait. Rinne, how about you tagging along with her?"
+"Wait. Rinne, how about you tag along with her?"
 
 "Me?"
 
-"...Still has no trust in me?"
+"...Thee still has no trust in me?"
 
-Elven shrine maiden, who stood besides blankly blinking Rinne, frowned.
+The elven shrine maiden, who stood beside a blankly blinking Rinne, frowned.
 
-"Or do thee think I'll be up to no good, the moment thy eyes are averted?"
+"Or do thee think I'll be up to no good the moment thy eyes are averted?"
 
-"It is simple: we saw the destruction during the day, didn't we?"
+"The reason is simple: we saw the destruction during the day, didn't we?"
 
 "...Mu."
 
-"I want you to take a look around tent's surroundings.
-If it is both of you, then it should be fine, is it not?"
+"I want you to take a look around the tents' surroundings.
+If it's you two, then it should be fine, right?"
 
 It wasn't a matter of trust.
 It was the opposite.
-Precisely because elven knowledge was so highly valuable, she has been asked to patrol the surroundings after sunset, which would extremely dangerous task for Resistance's soldiers otherwise.
+Precisely because elven knowledge was so highly valuable, she has been asked to patrol the surroundings after sunset, which would be an extremely dangerous task for Resistance's soldiers otherwise.
 
 _TL Note:_ The last sentence is re-phrased.
 
@@ -515,38 +516,38 @@ _TL Note:_ The last sentence is re-phrased.
 
 "?"
 
-"From the known to me records: cryptids were able to perform assault of the city which was 1,500 kilometres away.
-So to say these guys are able to traverse this much by just running over ground."
+"From the records I know: cryptids were able to perform assault of a city which was 1,500 kilometres away.
+So these guys are able to traverse this much by just running over ground."
 
 In the end cryptids are just enormous.
 Therefore their sense of distance is different.
-What would be like one kilometre for the human or the elf, wouldn't feel more than few meters to them.
+What would be like one kilometre for a human or elf, wouldn't feel more than few meters to them.
 
 _From that place it takes 3 hours on car._
 
-_Even if it is more than 100 kilometres of straight path, we cannot be careless._
+_Even if it is more than a 100 kilometres of straight path, we cannot be careless._
 
 "It cannot hurt to be vigilant, don't you think?"
 
-"I understand. Thee are such sort of human, after all."
+"I understand. Thee are that sort of a human, after all."
 
-Elven shrine maiden squinted.
-Which looked as she was amused by him.
+The elven shrine maiden squinted.
+It looked as if she was amused by him.
 
-"It would seem it is me who wasn't taking thee seriously...
+"It would seem it was me who wasn't taking thee seriously...
 Hey, Rinne, let us go now.
 Time to patrol."
 
 "Yup, Kai, I'll be back soon."
 
-Just like that with light footsteps, both girls headed into darkness of the forest in front of Kai's eyes.
+Just like that with light footsteps, the two girls headed into the darkness of the forest in front of Kai's eyes.
 
 _TL Note:_ `軽やかに宙を舞う` This is a bit hard to phrase, because I'm pretty sure it is not dance, but more like walking posture that resembles dancing? But how to name it?
 
-"...Well, I'll continue setting up the tent then."
+"...Well, I'll continue setting up the tents then."
 
-He finished putting anti-wind cover onto the tent.
-But the moment he was about to move on the second one...
+He finished applying the anti-wind cover onto the tent.
+But the moment he was about to move on the next one...
 
 "Kai."
 
@@ -558,89 +559,89 @@ Jeanne, who appeared from behind, patted his shoulder.
 
 "No, it is fine then.
 I was about to ask her to do the same thing actually.
-And if Rinne is with her then she will not be able to pull any tricks so easily."
+And if Rinne is with her then she will not be able to pull any tricks that easily."
 
 This was inevitable.
-Jeanne's worry was also in line with Reiren own words few moments ago.
+Jeanne's worry was also in line with Reiren's own words from a few moments ago.
 
 [Foreign gods keep their promises.]
 
 So they would abide by their one year truce agreement, and Reiren was sent to accompany them for that purpose.
-This is what elven elder told them, but Kai couldn't trust these words completely.
+This is what the elven elder told them, but Kai couldn't trust these words completely.
 
-_From foreign gods point of view, humans are just inferior._
+_From the foreign gods' point of view, humans are just inferior._
 
-_So do they even intend to keep their promise with such humans... Jeanne's worry is natural._
+_So do they even intend to keep their promise with such humans... Jeanne's concern is natural._
 
 There was no way to know when Reiren would just run away.
-What makes Jeanne's wariness even more stronger is her duty as the Commander over more than hundred people, which was only natural.
+What made Jeanne's wariness even more stronger was her duty as the Commander over more than a hundred people, which was only natural.
 
 "And, Kai, I'd like us to chat a bit."
 
 "Us...?"
 
-"Just us yes. It is going to be hard if my subordinates would hear us so let move away."
+"Just us yes. It will be troublesome if my subordinates overhear us, so let's move away."
 
 They moved towards the ancient tree, illuminated by a campfire.
-Here besides brushes it wouldn't be too far from where they placed tents, but far enough so that no one would hear them.
+Around there besides the bushes it wouldn't be too far from where they placed tents, but far enough so that no one could hear them.
 
-"Here should be fine... Now that I think about it: We didn't have chance to talk much about it."
+"Here should be fine... Now that I think about it: We didn't have a chance to talk much about it."
 
-She changed from her energetic male voice to lovely and charming female one.
-As she always keep herself disguised as a male commander she had to keep her voice as <span title="Not volume, but as if male's low voice">low sounding</span>.
-But in front of Kai she could return back to her natural voice.
+She changed from her energetic male voice to a lovely and charming female one.
+As she always kept herself disguised as a male commander she had to keep her voice <span title="Not volume, but as if male's low voice">low sounding</span>.
+But in front of Kai she could return back to using her natural voice.
 
 "About your sword."
 
-She pointed at the Drake Nail, which was in holster on his back.
+She pointed at the Drake Nail, which was holstered on his back.
 
-"When we fought Alfreyja, it looked to me like it was emitting light and then changing it's shape."
+"When we fought Alfreyja, it looked to me like it was emitting light and then changing its shape."
 
 "Yeah, it wasn't your imagination."
 
 "...I was wondering what sort of weapon is it?"
 
-This weapon wasn't work of humans.
+This weapon wasn't the work of humans.
 It was pretty obvious to Jeanne's eyes.
-And it was obviously different from bayonet, which was indeed human's invention.
+And it was obviously different from a bayonet, which was indeed the human's invention.
 
 Code Holder.
 
-It was the sword, which he found in [Demons Graveyard] where he once found himself lost.
+It was the sword, which he found in the [Demons' Graveyard] where he once found himself lost.
 
 "Even I don't know about it. I only picked it up."
 
 "Eh?"
 
-"I told before: in known to me history there was a human known as Sid."
+"I told before: in the history known to me there was a human called Sid."
 
-"...I heard yeah. Sid was the one who brought us victory in the great war.
-In history of your world that is."
+"...I heard so, yeah. Sid was the one who brought us victory in the great war.
+In the history of your world that is."
 
 "This Code Holder is said to be the sword that Sid wielded.
-Although right now it is bayonet, but probably it will materialize in response to my voice.
+Although right now it is a bayonet, it can probably materialize in response to my voice.
 How it works though is beyond me."
 
-He always wondered why Sid's sword would end up in the graveyard.
-And Kai's question was answered by demons hero Vanessa.
+He always wondered how Sid's sword ended up in the graveyard.
+And Kai's question was answered by demons' hero Vanessa.
 
-[Sid foresaw that something strange is going to happen with world.]
+[Sid foresaw that something strange is going to happen with the world.]
 
-[Sid left this sword to me. In anticipation to this situation...]
+[Sid left this sword to me. In anticipation of this situation...]
 
 Ability to severe the fate.
-This was the power of this sword, and the only thing that Kai knew about it.
+This was the power of this sword, and that was the only thing Kai knew about it.
 
 "Doesn't sound reliable." _TL Note:_ I'm a bit uncertain what `危うい` is referring to.
 
-Silver haired commander made a sullen face.
+The silver haired commander made a sullen face.
 
-"I might be barking at the wrong tree, after being helped by it, but I don't feel good about you using weapon that we don't know all that well.
-This thing, it is not human weapon, isn't?"
+"I might be barking at the wrong tree after being helped by it, but I don't feel good about you using a weapon that we don't know all that well.
+This thing, it is not made by humans, right?"
 
-"I think it might be elven magic tool or something similar."
+"I think it might be an elven magic tool or something similar."
 
-It was indeed as Jeanne said: a mystery.
+It was indeed as Jeanne pointed out: a mystery.
 
 "But in that case, I also want to give a piece of my mind."
 
@@ -650,27 +651,28 @@ Jeanne put her hand on the armour.
 But she meant not the grey armour itself, but rather what was under it.
 
 The thin silk that was covering her skin.
-It was elven battle attire - clothes which emitted faint light, which made Jeanne a [Light Knight]
+It was the elven battle attire - clothes which emitted faint light, which made Jeanne a [Light Knight]
 
 _I knew that it was one of the greatest treasures that got stolen from foreign gods and holds resistance against magic._
 
 _But I didn't really give it much thought actually._
 
-Angels bow and elven spirit garments.
+Angels' bow and elven spirit garments.
 These magic tools, that Jeanne had in her possession, could be used by angels and elves because they possessed magic power.
-But it made him to wonder: why human without any magic power could put them in action?
+But it made him to wonder: why could a human without any magic power put them in action?
 
 _TL Note:_ `そこに疑問を持つべきだった。` and line before is re-phrased.
 
-These were burial clothes, which shine was snatching away her life.
+These were burial clothes, whose shine was snatching away her life.
 
 _TL Note:_ Author uses `体力` which can be interpreted in various ways.
 I'm not exactly sure if Sazane-sensei means that it literally shortens her life or just affects her stamina.
 I suspect first... :(
+_ED Note:_ Given the development at the battle at Angel's palace, I'm pretty sure it means "life force". :(
 
-Even as they were just talking, it continued to snatch away her life.
-If it would be the true world, Kai would do his utmost to stop her from wearing these elven spirit garments.
-To not allow her to do something that would be snatching away her life.
+Even as they were just talking, it continued to eat away at her life force.
+If it were the true world, Kai would do his utmost to stop her from wearing these elven spirit garments.
+To not allow her to do something that would be gradually snatching away her life.
 
 But...
 Right now Kai had no right to stop her, who continued to fight in this cruel world.
@@ -680,19 +682,19 @@ Right now Kai had no right to stop her, who continued to fight in this cruel wor
 "Of course, I decided to do so myself.
 I was the only one who was fit for it."
 
-With a firm smile, silver haired girl shook her head.
+With a firm smile, the silver haired girl shook her head.
 
 "Want to tell me to take it off?"
 
-"Even I'd say, you wouldn't listen. I already knew it... Even before."
+"Even if I'd say, you wouldn't listen. I already knew it... Even from before."
 
-Commander Jeanne, who could upon herself a hope of the mankind.
+Commander Jeanne, who took the name of the hope of mankind.
 She herself might not remember it.
-But in the world, where mankind won the great war, Jeanne and Kai were childhood friends who were living next to each other and getting along well.
+But in the world where mankind won the great war, Jeanne and Kai were childhood friends who lived next to each other and got along well.
 
-"If I start saying anything, you wouldn't listen."
+"If I started saying anything, you wouldn't listen."
 
-"By that... You mean me in the world, from where you're, Kai?
+"By that... You mean me in the world where you're from where, Kai?
 Where we've been childhood friends."
 
 "It is different now."
@@ -702,118 +704,120 @@ Where we've been childhood friends."
 "I know that."
 
 Kai only responded with one big shrug to Jeanne's serious response.
-He thought back on how many times he had exchange like that back in the true world.
-Still, her firm character remaining unchanged like that, gave him strange feeling of relief.
+He thought back on how many times he had exchanges like that back in the true world.
+Still, her firm character remaining unchanged like that, gave him a strange feeling of relief.
 
 "Should be fine still. Only five more minutes." _TL TODO:_ re-check `まだ平気よね。じゃああと五分だけ`
 
-"M?"
+"Mm?"
 
 "Hey, I want to ask something."
 
-Her eyes upturned. She asked with mischievous smile:
+Her eyes upturned, she asked with a mischievous smile:
 
 "How was I in your true world, Kai?"
 
-"How you ask... Well you've been my neighbour."
+"How, you ask... Well you were been my neighbour."
 
 "No, no, I mean my personality, how I behaved and things like that.
-After the great war was over with mankind's triumph it would be a peaceful world.
-There is no Reistance, right?"
+After the great war ended with mankind's triumph it must have been a peaceful world.
+There was no Reistance, right?"
 
 "Of course."
 
 "I cannot even imagine it.
-What sort of life I'd have, if I wouldn't become Resistance's commander.
-Likely I also don't have to pretend to be a man, right?"
+What sort of life I'd have, if I hadn't become Resistance's commander.
+Likely I also didn't have to pretend to be a man, right?"
 
 Fixing his gaze on her, Kai remained silent.
-Wondering just what kind of girl was Jeanne E Anise in the true world.
+Wondering just what kind of girl Jeanne E Anise was in the true world.
 
 _Will she remember once I tell her..._
 
-_What I'm thinking... That would be just too nice to be truth._
+_What I'm thinking... That would be just too good to be true._
 
-The moment hope crossed his mind, Kai shut down this thought.
+The moment the hope crossed his mind, Kai shut down this thought.
 After all, it was just his selfish wish.
 
-What's more, remembering it right now is not necessary a desirable thing for Jeanne herself.
+What's more, remembering it right now was not necessary a desirable thing for Jeanne herself.
 
 "Hey?"
 
-"...You've been quite popular."
+"...You used to be quite popular."
 
 Taking a big breath he continued.
 
-"After humans won in the great war, four races have been sealed in graveyards.
-Both me and you, Jeanne, were part of troops, responsible for safeguarding that."
+"After the humans won in the great war, the other four races had been sealed in graveyards.
+Both me and you, Jeanne, were a part of the troops responsible for safeguarding them."
 
-"Could it be I'm also commander there?"
+"Could it be I was also a commander there?"
 
-"No, no, but likely you will be in the near future."
+"No, no, but likely you were to become one in the near future."
 
-Looking at her listening to him with such confidence, he kept a smile at heart.
+Looking at her listen with such confidence, he smiled deep in his heart.
 
 _TL TODO_: Re-check? `自信満々にそう訊く彼女に、内心で苦笑いを堪えながら。`
 
-"With my low position I'm just standing a watch around the graveyard.
-But you, Jeanne, was planning to be heading to the capital.
-Youngest, and moreover first woman at that."
+"With my low position I was just standing watch around the graveyard.
+But you, Jeanne, were planning to head to the capital.
+Youngest, and moreover the first woman, at that."
 
-"Oh, so, Kai, from you perspective I didn't change much then?"
+"Oh, so Kai, from your perspective, I didn't change much then?"
 
 "...Well, I was surprised to see you dressed as a man."
 
 When he first met her at Neo Vishal, he was really quite surprised at Jeanne's change.
-Even now seeing her in front of him, he felt the same.
+Even now while seeing her in front of him, he felt the same.
 
-"Jeanne that I know had her hair down and wore fashionable clothes."
+"The Jeanne that I knew had her hair down and wore fashionable clothes."
 
-"Me? Ahahah, then I'm definitely changed."
+"Me? Ahahah, then I've definitely changed."
 
-She burst into laughter.
+She burst out into laughter.
 
 _TL TODO:_ Check `少女が噴きだす`
 
-"It is been a while since last time I wore a skirt.
-The same about make-up, I don't think I even thought about becoming more feminine.
+"It has been a while since the last time I wore a skirt.
+The same about make-up, I don't think I ever thought about becoming more feminine.
 ...But... Well, I see..."
 
 _TL TODO:_ Check second sentence `お化粧だって女の子っぽくなろうなんて考えもしないし`
 
 For a short while she laughed.
-But soon enough his silver haired childhood friend's eyes shown sadness.
+But soon enough, his silver haired childhood friend's eyes showed sadness.
 
-"I forgot already... When last time I've been yearning for such feminine things."
+"I've forgotten already... When was the last time I yearned for such feminine things?"
 
 "..."
 
-"Hey, Kai, I have something to say" _TL Note:_ She says `我が儘` which could said to be unreasonable/selfish, but I don't feel it is right. Potla?
+"Hey Kai, can I ask you for something?" _TL Note:_ She says `我が儘` which could said to be unreasonable/selfish, but I don't feel it is right. Potla?
+_ED Note:_ Yeah, the literal translation would be "Can you listen to my selfish request?", but that doesn't sound good in English. xD
 
-"M?"
+"Mm?"
 
 ── Would you be my <span title="boyfriend">friend</span> even in this world?
 
 _TL Note:_ There is very interesting furigana `ボーイフレンド`, Jeanne should go for it!
 But pretty sure it would be more literal male friend though.
 Well, you guys know who I'm rooting for anyway.
+_ED Note:_ Anybody not on board the Rinne train can spill coffee on their newest white shirt.
 
-With her face slightly red, his silver hair childhood friend said, almost whispering.
+With her face dyed slightly red, his silver haired childhood friend said, almost whispering.
 
 "...Me?"
 
-"It is not something I can ask of my subordinates in Resistance.
+"It is not something I can ask of my subordinates in the Resistance.
 I'm their commander, so I cannot cross this line with them."
 
 But that was different for Kai.
 
-At most Kai is only outside helper.
-Together with Rinne, he is looking for a way to return back the true world.
-And coincidently their interests aligned with Urza Resistance, no more no less.
+At most Kai is only an outside helper.
+Together with Rinne, he is looking for a way to return back to the true world.
+And their interests coincidentally aligned with the Urza Resistance, no more no less.
 
 That's why...
-Between these two was no boss-subordinate relationship.
-They are just a boy and a girl of the same age.
+The relationship between these two were not that of a boss and their subordinate.
+They were just a boy and a girl of the same age.
 
 "I don't mean to change anything, and it is not a request per se. Just...
 Ehm, well, I miss... [friendship] quite a lot."
@@ -822,73 +826,74 @@ Ehm, well, I miss... [friendship] quite a lot."
 
 "N-not good...?"
 
-"No. I'm surprised you've been thinking about such thing." _TL TODO:_ Check how to make better `なんだそんな事かと思って`
+"No. I'm just surprised that you've been thinking about such a thing." _TL TODO:_ Check how to make better `なんだそんな事かと思って`
 
-"It is serious matter, though!?"
+"It is a serious matter, though!?"
 
-Jeanne have risen her voice.
+Jeanne's voice rose.
 
-"After I finally summoned courage to say it!"
+"After I finally summoned enough courage to say it!"
 
 "I understand. Well, of course I'm glad to hear it."
 
 It reminded him...
 Kai didn't remember her saying something like that in the true world.
 He thought back to their past.
-Since childhood they've been playing together and there was no sense of [becoming friends].
-Before he was even aware, they've been in such relationship already.
+Since childhood they had been playing together, and there was no sense of [becoming friends].
+Before he was even aware, they had been in such relationship already.
 
-"Nothing changed, but best regards."
+"Nothing has changed, but best regards."
 
 "Y-yeah!"
 
 Instantly Jeanne's face brightened up and she responded with big nod.
 And immediately following that...
 
-A long scream resonated echoed from direction of the camp site.
+A long scream resonated echoed from the direction of the camp site.
 
 "...!? What is going on!?"
 
-Following it was even stronger scream.
+Following it was an even louder scream.
 Sounds of footsteps, which seemed as if belonging to a elephant, resonated throughout the forest.
-They could hear dulled sound of tree's branches being broken.
+They could hear dull sounds of tree branches being broken.
 And then gunshots...
 
 "Kai!"
 
 Jeanne was quick to react.
-She only shouted Kai's name and rushed towards the camp site.
+She only shouted Kai's name and rushed towards the campsite.
 
 _Could it be what we encountered during the day...?_
 
-_Oh well I wish my premonition of something bad would stop already_ TL TODO: Re-check `いや、だけど悪い予感で終わってくれ！`
+_Oh well, please let it be no more than a bad premonition!_ TL TODO: Re-check `いや、だけど悪い予感で終わってくれ！`
 
-Pushing aside the brushes he sprung out into the open.
-Kai could see sparks from scattered bonfire, smashed trees and then, dyed in colors of dusk, head of gigantic beast.
+Pushing aside the bushes, he sprung out into the open.
+Kai could see sparks from the scattered bonfire, smashed trees and then, dyed in the color of dusk, the head of a gigantic beast.
 
-For a second he thought it was a lion, but then he couldn't comprehend what sort of creature it was.
-It had a mane, similar to that of line, but that was the only similarity with the lion.
-Its forefoot were so burly, even thicker than human body itself.
+For a second he thought it was a lion, but then he couldn't comprehend what sort of a creature it was.
+It had a mane, similar to that of lion, but that was the only similarity.
+Its forefoot were very burly, even thicker than human body itself.
 
 It was 4, or maybe even 5 meters tall.
-While half of it's body was hidden by brushes, likely it could span for over 15 meters.
+As half of its body was hidden by bushes, it could likely span for over 15 meters.
 
-"Is that a master of the forest!?"
+"Is that the master of the forest!?"
 
 "No. Jeanne, look at his forehead.
 It might be hard to see now, but his vein is visible there.
 So it is definitely a cryptid."
 
-One could wonder if gigantic beasts, like whales, who swim across great oceans or elephants, who traverses plains, belong cryptids.
+One could wonder if gigantic beasts like whales, who swim across great oceans, or elephants who traverse the plains, are classified as cryptids.
 But the answer would be no.
 No matter how big they are, to be called a cryptid, they must possess a certain organ, common to all cryptids.
 
 It is called [Magic bloodline]. _TL Note_ `法力血界系` Maybe need a better name?
+_ED Note:_ Please sensei, the Chuuni is overflowing day by day! :D
 
-In their case magic producing organs of demons and foreign gods became small blood veins.
-And this was the most prominent feature of cryptid race.
+In their case, the magic producing organs also possessed by demons and foreign gods, were small blood veins.
+And this was the most prominent feature of the cryptid race.
 
-"There is dull glitter from the red vein on his forehead."
+"There is a dull glitter from the red vein on his forehead."
 
 "During the day...! Did it follow us?"
 
@@ -901,225 +906,225 @@ While soldiers with machine guns were moving away from the beast, Farin nudged f
 
 "This cryptid..."
 
-As she started saying, she narrowed one eye like needle and continued. _TL Note:_ Don't ask me where it is coming from, Farin has this habit of closing one eye.
+As she started saying, she narrowed one eye like a needle and continued. _TL Note:_ Don't ask me where it is coming from, Farin has this habit of closing one eye.
 
 "Is it a Behemoth?"
 
 [....!!!]
 
-Cryptid roared.
-Whether it was due to countless bullets firing at its body, or Farin's call, but it responded.
-It started to rise it's forefoot.
+The cryptid roared.
+Whether it was due to countless bullets firing at its body, or Farin's call, it responded.
+It started to raise the forefoot.
 
 _TL Note:_ Farin makes this `っと` sound which I has no idea how to translate
 
 _TL TODO:_ `その鼻先をかすめ` is a bit unclear in the second sentence, below
 
 Farin stomped the ground with great strength and moved to the side.
-Gazing it's nose, beast mowed down the plain with tents below with it's foot.
-Against such force anchors that were holding tent served a little purpose.
+The beast mowed down only upon the tents in the clearance as Farin slid under its nose.
+The anchors that were holding the tents served little purpose against such force.
 And wreckages of metal and cloth were blown far away.
 
 "Hesitating here might get you killed". _TL Note:_ `迷いこんだ場所が徒となったな` I can think of different ways to interpret this phrase.
 
 The cryptid was just too big for this forest.
-Only half of the Behemoth's body could be seen from within gap between two trees.
+Only half of the Behemoth's body could be seen from within the gap between two trees.
 While the remaining half was still stuck there, unable to free itself.
 
 Towards the beast which lost it's balance.
-Farin attacked beast's shoulder with her shamshir in both hands.
-But it wasn't a slash, instead she used all of her arm strength and weight to slam the create with maximum impact.
+Farin attacked its shoulder with her shamshir in both hands.
+But it wasn't a slash, instead she used all of her arm strength and weight to slam the creature with maximum impact.
 But...
 
 "Tch."
 
-Her shamshir had been stopped by Behemoth's skin.
-Hardened by hundreds years of life, it's skin was able to stop the sword, leaving it without a single wound.
+Her shamshir had been stopped by the Behemoth's skin.
+Hardened by hundreds of years of life, its skin was able to stop the sword, leaving it without a single wound.
 The same thing as with bullets just few moments ago.
 
-"As one would expect, that's a grown specimen..."
+"As one would expect, that's a grown up specimen..."
 
-Kicking Behemoth's shoulder female warrior escapes from it into air.
-Seeing everything from the very beginning, Behemoth slowly moves it's body towards Farin in the air, baring it's fangs to crunch her.
+Kicking the Behemoth's shoulder, the female warrior escaped into the air.
+Seeing everything from the very beginning, tge Behemoth slowly moves its body towards Farin in the air, baring its fangs to crunch her.
 
-"Come here, beast."
+"Look here, beast."
 
-Right under it, Kai aimed at beast's left foot with his Drake Nail.
-Impact from this attack felt like he was hitting solid piece of rock.
+Right under it, Kai took an aim at the beast's left foot with his Drake Nail.
+The impact from his attack felt like he was hitting a solid piece of rock.
 
-_This thing is so sturdy! Is that really skin of living creature!?_
+_This thing is so sturdy! Is that really the skin of a living creature!?_
 
-_And even recoil alone makes my hand numb._
+_And even the recoil alone makes my hand numb._
 
 He couldn't even cut for a millimeter.
-Though in all honestly this blade was in first place designed with strength in mind, rather than sharpness.
-So it was at most half-arse attempt.
+Though in all honesty, this blade was in the first place designed with strength in mind, rather than sharpness.
+So it was at most a half-arsed attempt.
 
-_This is precisesly a thing against such absurdly armoured beasts like you._
+_This is precisesly made for such absurdly armoured beasts like you._
 
-Spark appeared at the edge of Drake Nail, like blooming red flower.
+A spark appeared at the edge of Drake Nail, like a blooming red flower.
 Then there was a blast. _TL Note:_ Sentence order is changed.
 
-It was simplified drake bullet.
+It was a simplified drake bullet.
 
-At it's core it was explosive that was trying to match power of fire breath of real Drake.
-As soon as Drake Nail's blade strikes, it explodes and pours all of it's fires onto in such close proximity.
-And this firepower was supposed to be enough to break through cryptid's armouring.
+At its core it was an explosive that was trying to match the power of fire breath of a real Drake.
+As soon as Drake Nail's blade strikes, it explodes and pours all of its firepower onto the target in such a close proximity.
+And this firepower was supposed to be enough to break through the cryptid's armour.
 
-"No good, Kai, move away!"
+"No good, Kai! Move away!"
 
 Straining her throat Jeanne shouted towards him.
-With fires and smokes limiting visibility, if it wouldn't be for Commander's yell, Kai could end up torn apart.
+With fires and smokes limiting visibility, if it weren't for the Commander's yell, Kai could end up torn apart.
 
 "...How!?"
 
 From within the fire Behemoth's forefoot appeared.
-Including it's toes, it looked like it wasn't even scratched.
+Including its toes, it looked like it wasn't even scratched.
 
-"You gotta be kidding!"
+"You gotta be kidding me!"
 
-He crouched on spot.
-Leaving few strands of his hair in air.
-If he would hesitate even for a split second, he would be tore apart by Behemoth's claw.
+He crouched on the spot.
+Leaving a few strands of his hair in the air.
+If he had hesitated even for a split second, he would have been tore apart by the Behemoth's claw.
 
 Drake bullet was ineffective.
-One could wonder if it was due lack of firepower or whether blast from Kai's attack was just weak.
+One could wonder if it was due to the lack of firepower, or whether the blast from Kai's attack was just weak.
 But most likely it was because this beast's skin was far more sturdy than anyone could predict.
 
 _Drake Nail was made accordingly to records from the Great War._
 
-_And of course information on Behemoth was present among cryptids data._
+_And of course information on Behemoth was present among the cryptids' data._
 
-Which meant that comparing to the cryptid in records from the true world, this monster was far more tougher enemy.
-Likely belonging to similar class of elder dragon.
-And unless they have canon, there is no way to shoot it down.
+Which meant that comparing to the cryptid in records from the true world, this monster was a far more tougher enemy.
+Likely belonging to a class similar to elder dragon.
+And unless they had a canon, there was no way to shoot it down.
 
 "How troublesome.
-Jeanne-sama, please move to the rear together with rest of the soldiers.
+Jeanne-sama, please move to the rear together with the rest of the soldiers.
 For this beast elven armour has no meaning" _TL Note:_ `この獣にはエルフの霊装が通じません` is a bit confusing.
 
 Said Farin, who stood besides Kai.
-Shamshir in her hands had been slowly heating up and becoming red from it.
+The shamshir in her hands had been slowly heating up and turning red from impact.
 
 "It is just too big.
-If it would be a dragon we could at least try to crush it down from sky, but with this guy it is not going to work.
+If it were a dragon we could at least try to crush it down from sky, but that is not going to work for this guy.
 Any suggestions?"
 
 "I'm thinking...
-If anything forest helped us."
+If anything the forest helped us."
 
-For Behemoth with it's enormous body, trees around it became a cage.
-Even now trees remain in it's way and preventing Behemoth from moving freely.
+For the Behemoth with its enormous body, the trees around it became a cage.
+Even now the trees blocked its way and prevented it from moving freely.
 It can only slowly creep in.
 
 "What would be prudent to do..."
 
 While glaring at the large beast.
 
-"Is to aim at it's forehead. I think it is weak point."
+"Aim at its forehead. I think that's its weak point."
 
-There on forehead was blood vein.
-It was [magic bloodline], rudimentary magic organ.
-And it was vital point, commonly found among cryptids.
+On the forehead was a blood vein.
+It was the [Magic bloodline], a rudimentary magic organ.
+And it was a vital point, commonly found among cryptids.
 
-But of course even Urza Resistance soldiers knew it.
-That's why they were concentrating their fire on forehead, but Behemoth's skin was able to repel their bullets.
-And therefore they were unable to pierce down below, where vein was.
+But of course even the Urza Resistance soldiers knew it.
+That's why they were concentrating their fire on the forehead, but the Behemoth's skin was able to repel their bullets.
+And therefore they were unable to pierce down below, where its vein was.
 
 "Either me or you has to strike his forehead."
 
 "Sound strategy. Putting aside if we can actually do it."
 
-They had to consider whether Kai's Drake Nail explosive blast or Farin's shamshir slash could do the dead.
+They had to consider whether Kai's Drake Nail's explosive blast or Farin's shamshir slash could seal the deal.
 But...
 
 "!"
 
 "Move!"
 
-In few moments ground was stomped upon.
-The moment he felt chills from the wind pressure, giant beast hand already landed in the middle between Kai and Farin, who jumped to their respective sides.
+In a few moments the ground was stomped upon.
+The moment he felt chills from the wind pressure, the giant beast's foot already landed in the middle between Kai and Farin, who jumped to their respective sides.
 Masses of sand and earth were flying around, together with fallen leaves.
 
 _We shouldn't get too close to it._
 
-_That beast might be slow, but once it aims for it's prey, it gets so damn fast!_
+_That beast might be slow, but once it aims for its prey, it gets so damn fast!_
 
-Amids constant gunshots and Behemoth's roaring, something fell from the sky.
+Amidst constant gunshots and Behemoth's roars, something fell from the sky.
 
 "Take cover!"
 
 White smoke with strong smell enveloped the area, reducing visibility to zero.
-Breathing it in was so hard, almost making you to choke, as if it was some sort of dust from minerals.
-In a blink of eye, their camp site became fully covered with it.
+Breathing it in was so hard, almost making one to choke, as if it was some sort of minereal dust.
+In the blink of an eye, their campsite became fully covered with it.
 
 One would think it was a tear-gas.
 But in fact it affected neither eyes or nose, so...
 
 "Reiren!"
 
-"It is mist mushroom.
+"It is a mist mushroom.
 Took me some time to gather."
 
-Breaking though the smoke, elf rushed forward with her vibrant seventh layered robs on.
+Breaking though the smoke, the elf rushed forward with her vibrant seven layered robes on.
 
 "...Cryptid, breaking into our forest with such audacity is going too far!"
 
-Elven shrine maiden aimed her silver, like full moon, knife at the beast's foot.
-Splashing it's venomous blood...
+The elven shrine maiden aimed her silver knife resembling a full moon at the beast's foot.
+Splashing its venomous blood...
 
-Beast roared in anger.
-Reiren clicked her tongue with unpleasant expression, stopped her attack and jumped back.
+The beast roared in anger.
+Reiren clicked her tongue with an unpleasant expression, stopped her attack and jumped back.
 
 "Tch, even this magic blade unable to pierce it in the end..."
 
 "...Kai!"
 
-He heard voice from above.
-Amidst white smoke, he could see spread tenma wings of girl who was descending.
-With her blond hair fluttering, she was looking like a descending angel.
+He heard a voice from above.
+Amidst the white smoke, he could see the spread tenma wings of a girl who was descending.
+With her blonde hair fluttering, she looked like a descending angel.
 
 She looked otherworldly majestic.
 
 "Hold onto me!"
 
-He responded by grasping girl's hand above his head.
+He responded by grasping the girl's hand above his head.
 
 "Going up!"
 
 He felt the wind with his whole body.
-Wind pressure, created by Rinne's wings, together with magic power very quickly moved Kai into air.
+Wind pressure created by Rinne's wings, together with magic power, very quickly moved Kai into air.
 
-_I see now. This smoke wasn't to deceive the Behemoth._
+_I see now. This smoke wasn't for deceiving the Behemoth._
 
-_It is to hide Rinne's wings!_
+_It was to hide Rinne's wings!_
 
-With this she could hide from eyes of soldiers who were gathered here.
+With this she could hide from the eyes of the soldiers who were gathered here.
 Moreover, being concealed from the beast, together with winged girl he could fly up to the trees.
 To get right above the beast itself...
 
-And from there he could see Behemoth's forehead.
+And from there he could see the Behemoth's forehead.
 Filled with magic power blood vein, slightly lit with red.
 
 "We can do it now. Rinne, start descending now."
 
 To strike down the weak point.
 
-But Kai's resolve was drown in the beast's breathing.
-Right below two of them, Behemoth leaned with his neck, looking straight in their direction.
-With extraordinary speed, it twisted it's neck and bared it's fangs at them.
+But Kai's resolve was drowned in the beast's breathing.
+Right below the two of them, the Behemoth leaned its neck, looking straight in their direction.
+With extraordinary speed, it twisted its neck and bared its fangs at them.
 
 "It noticed!? Impossible, being able to sniff out among these spores..."
 
 "Is it magic!?"
 
-Similar thing happened during retake of capital Urzak, numerous demons were pursuing Rinne by following her magic.
+A similar thing had happened during the recapture of capital Urzak; numerous demons were pursuing Rinne by following her magic.
 
-_Even though it is just a little, but cryptids posses magic power._
+_Even though it is just a little, but cryptids do possess magic power._
 
 _So it wouldn't be surprising for some individual to be able to spot the same magic._
 
-The way it goes, Kai suspected it wouldn't end with the beast just spotting them.
+The way it was going, Kai suspected it wouldn't end with the beast just spotting them.
 
 "Rinne, let go of me!"
 
@@ -1127,61 +1132,64 @@ The way it goes, Kai suspected it wouldn't end with the beast just spotting them
 
 He brushed off the hand of girl, who was trying to grasp him.
 He made a swoop aiming at the Behemoth amidst the white smoke.
-Adding left hand to a grip on the Drake Nail in his right hand, he raised it overhead.
+Adding his left hand on top of the right hand gripping the Drake Nail, he raised it overhead.
 
 _TL Note:_ Last sentence need improvement `右手に握る亜竜爪に左手を添えて、頭上へ振りあげる。`
 
-Just below there was a enormous mouth that could chew off human in single mouthful.
+Just below there was an enormous mouth that could chew off a human in single mouthful. _ED Note:_ Om nom!
 
 "Kaiii!?"
 
 Rinne screamed.
-Human, without wings, would only be bound by gravity to fall down.
+A human without wings, would only be bound by gravity to fall down.
 Using this momentum, Kai swung down his black bayonet.
 
-Behemoth's fang against imitation of Drake's nail.
-As Rinne gasped, two <span title="刃">blades</span> passed by few centimeters.
+Behemoth's fang against the imitation of Drake's nail.
+As Rinne gasped, two <span title="刃">blades</span> passed each other by a few centimeters.
 
 "Explode!" _TL Note:_ I'm still unsure which word to choose for `爆ぜろ`
 
-Then amids white smoke...
-Explosion from drake bullet burned and smashed vital spot on the Behemoth's forehead.
+Then amidst the white smoke...
+The explosion from Drake bullet burned and smashed the vital spot on the Behemoth's forehead.
 As soon as Kai confirmed it with his own eyes, he dropped down.
 
 _TL TODO:_ `……ぴちゃっ` Just tell me what is this sound...
+_ED Note:_ You know, the sound that your ketchup bottle makes when you try spreading it on your omelette... yummy!
 
-Soon enough the ground was dyed by red blood.
-As Kai's sword reached it, the beast's fang too reached Kai's shoulder, tearing off a piece of it.
+Soon enough the ground was dyed red in blood.
+Just as Kai's sword had reached it, the beast's fang had also reached Kai's shoulder, tearing off a piece of it.
+_ED Note:_ Who wants a piece of shoulder meat? ... with extra ketchup?
 
 "Ouch!"
 
-Looking at the crawling on his knees human, the beast, while staggering, raised it's forefoot preparing to trample over.
+Looking at the the human crawling on his knees, the beast, while staggering, raised it's forefoot preparing to trample over.
 But the cryptid didn't notice at that moment.
-While it was so focused on Kai, under the beast's foot were forming magic circle.
+While it was so focused on Kai, under the beast's foot were forming magic circles.
 
 "It is complete." _TL TODO:_ Not sure how to understand `誘導` in `誘導完了じゃな`
+_ED Note:_ Check if "Induction complete." makes any sense?
 
-Elven shrine maiden placed both of her hands onto trunk of a large tree.
-There was a small magic circle, which could be used to activate teleportation trap.
+The elven shrine maiden placed both of her hands onto the trunk of a large tree.
+There was a small magic circle, which could be used to activate a teleportation trap.
 
-"Where thou think it is?
-This is a foreign gods domain"
+"Where does thou think it is?
+This is the foreign gods' domain."
 
-This was elven trap, which entrapped emperor Dante before.
-Magic circle, under the Behemoth's feet, slowly started to emerge.
+This was the elven trap which had entrapped emperor Dante before.
+The magic circle under the Behemoth's feet, slowly started to emerge.
 
 "I shall send you to the garden of crimson lotus.
-There feel free to rage around to your heart's content."
+Feel free to rage around to your heart's content over there."
 
 Light erupted.
-And the enormous Behemoth disappeared in front of Kai without even a shriek.
+And the enormous Behemoth disappeared in front of Kai's eyes without even a shriek.
 
 It was teleported towards the valley where purgatory flowers blossom...
 
 <br>
 
-"I gave it invitation to garden, burning as hot as magma.
-Though no idea whether it will be able to escape somehow or just get burn alive."
+"I gave it an invitation to the garden burning as hot as magma.
+Though no idea whether it will be able to escape somehow or just get burned alive."
 
 "...Guess one problem is solved."
 
@@ -1189,35 +1197,37 @@ He let go of Drake Nail and sat right there on the ground.
 
 "That was quite reckless.
 At that moment even I was struck with fear.
-Still, as long as thee is safe, all is good, but really, that's quite a luck: evading Behemoth's fang during such suicide assault...
+Still, as long as thee is safe, all is good, but really, that's quite the luck: evading the Behemoth's fang during such a suicide assault...
 Kai!? That wound...!"
 
 Kai silently took off his jacket.
 Seeing the state of his left shoulder, Reiren's expression froze.
-The elf who only thought of it as a scratch, finally saw how bad it was.
+The elf who had only thought of it as a scratch, finally saw how bad it was.
 
-Even meat was gouged out on his left shoulder, leaving white under flowing blood.
-The wound was reaching even bones.
+──もっていかれた。 Douman-sensei please check, I'm not sure how to translate this line! 
+
+Even meat was gouged out on his left shoulder, leaving pure white under the flowing blood.
+The wound had reached his bones.
 Twenty more centimeters.
-And the beast's fang would reach even his lungs.
+And the beast's fang would have reached even his lungs.
 
-And if it would slide ten more, it would pierce his heart.
+And if it were to slide ten more, it would pierce his heart.
 
-_I was really lucky that beast wasn't able to see me in smoke._
+_I was really lucky that beast wasn't able to see me in the smoke._
 
 _If not for that fact, I could end up being chewed by it._
 
 "KAI!?"
 
-Rinne, who returned from skies, also became speechless at the sight of his bleeding wound.
-But it continued only for few seconds, then she clung towards him from behind, embracing him with both of her hands with all of her strength.
+Rinne, who returned from the skies, also became speechless at the sight of his bleeding wound.
+But it continued only for few seconds, then she clung at him from behind, embracing him with both of her hands with all of her strength.
 
 "... Don't... Do it."
 
 He could hear her crying.
-The body of girl, who was clinging to him from behind and didn't wish to leave, started to tremble like a frightened puppy.
+The body of the girl, who was clinging to him from behind and didn't wish to let go, started to tremble like a frightened puppy.
 
-"...Why... such reckless thing.
+"...Why... such a reckless thing.
 I don't want to see you... so badly wounded.
 I hate seeing Kai in such pain..."
 
@@ -1225,20 +1235,20 @@ I hate seeing Kai in such pain..."
 
 "...No!"
 
-Rinne's cry echoed throughout whirlpool of white smoke.
+Rinne's cry echoed throughout the whirlpool of white smoke.
 
-"It was really close call, you know?...
+"It was a really close call, you know?...
 I... really didn't know what to do when Kai let go of my hand..."
 
 "It is good that I was alone in that."
 
 "Eh!?"
 
-He took out pain killers from his pouch and took few of these pills.
+He took out pain killers from his pouch and took a few of the pills.
 
 ![Rinne and wounded Kai](./p081.jpg)
 
-Using his right hand, which was in a far better shape than his completely immobile left hand, he placed his palm against onto girl's hand.
+Using his right hand, which was in a far better shape than his completely immobile left hand, he placed his palm against onto the girl's hand.
 
 "As long as it keeps you safe."
 
@@ -1249,7 +1259,7 @@ _TL TODO:_ I still have no idea how to go around Rinne's race `混沌種`
 The moment she understood the meaning of his words, she gasped.
 
 At that time...
-The one, towards whom enormous Behemoth reacted, wasn't Kai, it was Rinne after all.
+The one, towards whom the enormous Behemoth had reacted wasn't Kai; it was Rinne after all.
 
 _Since he turned towards us in response to magic power..._
 
@@ -1258,13 +1268,13 @@ _The one who it aimed for wasn't me, but Rinne._
 _TL TODO:_ `噛み砕こうとした標的もだ。`
 
 At that moment Rinne was holding Kai while flying.
-If the Behemoth would sprung at them, Rinne wouldn't be able to to escape up in time.
+If the Behemoth would have sprung at them, Rinne wouldn't have been able to to escape up in time.
 
-Carrying him made it impossible...
-Therefore Kai left Rinne and was forced to face the enormous beast, that aimed to get at Rinne.
+Carrying him would have made it impossible...
+Therefore Kai left Rinne and was forced to face the enormous beast that aimed to get at Rinne.
 
-Ideally he hoped to finish it with one strike.
-But even if it wouldn't work, Rinne could have enough time to fly up.
+Ideally he had hoped to finish it with one strike.
+But even if it didn't work, Rinne could have enough time to fly up.
 That was the truth of it.
 
 "Ah, I don't mean that my wound is because of it.
@@ -1272,51 +1282,51 @@ It is my fault and lack of training..."
 
 "Stop it."
 
-Girl's hands were full of strength.
+The girl's hands were full of strength.
 
-"Please... If you say more... I'm just... going to cry..."
+"Please... If you say any more... I'm just... going to cry..."
 
 "..."
 
-"...I don't really understand myself it.
+"...I don't really understand it myself.
 I'm both happy and sad, which is confusing.
 Seeing Kai caring about me so much makes me so happy...
-But seeing Kai hurt makes me just sad too..."
+But seeing Kai hurt makes me just sad as well..."
 
-She shook her head. _TL TODO:_ `ふるふると、首を振りながら` Not sure how to phrase it together
+She said while shaking her head. _TL TODO:_ `ふるふると、首を振りながら` Not sure how to phrase it together
 
 "If I'm gonna cry it is going to be very loud, you know...?
 Even louder than that Behemoth."
 
 "Please spare me."
 
-With a faint smile, he took out bottle of antiseptic and bandage to stop bleeding.
+With a faint smile, he took out a bottle of antiseptic and bandage to stop bleeding.
 But as he couldn't move his left hand, there was no way he could apply treatment himself.
 
-"Where is Kai! What about Behemoth!?"
+"Where is Kai! What about the Behemoth!?"
 
 From within the smoke he could hear footsteps.
-And it was around this time when Jeanne, accompanied by her soldiers, arrived with a tensed look on her face.
+And it was around this time when Jeanne, accompanied by her soldiers, arrived with a tense look on her face.
 
 Seeing Kai on the ground finally calmed her down for a moment.
 But soon enough she saw both Kai's wound and blood under his feet, opening her eyes wide.
 
-"Medic squad, asap!
+"Medic squad, ASAP!
 We need to prepare for a surgery immediately!"
 
 "My bad, Jeanne.
-Met some unexpected troubles.
+We met some unexpected troubles.
 But in the end we were able to trick Behemoth into falling in the elven trap."
 
 "Don't talk.
-First we need to stop blood, then talk."
+First we need to stop the bleeding, then talk."
 
-With bandages, that she took from Kai, she skillfully patched up his shoulder all over.
+With bandages that she took from Kai, she skillfully patched up his shoulder all over.
 
-Without even bating eye at getting her own hands covered in blood...
+Without even batting an eye at getting her own hands covered in blood...
 
-"...As commander, I'm thankful for your efforts in battle.
-But, do you know how it feels for me getting so worry just after we became friends?"
+"...As a commander, I'm thankful for your efforts in battle.
+But, do you know how it feels for me to get so worried right after we became friends?"
 
 She said quietly, so that no one but Kai could hear her.
 
