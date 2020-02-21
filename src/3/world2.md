@@ -475,6 +475,7 @@ The elven shrine maiden didn't even bat an eye at a soldier who passed by her ba
 In such a situation where she was surrounded by more than a hundred enemies.
 
 _TL Note:_ Ehm... Technically they are in truce though?
+
 _ED Note:_ Shrugs, Maybe the elf still have misgivings about Kai and his group?
 
 "That's why I restrain myself.
@@ -668,10 +669,11 @@ These were burial clothes, whose shine was snatching away her life.
 _TL Note:_ Author uses `体力` which can be interpreted in various ways.
 I'm not exactly sure if Sazane-sensei means that it literally shortens her life or just affects her stamina.
 I suspect first... :(
+
 _ED Note:_ Given the development at the battle at Angel's palace, I'm pretty sure it means "life force". :(
 
 Even as they were just talking, it continued to eat away at her life force.
-If it were the true world, Kai would do his utmost to stop her from wearing these elven spirit garments.
+If it was the true world, Kai would do his utmost to stop her from wearing these elven spirit garments.
 To not allow her to do something that would be gradually snatching away her life.
 
 But...
@@ -694,7 +696,7 @@ But in the world where mankind won the great war, Jeanne and Kai were childhood 
 
 "If I started saying anything, you wouldn't listen."
 
-"By that... You mean me in the world where you're from where, Kai?
+"By that... You mean the me in the world where you're from, Kai?
 Where we've been childhood friends."
 
 "It is different now."
@@ -756,8 +758,6 @@ Both me and you, Jeanne, were a part of the troops responsible for safeguarding 
 
 Looking at her listen with such confidence, he smiled deep in his heart.
 
-_TL TODO_: Re-check? `自信満々にそう訊く彼女に、内心で苦笑いを堪えながら。`
-
 "With my low position I was just standing watch around the graveyard.
 But you, Jeanne, were planning to head to the capital.
 Youngest, and moreover the first woman, at that."
@@ -775,13 +775,9 @@ Even now while seeing her in front of him, he felt the same.
 
 She burst out into laughter.
 
-_TL TODO:_ Check `少女が噴きだす`
-
 "It has been a while since the last time I wore a skirt.
-The same about make-up, I don't think I ever thought about becoming more feminine.
+Not to mention make-up, I have never imagined myself becoming more feminine.
 ...But... Well, I see..."
-
-_TL TODO:_ Check second sentence `お化粧だって女の子っぽくなろうなんて考えもしないし`
 
 For a short while she laughed.
 But soon enough, his silver haired childhood friend's eyes showed sadness.
@@ -791,6 +787,7 @@ But soon enough, his silver haired childhood friend's eyes showed sadness.
 "..."
 
 "Hey Kai, can I ask you for something?" _TL Note:_ She says `我が儘` which could said to be unreasonable/selfish, but I don't feel it is right. Potla?
+
 _ED Note:_ Yeah, the literal translation would be "Can you listen to my selfish request?", but that doesn't sound good in English. xD
 
 "Mm?"
@@ -800,6 +797,7 @@ _ED Note:_ Yeah, the literal translation would be "Can you listen to my selfish 
 _TL Note:_ There is very interesting furigana `ボーイフレンド`, Jeanne should go for it!
 But pretty sure it would be more literal male friend though.
 Well, you guys know who I'm rooting for anyway.
+
 _ED Note:_ Anybody not on board the Rinne train can spill coffee on their newest white shirt.
 
 With her face dyed slightly red, his silver haired childhood friend said, almost whispering.
@@ -865,7 +863,7 @@ She only shouted Kai's name and rushed towards the campsite.
 
 _Could it be what we encountered during the day...?_
 
-_Oh well, please let it be no more than a bad premonition!_ TL TODO: Re-check `いや、だけど悪い予感で終わってくれ！`
+_Oh well, please let it be no more than a bad premonition!_ 
 
 Pushing aside the bushes, he sprung out into the open.
 Kai could see sparks from the scattered bonfire, smashed trees and then, dyed in the color of dusk, the head of a gigantic beast.
@@ -888,6 +886,7 @@ But the answer would be no.
 No matter how big they are, to be called a cryptid, they must possess a certain organ, common to all cryptids.
 
 It is called [Magic bloodline]. _TL Note_ `法力血界系` Maybe need a better name?
+
 _ED Note:_ Please sensei, the Chuuni is overflowing day by day! :D
 
 In their case, the magic producing organs also possessed by demons and foreign gods, were small blood veins.
@@ -918,8 +917,6 @@ It started to raise the forefoot.
 
 _TL Note:_ Farin makes this `っと` sound which I has no idea how to translate
 
-_TL TODO:_ `その鼻先をかすめ` is a bit unclear in the second sentence, below
-
 Farin stomped the ground with great strength and moved to the side.
 The beast mowed down only upon the tents in the clearance as Farin slid under its nose.
 The anchors that were holding the tents served little purpose against such force.
@@ -945,7 +942,7 @@ The same thing as with bullets just few moments ago.
 "As one would expect, that's a grown up specimen..."
 
 Kicking the Behemoth's shoulder, the female warrior escaped into the air.
-Seeing everything from the very beginning, tge Behemoth slowly moves its body towards Farin in the air, baring its fangs to crunch her.
+Seeing everything from the very beginning, the Behemoth slowly moves its body towards Farin in the air, baring its fangs to crunch her.
 
 "Look here, beast."
 
@@ -1154,10 +1151,12 @@ The explosion from Drake bullet burned and smashed the vital spot on the Behemot
 As soon as Kai confirmed it with his own eyes, he dropped down.
 
 _TL TODO:_ `……ぴちゃっ` Just tell me what is this sound...
+
 _ED Note:_ You know, the sound that your ketchup bottle makes when you try spreading it on your omelette... yummy!
 
 Soon enough the ground was dyed red in blood.
 Just as Kai's sword had reached it, the beast's fang had also reached Kai's shoulder, tearing off a piece of it.
+
 _ED Note:_ Who wants a piece of shoulder meat? ... with extra ketchup?
 
 "Ouch!"
@@ -1166,7 +1165,8 @@ Looking at the the human crawling on his knees, the beast, while staggering, rai
 But the cryptid didn't notice at that moment.
 While it was so focused on Kai, under the beast's foot were forming magic circles.
 
-"It is complete." _TL TODO:_ Not sure how to understand `誘導` in `誘導完了じゃな`
+"Preparations complete."
+
 _ED Note:_ Check if "Induction complete." makes any sense?
 
 The elven shrine maiden placed both of her hands onto the trunk of a large tree.
@@ -1204,7 +1204,7 @@ Kai silently took off his jacket.
 Seeing the state of his left shoulder, Reiren's expression froze.
 The elf who had only thought of it as a scratch, finally saw how bad it was.
 
-──もっていかれた。 Douman-sensei please check, I'm not sure how to translate this line! 
+──もっていかれた。 _TL TODO:_ Douman-sensei please check, I'm not sure how to translate this line! 
 
 Even meat was gouged out on his left shoulder, leaving pure white under the flowing blood.
 The wound had reached his bones.
@@ -1293,7 +1293,7 @@ I'm both happy and sad, which is confusing.
 Seeing Kai caring about me so much makes me so happy...
 But seeing Kai hurt makes me just sad as well..."
 
-She said while shaking her head. _TL TODO:_ `ふるふると、首を振りながら` Not sure how to phrase it together
+She said while shaking her head.
 
 "If I'm gonna cry it is going to be very loud, you know...?
 Even louder than that Behemoth."
