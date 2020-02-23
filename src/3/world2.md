@@ -112,7 +112,7 @@ Reiren glanced at Rinne behind.
 
 "Please calm down, both of you."
 
-The moment Rinne mentioned [elf] Kai was struck with utter terror, but it would seem neither Kai nor Ashlan showed signs of noticing it.
+The moment Rinne mentioned [elf] Kai was struck with utter terror, but it would seem neither Saki nor Ashlan showed signs of noticing it.
 They were probably too busy to notice, while crossing forest unmapped by humans.
 
 "Hey, Kai? I guess even you don't have a map of this place?"
@@ -863,7 +863,7 @@ She only shouted Kai's name and rushed towards the campsite.
 
 _Could it be what we encountered during the day...?_
 
-_Oh well, please let it be no more than a bad premonition!_ 
+_Oh well, please let it be no more than a bad premonition!_
 
 Pushing aside the bushes, he sprung out into the open.
 Kai could see sparks from the scattered bonfire, smashed trees and then, dyed in the color of dusk, the head of a gigantic beast.
@@ -1204,7 +1204,7 @@ Kai silently took off his jacket.
 Seeing the state of his left shoulder, Reiren's expression froze.
 The elf who had only thought of it as a scratch, finally saw how bad it was.
 
-──もっていかれた。 _TL TODO:_ Douman-sensei please check, I'm not sure how to translate this line! 
+──もっていかれた。 _TL TODO:_ Douman-sensei please check, I'm not sure how to translate this line!
 
 Even meat was gouged out on his left shoulder, leaving pure white under the flowing blood.
 The wound had reached his bones.
@@ -1333,3 +1333,836 @@ She said quietly, so that no one but Kai could hear her.
 -------------------------------------------------------------------------------
 
 <a href="#Part3" id="Part3" class="Bookmark"></a>
+
+The green labyrinth [Ciel Mir Forest].
+This place, surrounded by ancient trees and bushes, covered by thick layer of leaf mold.
+These fallen leaves are fermented, adding to the forest a slight sour fragrance.
+
+_TL TODO:_ Polta take a closer look here, we need a better phrasing `古代樹と茂みに囲まれた四方と、ぶあつく積もった腐葉土の層。地に落ちた葉が発酵し、わずかな酸味を感じる森の匂いとして熟成される`
+
+And this rich soil...
+When stepped, would produce soft and crunching sound.
+There Kai was carefully walking through the road, illuminated by morning sunlight filtering through trees.
+
+"Hey, Kai. Are you sure you're fine to walk?"
+
+"I'm good, right now painkillers are working after all."
+
+Rinne, who quickly joined by his side, looked at Kai's left shoulder.
+Last night they finished stitching, and now it was completely covered by who knows how many layers of bandages.
+
+It was obviously standing out, making it painful for Rinne to watch.
+
+"Hey, flat board elf, how long are you planning to keep Kai walking?
+Quickly show us the way already!"
+
+"I told thou already: we're almost there."
+
+Said Reiren, who was walking ten meters ahead of them.
+Following right after her was Jeanne, and then guard Farin.
+
+"Reiren, are there really ruins in this forest?"
+
+Asked Commander, who wasn't looking very enthusiastic.
+
+"Certainly we left my soldiers at our place, but..."
+
+"Last night, wasn't thee the one who shown interest?
+I only said that there were some ruins left by humans, in direction from where that giant beast came."
+
+"Anyone would get interested when you say it like that."
+
+Following the traces of devastation left by the cryptid...
+Last night Reiren traced followed it through and as result: nearby there ruins which she believed to be belonged to humans.
+
+"Difficult to imagine finding ruins left by humans so deep in the forest."
+
+Said Farin who could vine in front with her shamshir.
+
+"On what grounds you believe it to be human work?"
+
+"Cause it is not our work after all.
+Therefore ain't humans only ones who could make it?
+I cannot fathom when it was built though.
+Well see for thyself."
+
+Elf pushed aside leaves with both of her hands and pointed ahead with her chin.
+
+There...
+They could see ruins of megalith.
+These were ruins created from multiple blocks of processed rocks.
+
+_TL Note:_ I think rather than megalith, it is more of a big stone building (akin to pyramids)
+
+It's surface was completely covered by moss, various vines and flowers.
+Kai thought it might be first time he saw building getting claimed by green to this degree
+
+"...Surprising. Please look at it, Jeanne-sama."
+
+Farin pointed towards the ruins.
+
+"See tree, besides it, bending to such degree alongside of outer wall of the ruins. This means..."
+
+"Ruins were created first.
+And it means that these trees grew afterwards."
+
+Jeanne quietly watched the ruins in astonishment. _TL Note:_ I changed here a bit as it sounds weird to me, jp `遺跡を見つめるジャンヌも神妙な面持ちだ。`
+
+These ruins existed since ancient times, far longer than ancient tree besides it that was several hundred years old.
+
+"Find megalith in such place, huh?"
+
+"Mega...?"
+
+Hearing Kai to murmur these words, Rinne tilted her head with curiosity.
+
+"We don't know who made these buildings.
+Several of these are found in the true world too."
+
+In aftermath of the great war as humans started to reclaim territories, previously owned by four races, they discovered mysterious ruins, evidently man-made.
+
+"In most cases scientists believed it to be a work of foreign gods and leftovers of curses.
+Still, there are lot of unknown factors remain.
+Rinne, you should recognize it too."
+
+"Recognize? Me?"
+
+"It is graveyard."
+
+The giant black pyramids...
+
+In the true world, these buildings were used to seal away four races.
+
+But in <span title="Originally it say 'different' but I feel it would be appropriate to change it">this</span> world it was a place where Code Holder was hidden.
+
+"You should remember it as it is the place where I met you, Rinne.
+Though in our case it was graveyard of Urza."
+
+"...This is a similar place?"
+
+"I'm not sure yet. It does look like the graveyard." _TL TODO:_ re-check `墓所とは見た目も違うしな`, shina is likely to be shorten negative of suru, right?
+
+While concealed by vines, he could see something looking like an entrance at the front, covered by moss.
+
+"Reiren, did you check this place?"
+
+"I did, albeit ain't much of interesting there.
+There is just one big stone statue, that's all."
+
+_TL TODO:_ This one is a bit confusing, why does he mean exactly here... `石像？中に入ろうと思えばできるが`
+
+"Jeanne-sama, let us return."
+
+Farin said so.
+
+"We are not archeology team.
+Indeed we traced Behemoth's tracks near here, but there is no sign of cryptids remaining.
+Since our people are awaiting us, rather than searching this place we ought to give priority to our expedition to Yurun."
+
+"Yeah, that's true.
+Not to mention these ruins are so old that you can never know when it is going to collapse."
+
+Jeanne nodded in agreement and turned her back to the megalith.
+Towards the road, illuminated by morning sunlight filtering through trees.
+
+[Where are you going? Even though you finally discovered a core of the world.]
+
+It was well mannered and lady-like voice.
+Full of warmth, affection and moreover overwhelming divinity, the voice echoed throughout the place.
+
+[O, People chosen by the fate. I welcome <span title="Here she addresses in plural">your</span> visit.]
+
+It felt as the voice was communicating directly with Kai's soul itself...
+
+_That voice just now..._
+
+_I recognize this voice? ... Where... When... Could I hear it?_
+
+Just as he was about to turn back, he saw both Jeanne and Farin similarly to him looking around.
+
+But there was no sign of voice's owner.
+
+"Hm? What is it, Kai? And thee too, Jeanne, Farin?"
+
+Pulling her sleeves, elven shrine maiden titled her head with curiosity.
+
+"We going back to our tents, ain't we?"
+
+"Yes, indeed... But I think I heard someone's voice just now."
+
+"Voice, you say?"
+
+"Yeah."
+
+When asked again, he was at loss.
+
+"Just now it said: [Where are you going?]"
+
+"What? Oi, Kai, could it be thy wound on shoulder is getting worse?
+Think about it and stop day-dreaming."
+
+"... There is just no way it is just that."
+
+In all actuality both Jeanne and Farin stopped hearing the voice.
+
+Humans were hearing it, while foreign gods were unable.
+
+Which led to obvious question.
+How about person with mix of human and foreign gods blood.
+Could she hear that voice too...
+
+"Rinne. Listen, did..."
+
+"..."
+
+Rinne walked towards ancient stone ruins, covered by moss.
+Stopping in front of entrance, covered by vines, she beckoned him.
+
+"That voice, coming from here."
+
+"From within?... Reiren, stand watch please. We'll be back soon."
+
+"What? H-hey, Kai?"
+
+He followed Rinne into dark ruins.
+
+"Jeanne-sama, please be careful. I feel something alarming about the voice just now."
+
+Female bodyguard turned flashlight on.
+She gestured towards her master to step behind more.
+
+"Definitely some special wavelength.
+It is strange that elf, who has far better hearing than humans, cannot hear it."
+
+"...You think this voice doesn't belong to human?"
+
+"Yes. It is possible that someone of other race would be luring us into a trap."
+
+Like a spider net.
+
+It is possible that something horrible is awaiting for a prey within the megalith.
+Especially considering that they've been attacked by the cryptid previous evening.
+
+"Rinne, it is ok to go ahead, but be careful, ok?"
+
+"I feel it."
+
+"...What?"
+
+"String power. It is like magic, but not like magic too...
+Similar to mine power..."
+
+Saying that Rinne continued advancing further in.
+
+It was a stone passage.
+Made from single huge rock, cut into blocks of 1 meter square each and stacked on up. _TL Note:_ To me it is rather weird details, jp. `巨岩を加工して一メートル四方の正方形に切り出して、それを積み重ねて造られているのだろう`
+
+_The way stone is cut and stacked..._
+
+_It is more and more looking like the graveyard. This strange and delicate technique too._
+
+Joints between stones were so thin that even razor thin blade wouldn't pass in.
+This itself was a proof that these stones were cut with mechanical precision.
+
+And to him it didn't look like a work of human.
+Such precise stone cutting methods couldn't exist in ancient times.
+
+"There is nothing, huh."
+
+There was no candlesticks along the way and nothing special about passage itself.
+Moreover the same could be said about living beings.
+Completely opposite to outer wall covered by moss, once they entered inside they couldn't find even a single mosquito.
+
+This is too was similar to interiors of the graveyard.
+
+"Reiren said that there should be stone statue ahead, right?"
+
+It was frustrating that his left hand was out of commission.
+Nevertheless with the Drake Nail in his right hand, he carried one further down the narrow path.
+
+There further ahead they could see a dim and faint light.
+
+"Is there a light?"
+
+"No, Jeanne-sama, it is..."
+
+The passage was leading to open room.
+In front of Kai was out of the world, magically [<span title="Could be blue, but azure sounds more cool, right?">azure</span>] praying area.
+
+It was azure sanctuary.
+
+It was the chapel, made of deep blue panes, from ground to ceiling.
+But it wasn't the same azure colour, the chapel had gradation of colours from lighter to darker blue.
+The ceiling was made of darkest blue.
+There on it were white dots, likely to reflect night sky glittering.
+
+Among known to Kai buildings, none could match godliness of this one.
+This place was solemn and beautiful to a degree, where just standing here made you feel shivers.
+
+[Well met, O, children loved by the fate.]
+
+There was a pedestal, joined with walls and floor...
+And as elven shrine maiden told, looking up Kai could see in front of him single pure white gigantic statue.
+
+It was made in image of human girl, covered completely in robes.
+To his eye it looked over 10 meters tall.
+
+_What's with this ridiculously large statue?_
+
+_Not to mention, it doesn't look like composed of multiple stones.
+Was it carved from single piece?_
+
+Or rather, it looked more like [something] petrified alive, giving it's vivid vibe.
+
+But question was whose voice is it.
+From somewhere was coming this solemn and gentle female voice.
+
+[There is nothing here.
+Look up there, see I'm here.]
+
+"...What??"
+
+Jeanne carefully backed off.
+They could only see gigantic statue amidst the sanctuary.
+And then the same voice told us that owner is up there.
+
+"Jeanne-sama, please step back.
+This statue... We don't know mechanism behind the voice.
+It could be some kind of magic that started on it's own once we became closer to it.
+
+[Such vigilance is commendable.
+Human, I give praise to your conduct.]
+
+"..."
+
+[But I, as you can see, is powerless.
+I have no strength to bring you any harm.]
+
+"Weird, isn't it?"
+
+Female bodyguard pointed edge of her shamshir.
+Towards a head of hooded female image, far above.
+
+"Stone doesn't speak.
+If it does, then it is no longer a stone.
+What are you?"
+
+[I'm...]
+
+The voice echoed throughout the sanctuary.
+
+[I'm existence of world, where the great war ended.]
+
+"W-what?"
+
+In that same instance, everyone turned towards the same direction.
+Not towards the huge stone statue, both Jeanne and Farin turned towards Kai.
+Rinne, who was besides him, too was looking at him with perplexity.
+
+This was because before Kai gave a similar explanation to Jeanne and Farin before, at Urza's Resistance. _TL Note:_ Omitted mention of conference room, cuz it sounds weird.
+
+[[In world that I know Great War ended hundred years ago]]
+
+[[I'm from that world.]]
+
+He thought that only Kai and Rinne had recollection of true world. _TL Note:_ Quite interestingly author refers to both as `humans`, but it is not exactly correct so I omit it.
+
+Or so he thought...
+
+[I was looking forward to it.
+Finally, in this fresh new world, to be visited by eligible person who would succeed Sid.]
+
+_TL Note:_ Just saying, I have feeling that they shouldn't trust her.
+
+"...Wait, please."
+
+His throat was spasming and he couldn't properly articulate.
+
+"Who are you exactly?
+However I look, you're not just stone statue.
+If that being the case, then show yourself."
+
+[Oh my? But you ought to know me.]
+
+She gently smiled. _TL Note:_ Statue? But it is kinda like that `穏やかな微笑`
+
+[Olbia Soraka Cathedral.
+It was once a name of this place.]
+
+"...Do you mean Olbia <span title="jp. 預言神">god of prophecy</span>!?"
+
+Kai exclaimed.
+But as one would expected Rinne, and both Jeanne and Farin, who had no recollection of the true world, gave him puzzled looks.
+
+"Kai, if you have a clue, then how about sharing it with me and Farin?"
+
+"...We'll continue our previous talk. The one we had at Urza's Resistance."
+
+In front of silent stone statue, Kai couldn't stop himself from trembling.
+Assuming that identity of this stone statue...
+
+"Me and Rinne are coming from so-called [<span title="Again, when refering to true world author calls it 'true history' jp. 正史 but I don't like it">true</span>] world, where existed hero known as prophet Sid.
+Human who saved humanity from despair and reversed the stage completely."
+
+"This much both me and Farin heard already. Continue, please?"
+
+"Jeanne, what do you think prophet means?"
+
+With her mouth open wide Jeanne had blank reaction to this question.
+
+"Prophet means a [person who have been given a word].
+Which means that behind Sid's work was someone who was giving him advice."
+
+_TL Note_ It is important to note that meaning is defined here by japanese word `預言` where `預` means "to give" and `言` is "word".
+Still english world `prophet` is quite similar in that regards.
+It is coming from greek `prophḗtēs` and means "one who speaks for a god".
+
+A following question would be: who was the one who gave the Sid a prophecy?
+From this point on the [story] would be no more than a joke or fairy tale to Kai.
+
+[[Olbia god of prophecy]]
+
+[[Leading humans and defeating heroes of four races...
+Accepting revelations from gods that rule over fate, Sid became the prophet.]]
+
+It was a certain fact that human by the name Sid existed.
+But the fact of him fighting and triumphing over heroes of four races had a little proof remaining in the true world.
+And...
+
+The reason why Sid got a name of the prophet was due to him [receiving revelation from ancient god of prophecy], which Kai didn't believe.
+
+_TL Note:_ Author uses here a weird way to say last part: `カイも信じていない逸話である` where `逸話` could be translated as an anecdote, but I decided to omit.
+
+_God, you say? There is no way such thing exist._
+
+_There are over several hundred millions living beings in this world. Yet no one saw such thing._
+
+If going by strength alone they it would be four races.
+With their extreme might angels and demons were often described as [god-like], but existence called god was completely different.
+
+[<span title="jp. アスラソラカ">Asurasoroka</span>. As she was able to see through the future for humans she became a <span title="jp. 祈神. This is not obvious, but I think what it means is that she is god that humans prayed towards rather than it being a title">_prayer god_</span>]
+
+"..."
+
+He was at loss of words.
+Besides Kai was Rinne, who was a girl of <span title="jp.混沌種">mixed race</span>.
+And there was also existence of monster called rasterizer, therefore Kai didn't plan to deny potential existence of race that is yet to know to this world.
+
+But it made him to wonder what was this being.
+Could it be really the god governing fate, that has been worshiped in ancient time?
+Was such transcendental being really exist?
+
+"I have never believed in things like gods."
+
+[...]
+
+アンタはその類だって言うのか？　人間でも四種族でもない。もっと別の超越的なものだって
+"Do you say that you're such existence then?
+Not a human, not someone from four races.
+Quite different, transcendental being."
+
+"No, all I'm saying is that I exist to grant a prophecy."
+
+She didn't exactly answer the question.
+And despite Kai lowering his voice to menacing tone, the female voice from stone statue remained with the same genteleness.
+
+[All I'm capable of right now is to answer your request, and granting you meager <span title="jp. 言霊. See wikipedia article on Kotodama">power word</span>.]
+
+"...Other than that you can do nothing more?"
+
+[I have no strength left.]
+
+She said with a hint of regret in her voice.
+
+[I had to muster all my strength in order to create Code Holder.]
+
+The words echoed throughout the sanctuary over and over again.
+Even after silence was about to return, Kai couldn't muster his voice immediately.
+
+_Wait..._
+
+_...What the statue said right now...?_
+
+She mentioned Cod Holder.
+So Kai wondered inside.
+
+[Far before the great war among five races came, humans prayed and worshiped me.
+Therefore when great war came, I was caught in dilemma on what would be the best way to aid humans in order to protect them.
+And I created Code Holder which could serve as trump card against mighty four races.]
+
+"..."
+
+"Thus I entrusted Sid with it.
+With this sword he was able to...."
+
+"Wait a minute, please!"
+
+Almost unintentionally Kai interrupted the stone statue.
+His heart couldn't stop throbbing.
+
+The sword of the prophet Sid.
+Kai himself knew more than anyone that the sword held mysterious power of unknown origin.
+
+_Certainly I never expected the sword to be created by humans..._
+
+_And it was different from tools of elves and angles._
+
+But he could never expect this.
+That this blade would be created by being, not belonging to five races.
+
+"Certainly I always thought about it.
+However it is really true!
+You are... The one who created the Code Holder!?"
+
+[Really it matters not, Kai, you heard my voice before, didn't you?]
+
+It was in the demons' graveyard.
+The moment when he mistakenly attacked Rinne, who was unconscious....
+
+[[Code holder severs the _Fate_. Now, cut fate of meaningless death out of the world.]]
+
+Out of nowhere he heard a female voice.
+And now after refreshing these memories, he could see that the voice coming from the stone statue matched it exactly.
+Voice, full of love, was coming from <span title="jp. 祈神. Not sure how to translate it yet">prayer god</span> Asurasoroka.
+
+[Did you remember?]
+
+"...Yeah."
+
+[It makes me happy to see that you were the one to discover the Code Holder in this world where Sid doesn't exist.
+Please, treasure this sword.]
+
+She said with unexpectedly lively and delightful voice.
+But, soon enough she returned back to her previous calm demeanor.
+
+[Returning back to your previous question: this is a reason for my current powerlessness.
+With my body exhausted of all of my power, I wasn't able to resist the alternation of the world.]
+
+"...Understood. I understand that you're completely incomprehensible to me."
+
+Hoarse voice echoed through the sanctuary.
+Giving a silent nod to the Jeanne, the female bodyguard stepped forward.
+
+"Answer me straight: What is your goal?"
+
+[I wish to entrust the fate of the world to you.
+For that reason I give the prophecy.]
+
+"...Be specific?"
+
+[This world is _fabrication_. This much you know, right?]
+
+She said, not allowing any objection.
+Almost like in a tone of mother, lecturing her children, her voice was giving awe to everyone, making them feel absolute pressure.
+
+[This is unforgivable alternation of the fate.
+Wit the world reincarnation, the existence of Sid disappeared and thus erasing history of humanity's triumph.
+And then...]
+
+"Wait!"
+
+Silver haired girl exclaimed.
+And after giving him a side glance for a moment she said.
+
+"...I'm unable to believe it.
+Me and my father thought for over ten years in Urza!
+And you're saying this world is fiction..."
+
+[That's right. Because this history became like that after being over-written] _TL Note: Alternated original text a bit here_
+
+"..."
+
+Her expression at that time...
+Kai would never be able to forget it.
+
+"Mine and my father's, Farin's, and even my subordinates' efforts.
+You want to say all of that is a lie...!"
+
+It was first time when he saw Jeanne's emotions to a degree where even her shoulders were shaking.
+Biting her lips, she was glaring at the gigantic statue with bloodshot eyes.
+This look was so intensively beautiful that it mesmerized him to shivers.
+
+It was indeed the image of Valkyrie fighting for the sake of humanity.
+Rising objection to calling history of their struggle as a lie.
+
+Towards the appeal of commander who dressed her self as a man, she said:
+
+[Rather it is opposite.]
+
+"...Opposite, you say?"
+
+![Jeanne's glare](./p104.jpg)
+
+_TL Note:_ In all honestly I don't think illustration expresses her emotions enough here...
+But she is beautiful, isn't she? :)
+
+[Light Knight Jeanne.
+Precisely, because of yours and yours soldiers struggle, the world was able to escape fate of becoming a complete _lie_.]
+
+<span title="jp. 祈神">Prayer god</span> Asurasoroka.
+Dubbed so by itself goddess image said as if admonishing her own child.
+
+[With the world reincarnation, the fate of the world was reversed.
+Then, Jeanne, tell me what if history would be completely over-written?
+What sort of world it would become?]
+
+"Eh... That's..."
+
+She remained silent for few seconds.
+Silver haired maiden answered timidly.
+
+"... A world where humanity would be destroyed, right?"
+
+[Indeed. But humanity is not destroyed, isn't it?]
+
+A gentle laugh was mixed in her voice.
+
+[Far from complete ruin, you struck back.]
+
+"..."
+
+[That's how it is.
+Because of world reincarnation the fate has been completely changed.
+It wouldn't be surprising if humans would be wiped out from this world.
+But, this nightmare was just barely unable to come to fruition, without doubt thanks to your hard struggle.]
+
+It was logically sound.
+
+_TL Note:_ Actually, no? Am I the only one who thinks it is rather weak logic?
+
+If the fate would be completely reversed thanks to world reincarnation, then by the point when Kai would arrive to this world, humanity would be already sealed away in the graveyard.
+
+With it not being so.
+It meant that the world hadn't been completely over-written yet.
+
+[Your struggle supported the world of humans.
+Is that _answer_ is acceptable for you?]
+
+"...I understand. Hearing so makes me relieved."
+
+Jeanne with ghastly expression takes a deep breath.
+
+"The world being a lie... Honestly I'm still finding it hard to believe.
+It just doesn't feel real...
+But our struggle is not pointless, isn't it..."
+
+[You shall correct the fate of this world.]
+
+"...Eh?"
+
+[Prophet Jeanne. In Sid's stead you shall become this world's hero.]
+
+"What!? Wait, a second, what are you saying all of the sudden!?"
+
+[I've seen this world.]
+
+Jeanne was taken aback.
+As if lecturing her, gentle voice continued.
+
+[People who are qualified to replace Sid.
+Among your group there are several candidates of this world.
+And naturally, Kai, who defeated demons' hero is included too.]
+
+"Me?" _TL Note:_ Says Kai
+
+[But strong aptitude is but a one among many requirements.
+Originally, you are existence that doesn't belong to this world.
+Like me, and of course like her...]
+
+"!"
+
+Surprised Rinne as if frightened moved behind Kai's back.
+
+_Rinne? Now that I think she remained silent all this time._
+
+_Did something happen?_
+
+He asked her with a glance, but Rinne just weakly shook her head.
+This was a different reaction from what she had before when meeting formidable enemies.
+
+[The one who shall become this world's hero, will be also a role model to the humans of this world.
+Jeanne.
+Exactly because who you are, I judged you as the most suitable candidate.]
+
+"...What should I do then?"
+
+[Nothing will change.
+Lead your soldiers in the war.
+Defeat heroes of four races, and then that rasterizer.
+With that the world shall be restored.]
+
+"...That monster?"
+
+Jeanne was unsure.
+Even if she is told to defeat the monster that caused sudden changes to Heaven Lord Alfreyja, they had no idea where would they encounter it.
+It was akin asking to catch a cloud.
+
+"I want to ask something.
+That monster rasterizer is certainly suspicious to us.
+Do you know it's true colors?"
+
+[No. As it doesn't existed in original history, it is outside of my knowledge.]
+
+"...As I thought it is something that didn't exist before."
+
+[I feel this abnormal being is created by the power of world reincarnation.
+It is unclear who is behind world reincarnation, but it would premature to conclude right now what kind of existence is that.]
+
+Kai remained silent.
+Even the god who could see through the fate was unable to grasp nature of that abnormal monster.
+But what he knew is that these monsters were behind of Rinne's seal.
+
+_Moreover they were monitoring both Dark Empress and Heaven Lord._
+
+_What was their goal?_
+
+But there was no doubt in Kai that these monsters, which held mysterious power, were being that couldn't coexist with humans.
+
+"One last thing. Let me ask you something too."
+
+[But of course, Jeanne.
+Humans prayed to me since the Sid's era.
+And in order to correct this twisted fate, I'll spare no affection and wisdom.]
+
+"I... If I'll defeat both four races' heroes and rasterizer, will the world be restored?"
+
+[Most likely.]
+
+"When that happens, what will become of this world?"
+
+Her look was filled with tension.
+It was a question that Kai intended to ask, if Jeanne wouldn't.
+Comparing to the true world, this one was in quite different condition.
+So they wondered which world it shall become.
+
+[It depends on world reincarnation's erosion.]
+
+"..."
+
+[No one can measure to which degree the world has been over-written.
+But, Jeanne, remember one thing.
+World changes always due to humans' will.]
+
+"..."
+
+[Your mission is to liberate mankind from oppression of four races.
+It is enough to think about it for now.
+Having doubts about future would dull your blade.]
+
+If Jeanne loses, then humans will have no future either way.
+In which case nothing would matter.
+
+[Go then, Jeanne.
+In order to become new hero to humanity.
+And Kai...]
+
+She unintentionally left out chuckle.
+To him this atmosphere reminded him of someone, but before Kai could think of who it could be...
+
+[I expect a lot from you.]
+
+"...?"
+
+[You're always welcome to visit.
+You can find _my_ sanctuaries all over the world, after all.]
+
+With these words, voice that was coming from the stone statue disappeared.
+
+<br>
+
+"What took thee so long!"
+
+They heard from outside of covered by moss temple.
+Elf, who was glancing at Kai who just came back, immediately raised dissatisfied voice.
+
+"What did four of thee were doing so long?
+I've been waiting forever...
+Or could it be there was something else aside from the stone statue?"
+
+"It was just the statue."
+
+He replied so to the elf, who was sitting on ancient tree's root while shaking his head.
+
+_I guess it would be better not to talk with Reiren about what happened inside._
+
+_Not a topic to discuss with other races._
+
+Meeting one of the gods that govern the fate.
+Reiren, who belonged to foreign gods, being unable to hear the voice that they heard from the statue.
+
+Moreover, the content of what they just discussed wasn't something that one would find easily to believe.
+
+Kai himself was still thinking what to make of it.
+And who was the being that he just talked with.
+
+"Let's come back. Our people is awaiting us."
+
+Jeanne led the way.
+Although on surface she looked calm, Kai was sure that her walking pasture felt unusually strained.
+
+_After such discussion it is expected._
+
+_Even I feel so too._
+
+To become a hero that lead humans of this world.
+His childhood friend just received the direct command from the being that resembles god of ancient beliefs.
+Kai couldn't imagine the pressure that she was feeling at that moment.
+
+And then...
+
+"Rinne, are you ok?"
+
+"Yup... I'm fine. Nothing really happened though?"
+
+Since they exited the sanctuary, Rinne, who was walking besides him, finally spoke.
+Until then she was tightly glued to Kai's back and didn't step away.
+
+Before she was on guard against Vanessa or Rasterizer, but this time it felt differently.
+
+"Rinne, did hearing that voice make you remember something?"
+
+"Nope. But it felt odd..."
+
+"Odd, you say?"
+
+"I dunno.
+I wasn't sure if that odd voice was dangerous, so I was just looking at it carefully."
+
+"That's why you were silent then."
+
+The girl answered with a deep nod.
+
+Even for Rinne, who had experience with Rasterizer, there was something that she found difficult to comprehend.
+Luckily for them this time it wasn't an enemy.
+
+_TL TODO:_ I was tired, re-check  lines above `リンネにさえ測りかねる存在がいるというのは切除器官でも経験済みだが、幸いなのは、今回は敵でなかったということか。`
+
+_God of fate that gave prophecy to Sid?
+Prayer god Asurasoroka?_
+
+_Is that really true?_
+
+Prophet Sid was a mystery.
+
+Even with Code Holder, it was a open question why he was able to defeat heroes of mighty four races.
+It could be that one of the mysteries of true history has been answered.
+
+But question remained.
+Assuming that Code Holder was given to him by prayer god Asurasoroka, why, after the great war, he hid it in demons' graveyard?
+
+One would think that if all fighting would end, then it would be prudent to return it back to Asurasoroka.
+And so one mystery remained: Why didn't Sid do so?
+
+"Kai?"
+
+"...Once four heroes and rasterizer are defeated, the world would be restored.
+So she said..."
+
+This matched the purpose of their expedition: Find the ringleader behind world reincarnation and defeat him.
+
+"Next is south, huh?"
+
+Towards the Yurun.
+Country located beyond this vast elven forest.
+
+Towards the domain of spirits, the most mysterious among mighty four races...

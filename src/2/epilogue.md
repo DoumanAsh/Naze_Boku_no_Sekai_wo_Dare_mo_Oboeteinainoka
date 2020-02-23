@@ -471,7 +471,7 @@ It is regarding Alfreyja-dono."
 "I'm not revealing it, I understand."
 
 Io Resistance were not aware about details of Alfreyja's situation.
-In order to talk about heaven lord Alfreyja's sudden change, they'd have to mention the rasterrizer monster.
+In order to talk about heaven lord Alfreyja's sudden change, they'd have to mention the rasterizer monster.
 But no one would believe in stories about such a monster.
 Therefore, the fact that Alfreyja disappeared wasn't revealed to Io Resistance.
 
@@ -526,7 +526,7 @@ I've prepared this place so that I could talk with you directly."
 
 In response to these words Kai replied back with a small nod.
 
-"Just saying it in advance, but I told you everything about rasterrizer the day before yesterday."
+"Just saying it in advance, but I told you everything about rasterizer the day before yesterday."
 
 "As I recall, first it attacked the demon's hero.
 And next was the foreign god's hero...
@@ -566,12 +566,12 @@ The elven elder continued her words with a dark expression.
 "When they met face to face, they both just laughed...
 It was unthinkable for enemies.
 What's more the enemy was the one who crossed our border in an act of aggression.
-And at around that time, the monster called rasterrizer appeared."
+And at around that time, the monster called rasterizer appeared."
 
-"That's right, rather than with us, his brethren, our leader spent more time with that rasterrizer.
+"That's right, rather than with us, his brethren, our leader spent more time with that rasterizer.
 Still, who would think..."
 
-That mixed race monster rasterrizer wasn't Heaven Lord's subordinate.
+That mixed race monster rasterizer wasn't Heaven Lord's subordinate.
 
 _Was it pretending to be his subordinate in order to monitor Alfreyja?_
 
@@ -589,13 +589,13 @@ Spirits hero [Spirit Sovereign] Rikugen Kyouko.
 
 If Vanessa's words are to be believed, then the culprit behind [World Reincarnation] ought to be among the remaining two.
 However...
-It made Kai to wonder: if the culprit is one of the heroes, then what would be the goal of the rasterrizer monster?
+It made Kai to wonder: if the culprit is one of the heroes, then what would be the goal of the rasterizer monster?
 
 _It is only a hunch from our battle with Alfreyja._
 
-_We still do not know true identity of the rasterrizer, but I doubt it is intending to restore the world back._
+_We still do not know true identity of the rasterizer, but I doubt it is intending to restore the world back._
 
-It was hero monitoring race [rasterrizer].
+It was hero monitoring race [rasterizer].
 But there was one more strange thing.
 
 [I ask you, break the cycle of hatred in this world...!]
@@ -614,13 +614,13 @@ It was supposed to take just a bit more...
 Just finding the culprit among the two remaining heroes.
 Although he thought that the culprit was indeed among remaining heroes, he had an uncanny feeling that he was walking through never-ending darkness.
 
-"Finding the one behind world reincarnation, and the true colours of rasterrizer..."
+"Finding the one behind world reincarnation, and the true colours of rasterizer..."
 
 He exhaled and clenched his fists.
 His goal was to [to return his world back].
 But in order to do that he had to solve even more problems.
 The first was to find the one behind world reincarnation.
-And then find out how rasterrizer is related to it.
+And then find out how rasterizer is related to it.
 Then...
 
 "There is one thing I want to ask, human commander."

@@ -37,7 +37,7 @@ Truth to be told, when it comes to Vanessa, I doubt we'd be able to defeat her o
 Responding with bitter smile, Kai exchanged glances with Rinne besides him.
 Aside from Rinne's mixed race, Kai told Jeanne everything without trying to lie.
 About his counter-attack using blackout.
-About so-called rasterrizer monster.
+About so-called rasterizer monster.
 And about Vanessa having the same memories about Great War as him.
 
 "But I was able to learn something I needed to know."

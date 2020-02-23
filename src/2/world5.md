@@ -1110,7 +1110,7 @@ While her appearance was that of human girl, on her right shoulder was tentacle 
 On it's back was skeleton wings and it had two heads.
 This was...
 
-"The rasterrizer from that time!?"
+"The rasterizer from that time!?"
 
 _TL Note:_ If I remember correctly even Vanessa mentioned Alfreyja name when she got attacked by that thing, so not sure if Kai has to be surprised here.
 
@@ -1138,7 +1138,7 @@ Towards angel who wore a smile of derision.
 
 "Are you the one who behind all of it? The world reincarnation."
 
-Once the rasterrizer appeared to keep Vanessa, who started to regain her memories, silent.
+Once the rasterizer appeared to keep Vanessa, who started to regain her memories, silent.
 And surely since this monster is his subordinate, that angel must know something about world reincarnation that Vanessa tried to speak of.
 Or maybe that angel was indeed the culprit behind it, whom Vanessa mentioned about.
 
@@ -1310,7 +1310,7 @@ And then Rinne displayed even more than the required strength.
 
 "That time?"
 
-"I'm referring to that monster called rasterrizer.
+"I'm referring to that monster called rasterizer.
 As soon as it appeared, our leader suddenly changed.
 And so we, battle angles, had to put up with it,
 waiting for an opportunity."
@@ -1405,7 +1405,7 @@ It was a scream due to attack of the creature that he called his [subordinate].
 
 At the roots of their wings was the organ that produced magic power.
 And the monster crushed this vital organ of the angel with it's hand, forcing him down onto the floor.
-Even though heaven lord Alfreyja boasted great physical strength, the rasterrizer monster was able to overpower the angel.
+Even though heaven lord Alfreyja boasted great physical strength, the rasterizer monster was able to overpower the angel.
 
 "Are you rebelling against me!?'
 
@@ -1440,7 +1440,7 @@ _The same as with Vanessa._
 The only difference was the result.
 Even while being taken by surprise, Vanessa was able to strike back.
 But Alfreyja was different.
-Thinking of the rasterrizer as his subordinate, the angel's response was too late.
+Thinking of the rasterizer as his subordinate, the angel's response was too late.
 And due to that he lost any chance of counterattack.
 
 [...]

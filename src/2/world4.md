@@ -1113,7 +1113,7 @@ _That eerie and weird creature that I no longer want to recall..._
 
 _Without doubt it was thanks to that monster's intrusion that I was able to defeat Vanessa._
 
-That so-called rasterrizer monster attacked Vanessa, which turned it into 3 vs 1 fight.
+That so-called rasterizer monster attacked Vanessa, which turned it into 3 vs 1 fight.
 And it's attack gravely wounded Vanessa.
 Moreover it was thanks to Code Holder's effect that he was able to make final push against Vanessa.
 

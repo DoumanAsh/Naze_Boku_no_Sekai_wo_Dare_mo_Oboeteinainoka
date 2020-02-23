@@ -551,7 +551,7 @@ What was this thing that [supposed to exist].
 
 With his body crumbling, the foreign god's hero looked over his subordinates and took a short rest.
 
-"As for World reincarnation, that rasterrizer is related to it.
+"As for World reincarnation, that rasterizer is related to it.
 Summoning this creature...
 There is someone behind it."
 
