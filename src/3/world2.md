@@ -240,8 +240,6 @@ And as a stiff look appeared on her face...
 All cars started to slow down at once.
 Their wheels, stopping all of the sudden, blew up a pile of fallen laves, leaving them dancing in the air.
 
-_TL TODO:_ `勢いよく回転していた車輪が止まった反動に噴き上げられて` The last `ni` is a bit weird as it rather sounds like wheels are blown up themself, but maybe it is just my lack of experience
-
 "Rinne, just what kind of eyesight thee have? Being able to discover that before me..."
 
 "Humph! I'm more useful to Kai than you."
@@ -413,9 +411,7 @@ The timing is quite similar I think."
 "If cryptids are trespassing the territories of other countries..."
 
 Reiren made a grimace.
-While the elven shrine maiden was lost in thought, Jeanne's voice could be heard from the radio.
-
-_TL TODO:_ `エルフの巫女が返事を探しあぐねている間に、通信機を経由してジャンヌの声が。` First part is a bit confusing, mostly because of `探しあぐねている`
+While the elven shrine maiden was lost in thought looking for words, Jeanne's voice came in from the radio.
 
 [Kai, how is it?]
 
@@ -707,9 +703,9 @@ Where we've been childhood friends."
 
 Kai only responded with one big shrug to Jeanne's serious response.
 He thought back on how many times he had exchanges like that back in the true world.
-Still, her firm character remaining unchanged like that, gave him a strange feeling of relief.
+Still, like this her firm character remained unchanged, which gave him a strange feeling of relief.
 
-"Should be fine still. Only five more minutes." _TL TODO:_ re-check `まだ平気よね。じゃああと五分だけ`
+"We should be fine, right?. Just five more minutes."
 
 "Mm?"
 
@@ -1150,7 +1146,7 @@ Then amidst the white smoke...
 The explosion from Drake bullet burned and smashed the vital spot on the Behemoth's forehead.
 As soon as Kai confirmed it with his own eyes, he dropped down.
 
-_TL TODO:_ `……ぴちゃっ` Just tell me what is this sound...
+_TL Note:_ `……ぴちゃっ` Just tell me what is this sound...
 
 _ED Note:_ You know, the sound that your ketchup bottle makes when you try spreading it on your omelette... yummy!
 
@@ -1204,7 +1200,7 @@ Kai silently took off his jacket.
 Seeing the state of his left shoulder, Reiren's expression froze.
 The elf who had only thought of it as a scratch, finally saw how bad it was.
 
-──もっていかれた。 _TL TODO:_ Douman-sensei please check, I'm not sure how to translate this line!
+They were taken aback.
 
 Even meat was gouged out on his left shoulder, leaving pure white under the flowing blood.
 The wound had reached his bones.
@@ -1265,7 +1261,7 @@ _Since he turned towards us in response to magic power..._
 
 _The one who it aimed for wasn't me, but Rinne._
 
-_TL TODO:_ `噛み砕こうとした標的もだ。`
+She was the target of it's attempt to crunch.
 
 At that moment Rinne was holding Kai while flying.
 If the Behemoth would have sprung at them, Rinne wouldn't have been able to to escape up in time.
@@ -1427,7 +1423,7 @@ Rinne, you should recognize it too."
 
 "Recognize? Me?"
 
-"It is graveyard."
+"Graveyard."
 
 The giant black pyramids...
 
@@ -1440,20 +1436,20 @@ Though in our case it was graveyard of Urza."
 
 "...This is a similar place?"
 
-"I'm not sure yet. It does look like the graveyard." _TL TODO:_ re-check `墓所とは見た目も違うしな`, shina is likely to be shorten negative of suru, right?
+"I'm not sure yet. It looks different from the graveyard."
 
 While concealed by vines, he could see something looking like an entrance at the front, covered by moss.
 
-"Reiren, did you check this place?"
+"Reiren, were you able to enter there?"
 
-"I did, albeit ain't much of interesting there.
+"I was, albeit ain't much of interesting there.
 There is just one big stone statue, that's all."
 
-_TL TODO:_ This one is a bit confusing, why does he mean exactly here... `石像？中に入ろうと思えばできるが`
+Hearing her mentioning statue made he think that if they'd wanted, they could go in.
 
 "Jeanne-sama, let us return."
 
-Farin said so.
+Farin was the one to voice it.
 
 "We are not archeology team.
 Indeed we traced Behemoth's tracks near here, but there is no sign of cryptids remaining.
@@ -2132,10 +2128,7 @@ I wasn't sure if that odd voice was dangerous, so I was just looking at it caref
 
 The girl answered with a deep nod.
 
-Even for Rinne, who had experience with Rasterizer, there was something that she found difficult to comprehend.
-Luckily for them this time it wasn't an enemy.
-
-_TL TODO:_ I was tired, re-check  lines above `リンネにさえ測りかねる存在がいるというのは切除器官でも経験済みだが、幸いなのは、今回は敵でなかったということか。`
+Having experience with incomprehensible, even to Rinne, being as Rasterizer, this time they were lucky that it didn't turn out to be enemy.
 
 _God of fate that gave prophecy to Sid?
 Prayer god Asurasoroka?_
