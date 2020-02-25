@@ -260,7 +260,7 @@ Rinne looked out if window, not even bothered by sudden cold wind blowing inside
 
 "Rinne?"
 
-"...Kai, above! It comes from sky!"
+"...Kai, above! It is coming from the sky!"
 
 What was coming - is not something he'd ask now.
 There was no time for it is what he got from Rinne's tone.
@@ -268,7 +268,7 @@ He quickly moved to car's ceiling to slide car's roof.
 
 "Hey, Kai!?"
 
-"Ashlan, you continue driving, Saki, prepare weapons."
+"Ashlan, continue driving, Saki, prepare weapons."
 
 "Eh? W-wait Kai?"
 

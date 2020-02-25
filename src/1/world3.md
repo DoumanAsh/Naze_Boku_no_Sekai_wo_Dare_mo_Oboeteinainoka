@@ -437,7 +437,7 @@ From there _something_ appeared.
 
 "<span title="jp. 運命特異体 - not sure how to say it better. Btw it refers to Rinne">Fate idiosyncratic body</span> ■■■ is awakening. Risk to New World is estimated as the highest."
 
-"Initiating sealing process with <span title="jp. 切除器官 but furigana is ラスタライザ">rasterrizer</span>..."
+"Initiating sealing process with <span title="jp. 切除器官 but furigana is ラスタライザ">rasterizer</span>..."
 
 The girl, whose body is covered with various cracks just like that of ravaged marionette, appears.
 Her appearance resembles that of human.

@@ -289,14 +289,12 @@ He should be among three remaining hero."
 
 "You know about Sid? And world alternation? You know this much...!?"
 
-"<ruby>He<rt>Sid</rt></ruby> predicted that some strange phenomena is going to happen with world.
+"<ruby>He<rt>Sid</rt></ruby> foresaw that something strange is going to happen with world.
 That's why."
 
 Demoness claw, painted with black, pointed at Kai's sword.
 
-"Sid left this sword behind.
-In anticipation to this situation, I've hidden this sword.
-Key to correcting false world."
+"Sid left this sword to me. In anticipation to this situation, I've hidden this sword. This is the key to correcting the false world."
 
 "This sword!?"
 

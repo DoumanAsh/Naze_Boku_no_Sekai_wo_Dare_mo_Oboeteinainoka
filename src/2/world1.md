@@ -939,7 +939,7 @@ _Only Vanessa knew about Sid and World Reincarnation._
 
 The question remained why demon hero was the only who remembered Sid.
 But thinking about it here would not bring any answer.
-After all, crucial Dark Empress disappeared after rasterrizer monster attack.
+After all, crucial Dark Empress disappeared after rasterizer monster attack.
 
 "Understood, thank you for answering my questions."
 
@@ -1255,12 +1255,12 @@ He had to be vigilant not only against four races.
 
 "That thing?"
 
-"Vanessa called it [rasterrizer].
+"Vanessa called it [rasterizer].
 It also attacked us at the place where you've been held."
 
 He was talking about monster that suddenly appeared in the middle of fight with Vanessa.
 
-[You bastard, I see now... I understand now... You're rasterrizer!]
+[You bastard, I see now... I understand now... You're rasterizer!]
 
 It was quite bizarre creature that looked like a ragged doll of girl with several missing parts.
 It had wings and two heads, moreover out of it's body was also growing some strange things.
@@ -1270,7 +1270,7 @@ _It is first time I saw such grotesque monster._
 
 _Is this a species of this world only? Is that thing even a living one?_
 
-Moreover the rasterrizer was reason of Vanessa's mortal wound, not Kai's sword.
+Moreover the rasterizer was reason of Vanessa's mortal wound, not Kai's sword.
 It petrified her whole body and then she turned into black dust and vanished.
 
 "I thought it was some new race of this world, so I talked with Jeanne about it, but..."
@@ -1408,7 +1408,7 @@ This should be fine, right, Jeanne-sama?"
 "Yeah, after all they are our allies."
 
 They heard friendly girl's voice.
-It was voice of the girl of the same age as Kai - Jeanne E Anisu own voice, rather than voice of Resistance Leader.
+It was voice of the girl of the same age as Kai - Jeanne E Anise own voice, rather than voice of Resistance Leader.
 
 "Jeanne-sama."
 

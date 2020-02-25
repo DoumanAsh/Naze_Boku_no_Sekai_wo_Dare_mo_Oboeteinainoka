@@ -42,7 +42,7 @@ It is quite lonely now, don't you think?"
 
 This question wasn't pointed towards to Rikugen Kyouko.
 But towards the monster, that soon enough followed the small beastman.
-It was a rasterrizer...
+It was a rasterizer...
 Obviously different from the fellow cryptids, the monster was being caressed by the Fang King Rath=IE with affection.
 
 It was different from Heaven Lord Alfreyja.

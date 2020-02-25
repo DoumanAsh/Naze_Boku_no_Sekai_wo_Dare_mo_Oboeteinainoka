@@ -1457,7 +1457,7 @@ As if seeing the future, Kai could already see the scenery of fire consuming eve
 Vanessa spread both of her hands and looked up.
 But hearing the single word made Kai to remember the moment when he met Rinne.
 
-[Code holder severs the _Fate_. Now, cut fate of meaningless deaths out of the world.]
+[Code holder severs the _Fate_. Now, cut fate of meaningless death out of the world.]
 
 "Code holder!"
 
@@ -1549,7 +1549,7 @@ Before Kai and Rinne eyes the dark whole expanded, and there could be seen a hum
 
 [Demon hero mental state _instability_ is detected. Cause is taboo word _Sid_.]
 
-[Commencing reset by rasterrizer]
+[Commencing reset by rasterizer]
 
 It was bizarre and alien person.
 Looking like a ruined doll, the monster itself resembled human, but its lower part was that of a snake.
@@ -1575,7 +1575,7 @@ Regardless how much succubus struggled, she cannot get away from fang that suck 
 
 [Impact on the world, analysing]
 
-"You filth! I see it now... rasterrizer! It is Alfreyja instigation!"
+"You filth! I see it now... rasterizer! It is Alfreyja instigation!"
 
 [Executing Zero Code. Removing hero Vanessa _Code_ from the world.]
 
@@ -1604,7 +1604,7 @@ She became fusion of bewitching woman and sinister demon.
 [!?]
 
 Vanessa extended her hand.
-While she have been under so-called Zero Code attack, she instead grabbed so-called rasterrizer monster by its neck in return.
+While she have been under so-called Zero Code attack, she instead grabbed so-called rasterizer monster by its neck in return.
 
 "For Alfreyja's dog, my neck would be too luxurious treat."
 
