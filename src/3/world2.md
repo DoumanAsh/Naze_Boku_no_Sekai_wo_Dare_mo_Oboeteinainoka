@@ -1334,10 +1334,6 @@ The green labyrinth [Ciel Mir Forest].
 This place, surrounded by ancient trees and bushes in all directions, was covered by a thick layer of leaf mold.
 These fallen leaves had fermented, adding a slight sour tint to the smell of the forest.
 
-_TL TODO:_ Polta take a closer look here, we need a better phrasing `古代樹と茂みに囲まれた四方と、ぶあつく積もった腐葉土の層。地に落ちた葉が発酵し、わずかな酸味を感じる森の匂いとして熟成される`
-
-_ED Note:_ Check if this works better?
-
 When this fertile soil was lightly stepped on, it produced a crisp sound of your feet sinking in.
 Kai was carefully walking through the road illuminated by morning sunlight filtering through the trees.
 
@@ -1443,7 +1439,7 @@ While concealed by vines, he noticed something resembling an entrance at the fro
 
 "Reiren, were you able to enter inside?"
 
-"I was, albeit there wasn't anything of much interest inside.
+"I was, albeit there isn't anything of much interest inside.
 There is just one big stone statue, that's all."
 
 Hearing her mentioning a statue surprised him, and made him think that they could go in if they wanted to.
@@ -1469,7 +1465,7 @@ Full of warmth, affection and moreover overwhelming divinity, the voice echoed t
 
 [O, People chosen by the fate. I welcome <span title="Here she addresses in plural">your</span> visit.]
 
-It felt asif  the voice was communicating directly with Kai's soul itself...
+It felt as if  the voice was communicating directly with Kai's soul itself...
 
 _That voice just now..._
 
@@ -1546,7 +1542,7 @@ Especially considering that they had just been attacked by the cryptid last even
 
 "...What?"
 
-"String power. It is like magic, but also not like magic...
+"Great strength. It is like magic, but also not like magic...
 Similar to my power..."
 
 Saying that, Rinne continued advancing further in.
@@ -1803,7 +1799,7 @@ _Certainly I never expected the sword to be created by humans..._
 
 _And it was different from the tools of elves and angles._
 
-But he could have never imagined this.
+But never could he even imagine this.
 That this blade would be created by the being transcending the five races.
 
 "Really, I had suspected it.
@@ -2041,7 +2037,7 @@ So they wondered which world it shall become.
 
 [No one can measure to which degree the world has been over-written.
 But Jeanne, remember one thing.
-World reformations are always brought by the determination of humans.]
+It is always a person's will that brings about change to the world.]
 
 "..."
 
