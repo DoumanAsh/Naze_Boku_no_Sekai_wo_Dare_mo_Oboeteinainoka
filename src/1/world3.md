@@ -288,11 +288,12 @@ It seems all of her anger started to fade.
 "..."
 
 She started folding back her wings.
-Now Kai wings were almost no longer visible, which he interpreted as her no longer being hostile.
+Her wings became small to an extent being no longer visible to the Kai.
+He interpreted it as her being no longer [hostile].
 
-"I'm sorry, due to my grudge against demons..."
+"Sorry, I've been blinded by my grudge towards demons..."
 
-She started to apologise with shivering voice.
+She started to apologise with a shivering voice.
 But quickly girl groaned and fall to her knees.
 
 "Are you <span title="jp. 眩しい which is dazzling, but I assume it means being dizzy from light">dizzy</span>...?"
