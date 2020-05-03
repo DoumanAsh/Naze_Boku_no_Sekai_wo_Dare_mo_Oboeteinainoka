@@ -352,7 +352,7 @@ Such idea, growing attached to these places, seemed unthinkable to Kai.
 In true world, living in city was only natural.
 Yet here in this world as far as most people were concerned, Human cities were enough.
 
-_TL Note:_ I avoided using term Human City/Human Ward because it sounds weird, but this is what author uses when refering
+_TL Note:_ I avoided using term Human City/Human Ward because it sounds weird, but this is what author uses when refers
 to underground cities where humans hide.
 jp. 人類特区, firugana: ヒユーマンシテイ
 

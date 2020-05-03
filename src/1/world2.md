@@ -284,7 +284,7 @@ To that Ashlan only shrugged.
 That's our great leader.
 Young, excellent and as you can see quite popular."
 
-"...<span title="jp. 霊光の騎士 It seems to be derived from her special equipment. 霊光 can be translated as Miracle Light">Light Knight</span>" -
+"...<span title="jp. 霊光の騎士 It seems to be derived from her special equipment. 霊光 is spirit/soul and light, as it is rather hard to get good translation I make it more simple, as word light is generally suitable for something holy and hope">Light Knight</span>" -
 muttered Saki.
 
 "Symbol of hope that Urza Federation will be liberated.
@@ -418,7 +418,7 @@ _TL note:_ the first sentence is a bit difficult so I tried my best to catch its
 He said in voice that could be only heard by Jeanne.
 And it seemed that Resistance's commander shoulders dropped down a bit...
 Or so it seemed to Kai.
-But in that instance.
+But in that moment.
 
 "Bastard, what are you doing to Jeanne!"
 

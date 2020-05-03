@@ -24,3 +24,4 @@
     - [World.1 To The South](./3/world1.md)
     - [World.2 Elven Forest, Gods Hokora](./3/world2.md)
     - [World.3 Yurun Resistance](./3/world3.md)
+* [Glossary](./glossary.md)

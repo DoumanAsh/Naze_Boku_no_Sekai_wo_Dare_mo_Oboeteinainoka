@@ -115,23 +115,23 @@ Rinne hesitated.
 
 "But, only Kai, other humans are different!"
 
-"Then you only need to trust me.
-If you'd think I'm lying, it is fine to just turn back for you.
-That's would be more than enough."
+"Then it is fine if you trust only me.
+If you'd suspect that I'm lying or untrustworthy, then it is also fine to just turn back.
+So let us end this talk here."
 
 "..."
 
-Rinne said nothing and only gave silent affirmation.
+Rinne said nothing and only gave a silent affirmation.
 Kai left graveyard and followed towards armoured car.
 
 "I saw this thing before, it should be able to move?"
 
 "It saves time to explain then.
 Rinne, sit besides me.
-Yes, yes, at this passenger's sit."
+That's right, at the passenger's seat."
 
 Wheels started turning and car went on.
-Rinne who experiences _ride_ for the first time has become blue and sweat falls from her as waterfall.
+Rinne who experiences _ride_ for the first time had became blue and sweat was flowing from her like a waterfall.
 
 "Rinne? Hey, Rinne?"
 
