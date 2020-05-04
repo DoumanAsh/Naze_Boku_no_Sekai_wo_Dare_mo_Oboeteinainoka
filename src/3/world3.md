@@ -632,11 +632,242 @@ Oi, Reiren, come on!"
 
 The elf fell down with a cry of agony
 
-_I'm lucky to not drink it._
+_Good that I didn't drink it._
 
 Kai felt relieved all the while patting her back.
 
 <br>
 <br>
 
+"Night" of the underground city.
 
+Going to the surface would let you to see a scenery of vast plains dyed in colour of <span title="jp. 薄墨 It is kinda bleak black colour I guess?">diluted ink</span>.
+With night wind washing away and tearing apart clouds, would let stars to peek through these gaps.
+
+But...
+
+Nothing of that was here.
+
+Being 30 meters under the stronghold Ruin S Fulham, all they would see is lights of tunnel's ceiling to disappear.
+
+Illumination is lit on mornings, and disappears on nights.
+
+_I already had the same experience in Neo Vishal._
+
+_Seems the situation is the same even outside of Urza._
+
+He was unused to idea of such 'night'.
+
+To Kai's surprise the elven shrine maiden Reiren, who was probably the most used to natural night, was soundly asleep with a little discomfort.
+
+It was likely that she accumulated quite a lot of mental fatigue after leaving the elven forest for the first time in her life.
+
+Kai's room had three beds.
+
+With her body in side posture she was soundly sleeping on the inner most bed.
+She took off her seventh layered robes, and now she was in thin nightdress.
+Although the design was tight, completely fitting her body, the dress was tailored up to her ankles.
+
+"...I think it would be good if you'd go to sleep too, Rinne."
+
+"Are you sleepy?"
+
+On the middle of three beds.
+
+On the bed that had enough space to stretch yourself for single adult, Rinne was lying down with her face down closely to Kai, his face up.
+
+Kai's left shoulder...
+
+Was barely at a distance close enough to not touch his wound, covered in bandages.
+
+"We should sleep on own..." _TL Note:_ Original text is `自分のベッドは……` where verb is omitted. Literally `own beds...` which makes a little sense in english so I changed it.
+
+"No way."
+
+The girl gently touched his left elbow with both hands.
+
+"Kai was hurt like this because of me.
+That's why I'm going to protect Kai.
+Until wounds are healed, I'm not going to leave Kai's side absolutely."
+
+"Rinne..."
+
+"Though even if wounds are healed, I'm not leaving too."
+
+"That's business as usual!?"
+
+She was persistent about being by his side.
+
+Now that she was used to daily life, even if it was the same room, they were supposed to sleep on separate beds.
+But this night it would seem she disliked the idea of sleeping on a separate bed.
+
+"Reiren was able successfully mix the medicine with a second try.
+It is going to be healed properly."
+
+"...Was it bitter? Medicine of that flat elf."
+
+"Good medicine is bitter."
+
+First time her elixir was a failure, but second time she was able to do it successfully.
+
+At first she tasted it herself as a creator of the mixture, next was Rinne, afterwards Kai drunk it.
+
+_I don't feel like my wounds started to close up faster though._
+
+_When used on the human the elven medicine should at least has rejuvenation effect._
+
+It was so effective that it would put a heavy strain on the body.
+And due to the elixir containing elven magic power, it might have a side effects when used on the human.
+
+What kind of effect it would be was entirely up to Kai.
+
+As his life could be shortened, it could also be prolonged.
+
+"By the way, Rinne, weren't you saying it was too cramped to sleep in sleeping bag of our tent?"
+
+"Yeah it was cramped."
+
+"Then..."
+
+"Kai, how do you think I'm thinking of Kai?" _TL Note:_ Yes, it is indeed weird `カイは、わたしがカイのこと何て思ってると思う？`
+
+That was rather straightforward.
+
+Kai was about to say, but his words stuck in a throat.
+Not because of what meaning of these words.
+
+Amidst the darkness.
+Light in Rinne's gaze became clear to a scary degree.
+He felt as if he was being sucked in by just gazing into these eyes of deep sea colour.
+
+"..."
+
+She risen from her laying posture with upper half of her body, standing on elbows.
+She was only in single thin nightdress.
+
+"...It is strange. Really mysterious feeling."
+
+"Eh?"
+
+"I'm very happy together with Kai. I like you.
+Even if it is only my own feelings, it is more than enough.
+I..."
+
+The girl went silent.
+
+She closed her small mouth and was just looking at him.
+
+"What should I do to make Kai to start liking me..."
+
+"..."
+
+She wanted to be closer to him, to touch him and to get to know him even more.
+
+Such was appeal coming from her eyes.
+
+"I cannot?"
+
+He wouldn't deny it.
+And he didn't hate it.
+
+In fact it was making him glad to receive Rinne's affection,
+and he shown no desire to betray these feelings.
+
+But...
+
+"I undersdtand... To be honest with you, I'm just not used to it.
+Actually, I'm also not used to talk about it."
+
+"What?"
+
+"Well, having girl like Rinne sleeping so close.
+In the true world I was living in man's dormitory and I've been always sharing double room with Ashlan.
+Saki and Jeanne were staying at completely different place: woman's dormitory."
+
+"..."
+
+Rinne titled her head with curious look on her face.
+
+"Does Kai like Ashlan?" _TL Note:_ LOL I'm ded
+
+"...No, I didn't mean that, just there we had strict rules on gender segregation."
+
+"Why?"
+
+"This is going to be a rather philosophical discussion so let's have at another time.
+Anyway, the reason why I'm hesitant about sleeping with you, Rinne, is not because I dislike the idea.
+I'm just not used to it.
+Even you, Rinne, first time you came to human city, you wasn't used to it, right?"
+
+"...Yup."
+
+"Did you understand it?"
+
+"Understood."
+
+Seeing Rinne so quickly agreeing was almost anti-climatic.
+
+This reply of her brought a brief moment of relief to him.
+
+"Then I'm going to give Kai training."
+
+"...Yes?"
+
+"Yay, caught you!"
+
+With a vigour of carnivore that is aiming for its prey, Rinne hugged him around torso.
+
+"I didn't know that Kai is bad at sleeping together with a girl.
+But no worries, I'll give you a training.
+We're going to sleep together more, far more than before!"
+
+"I didn't mean it like that though!?
+Actually, Rinne, shoulder is bad idea.
+It is in pain, it is painful when you cling to it so...!"
+
+"Eh? What, I didn't hear you."
+
+She was so obsessed with clinging to him that no longer his voice could reach her.
+
+While he was desperately trying to shake from such Rinne...
+
+"Eei, silence!"
+
+Hearing elf's voice, Kai and Rinne stopped moving completely.
+
+"Be quiet at the night.
+Even though I'm grateful that today's day ended without troubles, I wish to rest my body peacefully.
+Cannot thee comprehend that much at least!?"
+
+"...Ok."
+
+"...Got it already."
+
+"If thee understood then good."
+
+With completely sleepy expression, Reiren nodded, oddly satisfied.
+But for some reason instead of going back to her own bed, she was approaching in direction of Kai's.
+
+"Very well, I shall sleep."
+
+"What do you mean well!? This is my bed after all!"
+
+"...Suya." _TL Note:_ this sound of sleep is just cute.
+
+"Could it be all a sleep-talk...?"
+
+"Ah! Hey, you, flat elf, move, move!
+I'm the only one who can be close to Kai!"
+
+The elf occupied the edge of the bed,
+seeing that Rinne get up.
+
+He was sandwiched between them.
+
+"...Ah how I miss sharing room with Ashlan in the true world."
+
+Kai took a big sigh from the bottom of his heart.
+
+-------------------------------------------------------------------------------
+
+<a href="#Part3" id="Part3" class="Bookmark"></a>
