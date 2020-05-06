@@ -2,7 +2,7 @@
 
 At the naturally created border...
 It is been three days and nights since they passed through the forest, controlled by foreign gods.
-Finally they found vast plain of ocher colour, where was the national border that separated Io and Yurun.
+Finally vast plain of ocher colour appeared, where was the national border that separated Io and Yurun.
 
 "I'm able to guide thee only up to here."
 
@@ -10,14 +10,14 @@ Said the elven shrine maiden, who looked reluctant seeing off the fading away fo
 
 "Beyond these plains lies the Yurun country. Thee know this much, right?"
 
-"That's right. Still again quite a depressing scenery..."
+"That's right. Once again quite a depressing scenery..."
 
 Ashlan answered from the driver's seat.
 As Kai's arm was wounded in the battle with the Behemoth, right now he assumed the driving role.
 
 "I thought I got tired of this maze of big trees, now it is just plains with weed all the way."
 
-"Right so. Having nothing instead makes makes you suspicious too, right..."
+"Right so. Having nothing around instead makes it suspicious, right..."
 
 Sitting on the passenger seat, Saki was anxiously looking with her binoculars through a window.
 
@@ -36,7 +36,7 @@ Reiren said from the back seat on the right.
 
 From the left came Rinne in order to 'restrain' her.
 
-"I'm worrying about Kai's arm.
+"I'm the one who is going to worry about Kai's arm.
 Kai, is it ok?"
 
 "Muu. There is anyway nothing to do, might as well not to mind a small talk."
@@ -59,18 +59,19 @@ Kai would feel impact through the whole arm up to the shoulder, making his wound
 "Hey, Saki. How long should we go?"
 
 "Mmm, some more time I guess?
-But well even I've gotten tired of driving the car."
+But well even I've gotten tired of riding the car."
 
 They've been on the road three days and three nights.
 By now Kai's party traversed several hundred kilometers.
-Consisting of 30 military cars, closely following each other, their party was starting to run out of both provisions and battery capacities.
+Consisting of 30 military cars, closely following each other, their party was starting to run out of both provisions and battery powers.
 
 _TL note:_ Interestingly author always mentions batteries, but never oil, like cars don't need it there.
 
-"It is going to take a while to reach the human city...
-After all this map is like ten years old, so how reliable it is I'm not sure."
+"Seems it is going to take a bit more to reach the human city...
+But this map is like ten years old, so I'm not sure how reliable it is."
 
-For a while now Saki was continuing to stare at the map of the continent. _TL Note:_ Re-phrased `サキが睨めっこを続ける相手は大陸地図。`
+Saki was continuously starting at the map of the continent.
+_TL Note:_ Re-phrased `サキが睨めっこを続ける相手は大陸地図。` as I'm not sure if you can say something like that in english
 
 "Hey, isn't that the thing?"
 
@@ -91,7 +92,7 @@ Saki raised her voice in surprise as she was looking through binoculars.
 Reiren who got up from the back seat, knitted her eyebrows.
 
 "Kai, can thee contact Jeanne behind?
-These ruins, these are not simple buildings.
+These ruins, these are not just simple buildings.
 Might be better to make a detour.
 It is a nest of the spirits."
 
@@ -105,17 +106,17 @@ Rinne and Reiren, whose eyesight surpassed that of Kai, were already able see a 
 "Ahead on our path are ruins, which became a nest of spirits.
 I suggest taking a detour!"
 
-[I was going to contact you about it.] _TL TODO:_ A bit unclear phrase `その連絡をしようとしていたところだ`
+[I was about to contact you about it.]
 
 He couldn't sense any worry in Jeanne's voice.
 
-[We're receiving directions on the course to our destination from a signal corps of Yurun Resistance.
+[We're receiving directions on the course to our destination from a radio corps of Yurun Resistance.
 And we're told to head straight ahead as it is.]
 
 "Then..."
 
 [There is indeed the nest of spirits among that group of building.
-However no longer there can be found any spirits.
+However there are no signs of spirits themselves.
 It would seem that about two years ago they moved to a another place.]
 
 _TL TODO:_ Second sentence refer to spirits as `肝心の聖霊族` and it is unclear how to interpret `肝心の`
@@ -125,7 +126,7 @@ _TL TODO:_ Second sentence refer to spirits as `肝心の聖霊族` and it is un
 It was similar to the migration of birds.
 
 Spirits had a tendency to frequently migrate from their nests each dozen of years.
-But a reason was unclear.
+But the reason was unclear.
 
 "But there is a chance that some remain on lookout, is it not?"
 
@@ -162,13 +163,12 @@ But spirits were different.
 
 They just transform city's buildings into completely different thing.
 One had to wonder just what kind of life form could make such nest.
-_TL TODO:_ Re-check second sentence `いったいどんな生態であれば、こんな巣が出来上がるというのか`
 
-"Whew... that's gross.
+"Whew... That's gross.
 Buildings are completely covered in something like bluish mold."
 
 "Ashlan, turn a bit to the right now.
-We don't really need to go through the center of ruins.
+We don't really need to go through the center of these ruins.
 Whenever possible we should go by the edge of the city."
 
 As they were going through ruins that became a nest to the spirits.
@@ -187,13 +187,13 @@ The reason for that was quite simple: they didn't posses intelligence to compreh
 
 Therefore any discussion was out of question.
 
-"Ah, but spirits are well versed when it comes to creeping around.
+"But spirits are well versed when it comes to creeping around.
 They can hide from sight and completely eliminate any sound...
 Who might know if our car is not already in their sights."
 
 "Please stop, Reiren!?"
 
-Saki screamed while tightly gripping her hand grenade as if it is a precious talisman.
+Saki screamed while tightly gripping her hand grenade as if it was a precious talisman.
 
 Guns were ineffective against the spirits.
 
@@ -220,7 +220,7 @@ Never ever he would imagine himself doing something like coming to spirits' land
 
 Kai's car passed buildings.
 Following them was the second car, then the third and so on, passing through the spirit' nest,
-but there was no signs of anything threating to attack them.
+but there were no signs of anything threating to attack them.
 
 "Jeanne, how are things on your end?"
 
@@ -240,18 +240,19 @@ Be mindful to not act impolite.]
 
 A stronghold among wilderness Ruin S Fulham.
 The <span title="jp. 赤煉瓦">red brick</span> castle.
-Once it was a land where a family, who lost a fight for a crown of Yurun, had escaped.
+Once it was a land where a <span title="jp. 一族 literally single family, but to be accurate it is probably branch of rouyal family, hence I used clan to say it short">clan</span>,
+who lost a fight for a crown of Yurun, had escaped.
 
-And this stronghold, which was the last hope of mankind that has been crushed by Spirits' invasion...
+And this stronghold, which was the last hope of mankind crushed by Spirits' invasion...
 Was a headquarters of the Yurun's Resistance.
 
-"Welcome to our Resistance Army.
+"Welcome to our Resistance.
 Let us greet expedition of our fellow army!"
 
 _TL Note:_ Original greeting: `ようこそ我らの人類反旗軍へ。貴軍らの遠征を歓迎するものである！`
 First phrase is clear: he welcomes them at the HQ.
 But the second is a bit more tricky as it kinda repeats a similar thing, but with a stronger emotional emphasis (due to `ものである`) and with their guest to be a subject
-So my I feel it is more like a command to his subordinates to greet guests?
+So I feel it is more like a command to his subordinates to greet guests?
 
 With hundreds soldiers be his side...
 
@@ -268,7 +269,7 @@ _Despite his large frame and fierce look, meeting him face to face doesn't feel 
 
 _TL Note:_ Let's be honest, Dante can only cause you to feel disgusted, I doubt his presence would pressure anyone.
 
-In front of Kai Light Knight Jeanne came forward and shared firm handshake with Lion King Balmnung.
+In front of Kai Light Knight Jeanne came forward and shared a firm handshake with Lion King Balmnung.
 
 "Thank you for coming all this way.
 Jeanne-dono, rumours of your great achievements reached even this remote land.
@@ -302,10 +303,10 @@ As I wish to spread these news among seven cities in the Yurun too."
 Lion King Balmnung walked with a long stride, and Jeanne joined him by the side.
 
 "...This is quited different from our time in the Io.
-Quite decent commander."
+Looks like a decent commander."
 
 "Really.
-I felt Dante was like a sly king, but here I can see a leader of soldiers.
+I thought Dante was like a sly king, but here I can see a leader of soldiers.
 Well, he looks scary though."
 
 Saki and Ashlan were whispering to each other.
@@ -327,14 +328,14 @@ Jeannya already left though?."
 "For you it should be all for today.
 I'll attend to Jeanne-sama, so you can go ahead to rest up."
 
-As Farin was going after Jeanne, she whispered to his ear when passing by him.
+As Farin was going after Jeanne, she whispered to him when passing by him.
 
 "This place has a trustworthy commander. He is different from the Dante."
 
 "Could it be you know him?"
 
 "For about a year.
-I just served here during my training."
+I just served here during my soldier's training."
 
 She said with a profound smile.
 
@@ -352,7 +353,7 @@ Similarly to Urza's Neo Vishal it utilized underground railway system, but there
 
 Neo Vishal was at most of the size as single shopping district.
 
-While Ruin S Quin was said to almost completely replicate the scale of Yurun's capital.
+While Ruin S Quin was said to almost completely replicate the townscape of Yurun's capital.
 
 Thanks to vast plains they benefited from wind and solar energies.
 Due to that they were able to maintain all production factories.
@@ -360,7 +361,7 @@ Due to that they were able to maintain all production factories.
 The cornerstone of it all was...
 Throughout defense of Ruin S Fulham stronghold.
 
-"You're not Balmnung-dono's people."
+"You're not Balmnung-dono's people, aren't you?"
 
 Human city, Ruin S Quin, northern district...
 
@@ -391,7 +392,7 @@ Disinfecting also was quite painful, wasn't it?"
 
 "Luckily, I had painkillers on me."
 
-"Fool. It is not such minor wound.
+"Fool. It is not a minor wound.
 Fortunately the wound itself didn't fester, but..."
 
 Next old man's gaze shifted to Kai's face.
@@ -421,9 +422,9 @@ Could it be you've been attacked by a dragon?"
 The old doctor was speechless.
 
 If it would be a soldier or a civilian then they would just laugh it off as a [absurd joke],
-but this old doctor could guess the size of monster from the marks of fang that left the wound on Kai's shoulder.
+but this old doctor could guess the size of monster from marks of the fang that left the wound on Kai's shoulder.
 
-"It will be one of two.
+"It will be one of these two.
 Either you die young or become great warrior like Balmnung-dono...
 Now then, examination is over.
 I'll prescribe you strong painkillers."
@@ -448,23 +449,23 @@ Going need to use every possible trick to survive."
 
 No soldier that protects the city has to pay money here...
 
-Kai bowed to the old doctor who firmly refused to take any payment and left the infirmary behind.
+Kai bowed to the old doctor who firmly refused to take any payment, leaving the infirmary behind.
 
 <br>
 <br>
 
 Public cottage.
 Normally soldiers were staying at the one of the seven Yurun's cities,
-And occasionally they would gather at stronghold Ruin S Fulham for opening of large council of war.
+And occasionally they would gather at stronghold Ruin S Fulham for a start of large council of war.
 
-This was one of the lodgings they would use during that time.
+This was one of these lodgings which they would use during that time.
 
 "This is cool.
 Since these lodgings are used by soldiers they got conference room here,
 and they mentioned something about lending us tools to look after our guns, right?"
 
 "Moreover it is completely lent to us.
-They are so welcoming that it is actually scared me."
+They are so welcoming that it is actually scaring me."
 
 Saki and Ashlan were taking the baggage out of the car.
 
@@ -513,9 +514,9 @@ It was said that elves and dwarves who were living in the forest would combine t
 
 _Potion that could cure ten thousand illnesses with a single drop._
 
-_Sake that could tame any animal in the forest._
+_<span title="alchocol">Sake</span> that could tame any animal in the forest._
 
-And there was a thing that Reiren hold in her hand.
+Then there was a thing that Reiren hold in her hand.
 To Kai it felt like a smell of a juice, squeezed out of food scraps.
 
 "Thy wound, human medicine is unlikely to have much of effect, isn't it?"
@@ -523,7 +524,8 @@ To Kai it felt like a smell of a juice, squeezed out of food scraps.
 Reiren looked at his bandages.
 
 "That said thee would be troubled fighting spirits in such sorry state.
-Therefore as a special, I thought of trying to make elixir that would cure your wound in half of day."
+Therefore <span title="Rephrased 特別に as I think she is trying to say it to make him feel honoured by her kindness">feeling generous</span>,
+I thought of trying to make elixir that would cure your wound in a half of day."
 
 "Half of day!?"
 
@@ -534,7 +536,7 @@ Therefore as a special, I thought of trying to make elixir that would cure your 
 "Well, I wouldn't mind two thousand massages as a reward too."
 
 "Are you old man!?
-...Ah, well, I guess you're older than human elderly."
+...Ah, well, I suppose you're older than human elderly."
 
 _TL Note:_ No one would mind giving her such reward... aside from our hero ofc.
 Ei, Kai, what are you doing!? Reiren is such good girl and you cannot even reward her properly!?
@@ -583,8 +585,8 @@ Without even testing it was obviously a failure as the replacement.
 
 "Hey, Kai.
 Do not sniff it like a timid dog,
-summon thy courage and just drink it to see for yourself.
-There would be no other chance for a human to try out elven elixir."
+summon thy courage and just drink it to see for thyself.
+There would be no other chance for a human to try out the elven elixir."
 
 "This boiling thing?
 Obviously it is going to burn my throat, but how do elves drink it?
@@ -596,8 +598,8 @@ Do you not cool it?"
 
 The moment elven shrine maiden gave him answer with such serious look, Kai turned white.
 
-"This is a first time for me to see such boiling thing.
-I wonder if there was some sort of mistake when mixing it."
+"This is a first time for me to see it in such boiling state.
+I wonder if there was some sort of mistake when I've been mixing it."
 
 "Obviously there is some mistake, isn't!?"
 
@@ -613,8 +615,8 @@ If everything is all right then I'll drink it too."
 Taking the flask into her hand the elf sipped directly from it.
 With a deep gulp, she finished.
 
-"See for thyself.
-Smell might bother, but once savor it, thee shall feel invigorating."
+"See?
+Smell might be a bother, but once savor it, thee shall feel invigorating."
 
 "Oh? Really."
 
@@ -672,9 +674,9 @@ Although the design was tight, completely fitting her body, the dress was tailor
 
 "Are you sleepy?"
 
-On the middle of three beds.
+On the middle one of three beds.
 
-On the bed that had enough space to stretch yourself for single adult, Rinne was lying down with her face down closely to Kai, his face up.
+On the bed that had enough space to stretch yourself for a single adult, Rinne was lying down with her face down closely to Kai, while he faced up.
 
 Kai's left shoulder...
 
@@ -694,19 +696,19 @@ Until wounds are healed, I'm not going to leave Kai's side absolutely."
 
 "Though even if wounds are healed, I'm not leaving too."
 
-"That's business as usual!?"
+"That's a business as usual!?"
 
 She was persistent about being by his side.
 
 Now that she was used to daily life, even if it was the same room, they were supposed to sleep on separate beds.
-But this night it would seem she disliked the idea of sleeping on a separate bed.
+But this night it would seem she rejected the idea of sleeping on a separate bed.
 
 "Reiren was able successfully mix the medicine with a second try.
 It is going to be healed properly."
 
 "...Was it bitter? Medicine of that flat elf."
 
-"Good medicine is bitter."
+"Good medicine is a bitter one."
 
 First time her elixir was a failure, but second time she was able to do it successfully.
 
@@ -721,7 +723,7 @@ And due to the elixir containing elven magic power, it might have a side effects
 
 What kind of effect it would be was entirely up to Kai.
 
-As his life could be shortened, it could also be prolonged.
+His life could be shortened, or it could also be prolonged.
 
 "By the way, Rinne, weren't you saying it was too cramped to sleep in sleeping bag of our tent?"
 
@@ -734,7 +736,7 @@ As his life could be shortened, it could also be prolonged.
 That was rather straightforward.
 
 Kai was about to say, but his words stuck in a throat.
-Not because of what meaning of these words.
+Not because of the meaning of these words.
 
 Amidst the darkness.
 Light in Rinne's gaze became clear to a scary degree.
@@ -775,7 +777,7 @@ and he shown no desire to betray these feelings.
 
 But...
 
-"I undersdtand... To be honest with you, I'm just not used to it.
+"I understand... To be honest with you, I'm just not used to it.
 Actually, I'm also not used to talk about it."
 
 "What?"
@@ -794,7 +796,7 @@ Rinne titled her head with curious look on her face.
 
 "Why?"
 
-"This is going to be a rather philosophical discussion so let's have at another time.
+"This is going to be a rather philosophical discussion so let's have it at another time.
 Anyway, the reason why I'm hesitant about sleeping with you, Rinne, is not because I dislike the idea.
 I'm just not used to it.
 Even you, Rinne, first time you came to human city, you wasn't used to it, right?"
@@ -807,7 +809,7 @@ Even you, Rinne, first time you came to human city, you wasn't used to it, right
 
 Seeing Rinne so quickly agreeing was almost anti-climatic.
 
-This reply of her brought a brief moment of relief to him.
+This reply of her brought only a brief moment of relief to him.
 
 "Then I'm going to give Kai training."
 
@@ -835,7 +837,7 @@ While he was desperately trying to shake from such Rinne...
 
 Hearing elf's voice, Kai and Rinne stopped moving completely.
 
-"Be quiet at the night.
+"Be quiet during the night.
 Even though I'm grateful that today's day ended without troubles, I wish to rest my body peacefully.
 Cannot thee comprehend that much at least!?"
 
@@ -846,15 +848,15 @@ Cannot thee comprehend that much at least!?"
 "If thee understood then good."
 
 With completely sleepy expression, Reiren nodded, oddly satisfied.
-But for some reason instead of going back to her own bed, she was approaching in direction of Kai's.
+But for some reason instead of going back to her own bed, she was approaching in a direction of Kai's.
 
-"Very well, I shall sleep."
+"Good, I shall sleep."
 
-"What do you mean well!? This is my bed after all!"
+"What do you mean good!? This is my bed after all!"
 
 "...Suya." _TL Note:_ this sound of sleep is just cute.
 
-"Could it be all a sleep-talk...?"
+"Could it all be a sleep-talk...?"
 
 "Ah! Hey, you, flat elf, move, move!
 I'm the only one who can be close to Kai!"
@@ -875,7 +877,7 @@ Kai took a big sigh from the bottom of his heart.
 Stronghold Ruin S Fulham...
 
 The fortress was surrounded by threefold mud wall with a ditch,
-and at the time of enemy invasion they would set ditch on fire surrounding the fortress by wall of fire,
+and at the time of enemy invasion they would set ditch on fire surrounding the fortress with the wall of fire,
 which could act as defense.
 
 "Probably even in Urza you've gathered intel from various hearsays,
@@ -887,7 +889,7 @@ Lion King Balmnung's strong voice echoed throughout there.
 
 "As for their weak point, these guys got core that holds magic power inside of their bodies.
 While at least in theory it is possible to crush it with bullet or sword, but that's hard even for a skillful sniper.
-Besides anyway each has their core at different place."
+Not to mention each has their core at a different place."
 
 It required a miracle to shoot them.
 
@@ -904,11 +906,12 @@ _TL TODO:_ `ゴトン` what kind of sound?
 
 Grenade <span title="Author uses jp. ガン i.e. gun, but we say launcher, right? ;)">launcher</span> was placed on the table with great a deal of noise.
 
-Being able to toss around large sized gun, which was supposed to be held on both hands, by single arm was certainly a display of strength, befitting to a name of Lion King.
+Being able to toss around large sized gun, which was supposed to be held on both hands, by single hand was certainly a display of strength, befitting to the name of Lion King.
 
 "It is loaded with incendiary rounds.
 Here against wall you can see flamethrower.
-Our Resistance is specialized in flame power, even rounds, used by our tanks."
+Our Resistance is specialized in <span title="Original uses jp. 火力 which is literally flame/heat power, but I rephrased it">incendiary weaponry</span>,
+even our tanks uses such ammunition."
 
 "I see, though we're primary using machine guns..."
 
@@ -953,7 +956,7 @@ _But this commander feels a bit like a senpai to his soldiers._
 Lion King Balmnung.
 
 This was a name that he didn't remember to hear in the true world.
-And in this alternative world he was a distinguished figure, like Jeanne, who stood up in a mankind's crisis.
+And in this alternative world he was a distinguished figure, like Jeanne, who stood up in a time of mankind's crisis.
 
 And now gaze of this man was...
 
@@ -995,11 +998,11 @@ It was a seven hours long talk.
 Which left notebook with almost thirty pages of notes.
 
 "Let us be honest here.
-I already said that to Jeanne-dono, but under demons control Urza's situation was hopeless."
+I already said that to Jeanne-dono, but under demons' domination Urza's situation was hopeless."
 
 "..."
 
-"There might be few smaller countries in addition to the four main, but among all of these
+"There might be few smaller countries in addition to the four main ones, but among all of these
 Urza is likely the region where humanity would be completely wiped out.
 I've been already prepared for such outcome.
 Considering the total territory that demons control and overall efforts of the Resistance."
@@ -1008,14 +1011,14 @@ Jeanne, together with Farin, remained silent.
 
 Paying no attention to two of them, Lion King's gaze was constantly on Kai.
 
-"And in such circumstances demons' hero has been crushed, allowing to turn it around.
-Jeanne-dono would often mention your name when talking about the reason of your success."
+"And in such circumstances demons' hero has been crushed, allowing to turn <span title="situation">it</span> around.
+Jeanne-dono would often mention your name when talking about the reason of the success."
 
 He was side glancing.
 Balmnung was looking towards the black bayonet, which was set by Kai's seat.
 
 "As I heard it is rather strange weapon.
-Bayonet... To me it looks as rather a old weapon, but mind if I take a look?"
+Bayonet... To me it looks as a rather old weapon, but mind if I take a look?"
 
 In front of the Kai, who gave silent agreement, commander Balmnung took Drake Nail into his hands.
 
@@ -1028,8 +1031,8 @@ And another one is to blast explosive upon slash?"
 
 He saw through Drake Nail's mechanism with a single glance...
 
-As one would expected from natural born soldier.
-He was easily able to analyze the bayonet, that one could say a _futuristic_ weapon that doesn't exist in this world.
+As one would expected from naturally born soldier.
+He was easily able to analyze the bayonet, that one could call a _futuristic_ weapon that doesn't exist in this world.
 
 "I see, this is rather sophisticated."
 
@@ -1071,7 +1074,7 @@ It would be quicker to just show evidence that Kai is coming from so called the 
 
 "I'm only confident about your story for at most around 20%.
 This bayonet is only a bare minimum evidence.
-It is unlikely to be a key in defeating the demons' hero."
+It is unlikely to be the key in defeating the demons' hero."
 
 Balmnung's somewhat awkward expression maybe coming from his honest thought: [I'm not convinced yet.]
 
@@ -1113,7 +1116,7 @@ Of course that includes spirits."
 "Yes. For spirits you need [fire], without mistake.
 Another thing is that there are no records of them appearing in extremely cold regions therefore they are considered weak against [cold]."
 
-"Here is warm, so rejected."
+"Here it is warm, so rejected."
 
 "That's it."
 
@@ -1151,11 +1154,11 @@ _Unless you see [it] for yourself, there is no way you'd believe it._
 It was vicious slime creature.
 
 While it does poses the core like other spirits, massive cells inside prevent bullets from reaching it.
-And upon sword attack it would wrapped and caught inside the slime body.
+And upon when sword slashes, it would be wrapped and caught inside of the slime body.
 
 -Neither guns or swords are effective.
 
--Even if you blast it into pieces, they would quickly gather and revive.
+-Even if you blast it into pieces, they would quickly gather and regenerate.
 
 It could go from human size to a size of the building.
 
@@ -1198,7 +1201,7 @@ It makes sense, but spirits appear out of nowhere.
 There is no way to know where they would appear, so we cannot narrow it down if we want to set up a trap.
 We need to compensate for a risk of concentrating our firepower."
 
-"It is not just a stationary trap, but rather inciting trap."
+"Not just a stationary trap, but rather a luring trap."
 
 [Stationary trap] is the one that endlessly awaits enemy to touch it, like a land mine.
 
@@ -1258,7 +1261,7 @@ She walked towards the speaker's chair during the meeting and pointed on the map
 The area controlled by spirits was painted by grey.
 
 "The closest nest to this fortress would be there.
-<span title="She uses here 司令官 rather than regular 指揮官 so I changed it a bit, as it seems likely that she addresses him as she used when served here before">General</span>
+<span title="She uses here 司令官 rather than regular 指揮官 hence changed address, as it seems likely that she addresses him as she used when served here before">General</span>
 Balmnung, how about we give a try to this one?"
 
 "Not a light trap, but a spirit trap, huh?" _TL Note:_ This is a bit weirdly phrased, re-check `誘蛾灯ならぬ誘霊灯をか`
@@ -1273,4 +1276,4 @@ If we'd be able to lure them ourself, then it would make tactic of concentrating
 Placing hands on desk.
 Light Knight Jeanne made a clear declaration.
 
-"Not just consider, let's do it."
+"Let's not just consider, but do it."
