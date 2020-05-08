@@ -529,12 +529,12 @@ Even if she asks to look at her wings, he honestly just couldn't focus on it.
 
 "...Got it.
 Still, outside of the shower room, you shouldn't be without towel.
-If someone besides me would see your back, it would be really bad.
-While holding back on telling her to not flash her ass before him, Kai puts shower room's towel onto her shoulder.
-_TL Note:_ I'm a bit unsure about last sentence `俺にお尻が見えないように。そう言いたい気持ちをこらえ、シャワールームに備えつけのバスタオルを彼女の肩にかけてやる`
+If someone besides me would see your back, it would be really bad, you know?"
 
-"Well, I'll step out then.
-Take shower and wait for me."
+While holding back on telling her to not flash her ass before him, Kai puts bath towel onto her shoulders.
+
+"Well then, I'll step out.
+Finish shower and wait for me."
 
 "Ok! Return quickly!"
 
@@ -543,7 +543,7 @@ And then, before his eyes appears Ashlan with whom they parted ways just recentl
 
 "Kai? You look much more tired."
 
-"...No time to rest."
+"...No time for the rest."
 
 Giving such response with shrug, Kai hit pathway's wall.
 
