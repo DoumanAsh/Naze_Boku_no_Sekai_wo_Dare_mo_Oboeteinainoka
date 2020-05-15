@@ -619,23 +619,24 @@ But even so, there was urgent problem that made Rinne running in panic and her t
 
 "? Yep!"
 
-Towards Rinne who replied, without even noticing.
+Making sure that that Rinne, who replied so cheerfully, wouldn't notice:
 
 "...It is really bad for my heart" _TL Note:_ jp. `心臓に悪い` not joking. I'm surprised too, how can it be bad :)
 
 Kai tiredly exhaled.
+
 Few minutes later.
 
 "Humans are so unfair."
 
 While carefully wiping her hair with towel.
-Rinne, who was in provided by hotel nightgown, was sitting on bed and started talking her thoughts.
+Rinne who sat on the bed in provided nightdress started talking as if <span title="Never know how to express ふと思いついた">pouting</span>.
 
 "Kai, humans are just unfair!"
 
 "...Why?"
 
-"Because being able to bath in such warm water. It is first time I was able to enjoy it so much."
+"Because they are able to bath in such warm water. It is first time I was able to enjoy it so much."
 
 "What, if you enjoyed it, then isn't it good?"
 
@@ -681,10 +682,9 @@ Over and over, she was jumping and rolling on top of bed.
 
 "You seem to enjoy it so much."
 
-
 "...Fluffy. Fluffy. Fluffy. Fluffiness!"
 
-"Are you child!?"
+"Are you a child!?"
 
 ![Rinne](./p138.jpg)
 
