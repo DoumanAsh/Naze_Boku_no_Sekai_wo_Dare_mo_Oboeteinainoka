@@ -726,7 +726,7 @@ Rinne, can you read human books?"
 
 "I don't feel you can call it 'reading' per se, but oh well it is fine."
 
-Just then Rinne, who was walking besides him, <span title="jp. 背後に振り向いた A bit unsure here">moved behind him</span>.
+Just then Rinne, who was walking besides him, suddenly turned back.
 
 "There is smell of people from yesterday."
 
@@ -834,16 +834,18 @@ _I completely misunderstood situation. The history, I know, is ingrained in my h
 
 _Because I lived in world where humans won the Great War._
 
-It was all right somehow.
-Certainly, this world was more or less doing all right.
-That was what he believed from the bottom of his heart.
-Only seeing this scenery made him to finally realize it.
-There was no such convenient "someone".
+It would all right somehow
+Someone would do something about this world.
+Until now Kai believed into that from the bottom of his heart.
+But seeing this spectacle made him to realize.
+
+Such convenient "someone" did not exist.
 
 Prophet Sid no longer exists.
 Therefore there is no one among humans who could stand against four races.
+
 The city was filled with screams.
-This scenery is the true shape of this world.
+This scenery was a true shape of this world.
 
 "I..."
 
