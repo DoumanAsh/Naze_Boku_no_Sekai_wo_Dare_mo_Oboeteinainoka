@@ -488,9 +488,7 @@ If thee would like, how about sampling it?"
 These voices belonged to Rinne and Reiren.
 
 He asked both of them to take care of their luggage while he was going to the old doctor,
-but surprisingly he could hear lively voices on the other side of the door.
-
-_TL TODO:_ Re-check `医者に診てもらう間に荷物を運んでくれと頼んでいた二人だが、扉の向こう側から妙に賑やかな叫び声`
+but surprisingly he could hear lively voices from the other side of the door.
 
 "Hey, Rinne? Reiren?
 ...Eeww, what's this smell!?"
@@ -893,7 +891,7 @@ Not to mention each has their core at a different place."
 
 It required a miracle to shoot them.
 
-When it comes to enemy race against which guns were ineffective, first in the list would be cryptids with their firm scales that could reflect bullets,
+When it comes to a enemy race against which guns were ineffective, first on the list would be cryptids with their firm scales that could reflect bullets,
 but spirits were no less troublesome in other sense.
 
 _TL TODO:_ First sentence is rephrased as I found it hard translate `火器全般`
