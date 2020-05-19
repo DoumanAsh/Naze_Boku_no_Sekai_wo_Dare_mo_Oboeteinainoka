@@ -15,7 +15,7 @@ Said the elven shrine maiden, who looked reluctant seeing off the fading away fo
 Ashlan answered from the driver's seat.
 As Kai's arm was wounded in the battle with the Behemoth, he had taken over the wheel for now.
 
-"I thought the maze of big trees was getting tiring, now it is just plains with weed all the way."
+"I thought the maze of big trees was getting tiresome, now it is just plains with weed all the way."
 
 "Right so. Having nothing around instead makes it dubious, right..."
 
@@ -70,8 +70,7 @@ _TL note:_ Interestingly author always mentions batteries, but never oil, like c
 "Seems like it's going to take a bit more time to reach the human city...
 But this map is like ten years old, so I'm not sure about its reliability."
 
-Saki was continuing to stare at the map of the contintent.
-_TL Note:_ Re-phrased `サキが睨めっこを続ける相手は大陸地図。` as I'm not sure if you can say something like that in english
+Saki was continuing to stare at the map of the continent.
 
 "Hey, isn't that the thing?"
 
@@ -135,7 +134,7 @@ We've been requested to intercept them in case we have an encounter.
 Put it simply: While Yurun Resistance welcomes us, they also intend to test us out at the same time.]
 
 Just a few spirits.
-If they went all out against the enemy, it wouldn't be a serious threat.
+If they'd went all out against the enemy, it wouldn't be a serious threat.
 
 [For us it would be a welcoming experience.
 Before a full blown confrontation with the spirits, I believe it would be valuable for us to gain experience fighting them right now]
@@ -316,7 +315,7 @@ Saki and Ashlan were whispering to each other.
 On the other hand, behind them was the elven shrine maiden Reiren, who was grumbling with a sullen look on her face:
 [Foreign gods submitting?
 Huh, what a joke.
-It is merely just a cease fire.]
+It is merely a cease fire.]
 
 "Hey, Kai?"
 
@@ -447,7 +446,8 @@ In this situation where he couldn't use one of his hands, if he would for exampl
 "What is it?"
 
 "I was just thinking.
-That it's necessary to use every possible trick to survive."
+Have to do my best and use every possible trick.
+To survive."
 
 No soldier that protected the city had to pay money there...
 
@@ -867,6 +867,8 @@ I'm the only one who can be close to Kai!"
 
 _ED Note:_ That's right! You tell her, Rinne!!
 
+_TL Note:_ Oi, show some respect to cute elder girl.
+
 The elf occupied the edge of the bed,
 seeing which Rinne got up.
 
@@ -935,9 +937,7 @@ The place where they were holding the meeting.
 It was a banquet hall with desks and chairs lined up, once used by the kings,
 now it was used by Jeanne's and Balmnung's subordinates.
 
-_TL TODO:_ This line is rather weird, re-work? `隊長級が勢揃いし、今朝はその顔合わせというわけだ。`
-
-All the commanding officers were present, hence this morning's meeting was maily for introduction.
+All the commanding officers were present, hence this morning's meeting was mainly for introduction.
 
 _And here is also me._
 
@@ -1270,9 +1270,11 @@ The area controlled by spirits was painted grey.
 <span title="She uses here 司令官 rather than regular 指揮官 hence changed address, as it seems likely that she addresses him as she used when served here before">General</span>
 Balmnung, how about we give a try to this one?"
 
-"Not a light trap, but a spirit trap, huh?" _TL Note:_ This is a bit weirdly phrased, re-check `誘蛾灯ならぬ誘霊灯をか`
+"Not a light trap, but a spirit trap, huh?"
 
 _ED Note:_ You know how moths flock to the light and die? Perhaps the author wants to just play on the words of a "moth trap" which is 誘蛾灯 and make it into a 誘霊灯...
+
+_TL Note:_ Yeah, I get it now, but it feels weird still.
 
 Balmnung fixed his gaze on the map.
 
