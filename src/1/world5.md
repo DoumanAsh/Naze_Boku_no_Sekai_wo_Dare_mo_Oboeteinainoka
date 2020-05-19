@@ -1423,15 +1423,15 @@ She gazed at Kai's bayonet.
 
 "...What do you mean?"
 
-"There are various racial traits.
+"Each race has unique trait.
 For example cryptids scales are so hard that it could resist my fire.
-And spirits would easily nullify my Enchantment.
+And spirits would easily nullify my enchantment.
 Then there are foreign gods with their resistance to magic in general.
-Responding to all their resistances is quite troublesome."
+Preparing counter-measures against traits of each race is very bothersome."
 
 Vanessa continued her monologue relentlessly.
 
-"But there is a way to go around all these resistances.
+"But there is a universal way to overcome such resistances regardless of race.
 That is [<span title="Here I'm not sure what she mean. It can be kinetic power of explosion or maybe magic has blast attribute">Blast</span>].
 Your gun is loaded with explosives for that reason, right?
 This is what I wanted to say."

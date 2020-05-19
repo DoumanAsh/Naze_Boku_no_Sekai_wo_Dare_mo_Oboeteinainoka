@@ -115,23 +115,23 @@ Rinne hesitated.
 
 "But, only Kai, other humans are different!"
 
-"Then you only need to trust me.
-If you'd think I'm lying, it is fine to just turn back for you.
-That's would be more than enough."
+"Then it is fine if you trust only me.
+If you'd suspect that I'm lying or untrustworthy, then it is also fine to just turn back.
+So let us end this talk here."
 
 "..."
 
-Rinne said nothing and only gave silent affirmation.
+Rinne said nothing and only gave a silent affirmation.
 Kai left graveyard and followed towards armoured car.
 
 "I saw this thing before, it should be able to move?"
 
 "It saves time to explain then.
 Rinne, sit besides me.
-Yes, yes, at this passenger's sit."
+That's right, at the passenger's seat."
 
 Wheels started turning and car went on.
-Rinne who experiences _ride_ for the first time has become blue and sweat falls from her as waterfall.
+Rinne who experiences _ride_ for the first time had became blue and sweat was flowing from her like a waterfall.
 
 "Rinne? Hey, Rinne?"
 
@@ -529,12 +529,12 @@ Even if she asks to look at her wings, he honestly just couldn't focus on it.
 
 "...Got it.
 Still, outside of the shower room, you shouldn't be without towel.
-If someone besides me would see your back, it would be really bad.
-While holding back on telling her to not flash her ass before him, Kai puts shower room's towel onto her shoulder.
-_TL Note:_ I'm a bit unsure about last sentence `俺にお尻が見えないように。そう言いたい気持ちをこらえ、シャワールームに備えつけのバスタオルを彼女の肩にかけてやる`
+If someone besides me would see your back, it would be really bad, you know?"
 
-"Well, I'll step out then.
-Take shower and wait for me."
+While holding back on telling her to not flash her ass before him, Kai puts bath towel onto her shoulders.
+
+"Well then, I'll step out.
+Finish shower and wait for me."
 
 "Ok! Return quickly!"
 
@@ -543,7 +543,7 @@ And then, before his eyes appears Ashlan with whom they parted ways just recentl
 
 "Kai? You look much more tired."
 
-"...No time to rest."
+"...No time for the rest."
 
 Giving such response with shrug, Kai hit pathway's wall.
 
@@ -619,23 +619,24 @@ But even so, there was urgent problem that made Rinne running in panic and her t
 
 "? Yep!"
 
-Towards Rinne who replied, without even noticing.
+Making sure that that Rinne, who replied so cheerfully, wouldn't notice:
 
 "...It is really bad for my heart" _TL Note:_ jp. `心臓に悪い` not joking. I'm surprised too, how can it be bad :)
 
 Kai tiredly exhaled.
+
 Few minutes later.
 
 "Humans are so unfair."
 
 While carefully wiping her hair with towel.
-Rinne, who was in provided by hotel nightgown, was sitting on bed and started talking her thoughts.
+Rinne who sat on the bed in provided nightdress started talking as if <span title="Never know how to express ふと思いついた">pouting</span>.
 
 "Kai, humans are just unfair!"
 
 "...Why?"
 
-"Because being able to bath in such warm water. It is first time I was able to enjoy it so much."
+"Because they are able to bath in such warm water. It is first time I was able to enjoy it so much."
 
 "What, if you enjoyed it, then isn't it good?"
 
@@ -681,10 +682,9 @@ Over and over, she was jumping and rolling on top of bed.
 
 "You seem to enjoy it so much."
 
-
 "...Fluffy. Fluffy. Fluffy. Fluffiness!"
 
-"Are you child!?"
+"Are you a child!?"
 
 ![Rinne](./p138.jpg)
 
@@ -726,7 +726,7 @@ Rinne, can you read human books?"
 
 "I don't feel you can call it 'reading' per se, but oh well it is fine."
 
-Just then Rinne, who was walking besides him, <span title="jp. 背後に振り向いた A bit unsure here">moved behind him</span>.
+Just then Rinne, who was walking besides him, suddenly turned back.
 
 "There is smell of people from yesterday."
 
@@ -834,16 +834,18 @@ _I completely misunderstood situation. The history, I know, is ingrained in my h
 
 _Because I lived in world where humans won the Great War._
 
-It was all right somehow.
-Certainly, this world was more or less doing all right.
-That was what he believed from the bottom of his heart.
-Only seeing this scenery made him to finally realize it.
-There was no such convenient "someone".
+It would all right somehow
+Someone would do something about this world.
+Until now Kai believed into that from the bottom of his heart.
+But seeing this spectacle made him to realize.
+
+Such convenient "someone" did not exist.
 
 Prophet Sid no longer exists.
 Therefore there is no one among humans who could stand against four races.
+
 The city was filled with screams.
-This scenery is the true shape of this world.
+This scenery was a true shape of this world.
 
 "I..."
 

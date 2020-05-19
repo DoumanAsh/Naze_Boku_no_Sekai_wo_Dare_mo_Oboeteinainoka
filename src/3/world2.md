@@ -1758,7 +1758,7 @@ But quite different, a transcendental being?"
 She didn't exactly answer the question.
 And despite Kai lowering his voice to a menacing tone, the female voice from the stone statue retained the same genteleness.
 
-[All I'm capable of right now is to answer your request, and to grant you meager <span title="jp. 言霊. See wikipedia article on Kotodama">power word</span>.]
+[All I'm capable of right now is to answer your request, and to grant you a meager <span title="jp. 言霊. See wikipedia article on Kotodama">power word</span>.]
 
 "...Other than that you can do nothing more?"
 

@@ -319,7 +319,7 @@ Saying that, Rinne's wings became so small that were hidden behind her golden ha
 
 "Tenma..."
 
-Coincidently, the name, Rinne gave, was the one that came to Kai's mind.
+Coincidentally, the name, that Rinne gave, was the one that came to Kai's mind.
 
 "...is what they call it"
 
