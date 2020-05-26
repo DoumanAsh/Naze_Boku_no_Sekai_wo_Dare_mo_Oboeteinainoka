@@ -947,38 +947,31 @@ But...
 "Tch..."
 
 Gargoyle, that fell, raised it's arm and grasped point of Drake Nail.
-Moreover, while his bayonet was sealed, new Gargoyle appeared behind Kai's back.
+Moreover, while his bayonet was sealed, new Gargoyle appeared behind Kai.
 
 "Kai!?"
 
-Saki immediately moved her rifle toward it.
+Saki immediately moved her rifle towards it.
 But then towards her, Kai shouted.
 
 "Don't shoot!"
 
 "...Eh?"
 
-"Don't waste bullets"
+"Don't waste bullets."
 
 Kai then let go of his Drake Nail.
 But it wasn't taken away, rather he chosen to let it go.
 
-"No chance for humans to win without guns" _TL Note:_ This one is a bit hard to phrase `銃がなきゃ人間が勝つ手段なんてない`
+"No way for human to win without gun."
 
-He then turned to face gargoyle that was approaching him from behind.
-Moving like spinning top.
-Putting weight into his momentum, Kai struck elbow to knock off lowered nail.
+He looked over at the gargoyle approaching from behind.
+He made a fast turn like a spinning top.
+Putting his body weight into the momentum, Kai struck with his elbow to knock off lowered nail.
 
-_TL Note:_ I'm a bit confused here, might need to revisit it:
+"That's right."
 
-```
-背後に迫った彫像魔に振りかえる。
-独楽のごとき高速旋回。その勢いに体重を乗せて、振り下ろされる爪を、肘撃ち一発で弾き飛ばした。
-```
-
-"That's right"
-
-He dived in toward his enemy.
+He dived in towards his enemy.
 Putting his shoulder closely against gargoyle's breast,
 Kai spreads his legs and lowers himself to set in position.
 
@@ -995,8 +988,8 @@ With move called <span title="jp. 鉄山靠">Tetsuzanko</span>", Kai sent gargoy
 
 "Really!?"
 
-Seeing how stone demon, which weight is over 100kg, was sent flying with just human strength.
-Saki yelled out of surprise.
+Seeing how stone demon, with weight over 100kg, was sent flying with just human strength.
+Saki yelled out in a surprise.
 
 Impact from burst at single single point.
 You stiffen all muscles and strike with all of your power and weight.
