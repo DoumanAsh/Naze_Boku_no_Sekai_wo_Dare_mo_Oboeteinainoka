@@ -25,4 +25,5 @@
     - [World.2 Elven Forest, Gods Hokora](./3/world2.md)
     - [World.3 Yurun Resistance](./3/world3.md)
     - [Intermission Possible? Impossible?](./3/intermission.md)
+    - [World.4 Sage of this world](./3/world4.md)
 * [Glossary](./glossary.md)

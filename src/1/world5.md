@@ -1854,12 +1854,12 @@ Purple liquid started flowing out of Vanessa whole body.
 And like waterfall it was descending onto floor.
 
 "This liquid is your _life_ itself.
-Regardless how hard you try, you can no longer defend against it.
+Whatever defense you have, it cannot defend against it.
 It is going to flow until your life itself will disappear."
 
 "You...!?"
 
-"Together with my life."
+"Together with my own life."
 
 From Rinne cheeks and forehead a similar liquid started quickly dropping.
 It itself was equal to life force.
@@ -1869,7 +1869,7 @@ Without a pain or wounds, and that's why she was afraid.
 
 "Me... By this disgusting being..."
 
-"You're already doen, with this..."
+"You're already done, with this..."
 
 Just few more seconds, and both of their lives would be exhausted.
 But suddenly Rinne who were holding Vanessa started to lose strength.
