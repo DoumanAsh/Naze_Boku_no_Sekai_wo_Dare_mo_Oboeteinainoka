@@ -2,7 +2,7 @@
 
 Io Federation.
 Southern ancient forest, popular name is [Elven Forest].
-Home to foreign gods who consisted of four races: elves, angels, dwarfs and fairies.
+Home to sidhes who consisted of four races: elves, angels, dwarfs and fairies.
 But for humans it was for the most part one gigantic unexplored region.
 
 Thanks to Io Resistance persistence, little by little the information on forest became spread.
@@ -10,7 +10,7 @@ Discovery of elven traps.
 Forest's roads which were presumed to be made by dwarfs.
 Confirmation of fairies passing by via cameras.
 With just few more years, maybe at least no more than 10 years, humans would barging into forest's depths.
-But - that was trap of foreign gods.
+But - that was trap of sidhes.
 
 [Farewell, Your Majesty.]
 
@@ -19,11 +19,11 @@ But - that was trap of foreign gods.
 Both Io Resistance Commander and his subordinates fell into teleportation trap within forest.
 It transferred them deep into forest, where poisonous plants were growing.
 As soon as they breathed in poisonous air, they lost their consciousness.
-Catching the core forces of Resistance should ensure foreign gods dominance over Io Federation.
+Catching the core forces of Resistance should ensure sidhes dominance over Io Federation.
 There should no one to threaten them any longer.
 ...This is what supposed to happen.
 But at that day surprise awaited not only humans.
-Something beyond foreign gods expectations were happening at the same day.
+Something beyond sidhes expectations were happening at the same day.
 
 -------------------------------------------------------------------------------
 
@@ -43,7 +43,7 @@ It is not only <span title="Elves">you</span>.
 Dwarfs and fairies too are judged as filthy and inferior races."
 
 Answered angel with six enormous wings.
-Heaven Lord Alfreyja - the leader of angels and archangel who took a name of foreign gods hero upon.
+Heaven Lord Alfreyja - the leader of angels and archangel who took a name of sidhes hero upon.
 Great hero, with long hair of flax colour, solemnly told her while standing by altar.
 
 "This country, this world belong to angel's domain.

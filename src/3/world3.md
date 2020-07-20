@@ -1,7 +1,7 @@
 ![Cover](./midashi03.jpg)
 
 At the naturally created border...
-It has been three days and nights since they had entered the forest, controlled by foreign gods.
+It has been three days and nights since they had entered the forest, controlled by sidhes.
 Finally, a vast plain of ocher colour appeared, where the national border that separated Io and Yurun was located.
 
 "I'm able to guide thee only up to here."
@@ -156,7 +156,7 @@ Once a human city, it had been transformed into a bizarre [nest].
 
 _Demons just use human's cities as it is when they snatch it._
 
-_Foreign gods are not living in human cities at all and instead letting them get consumed by the forest._
+_Sidhes are not living in human cities at all and instead letting them get consumed by the forest._
 
 But spirits were different.
 
@@ -295,7 +295,7 @@ Well, nothing like a strategy meeting, just a small talk."
 
 "Meaning?"
 
-"The good news of you crushing the demons' hero and foreign gods submitting to you.
+"The good news of you crushing the demons' hero and sidhes submitting to you.
 I would be glad to hear about it in detail.
 As I wish to spread these news among the seven cities of Yurun too."
 
@@ -313,7 +313,7 @@ Well, he looks scary though."
 Saki and Ashlan were whispering to each other.
 
 On the other hand, behind them was the elven shrine maiden Reiren, who was grumbling with a sullen look on her face:
-[Foreign gods submitting?
+[Sidhes submitting?
 Huh, what a joke.
 It is merely a cease fire.]
 
@@ -561,7 +561,7 @@ therefore I had to substitute it with a different thing."
 "Eh. But this is a human's town.
 Would there be a replacement?"
 
-For Reiren, who was part of the foreign gods, this place was an enemy's den.
+For Reiren, who was part of the sidhes, this place was an enemy's den.
 
 It was hard to imagine this elven shrine maiden, who wouldn't go out unless she is with Kai, walking around the city.
 

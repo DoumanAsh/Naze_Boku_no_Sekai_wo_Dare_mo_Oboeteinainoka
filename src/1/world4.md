@@ -21,7 +21,7 @@ After all, the girl herself is following him behind.
 Covering her eyes, Rinne exits the graveyard.
 Under her golden hair could be seen pointy ears.
 On her back are tenma's wings.
-Mix of foreign god, demon and human.
+Mix of sidhe, demon and human.
 At first glance she holds characteristics of these three races.
 
 "Hey, Kai, where we are?"
@@ -98,7 +98,7 @@ She casts her eyes down and thinks in silence.
 She answers trying to imitate her vomiting blood.
 
 "I cannot trust any of the races.
-Demons, foreign gods, spirits and cryptids...
+Demons, sidhes, spirits and cryptids...
 As soon as I'll get close to them, they'll sniff out that I'm _different_."
 
 "Humans too?"
@@ -235,7 +235,7 @@ At that time it is highly likely that Kai witnessed phenomena of these histories
 
 The girl strongly affirmed.
 
-"What I hate the most is demons, and next would be foreign gods.
+"What I hate the most is demons, and next would be sidhes.
 Both calling me either _disgusting_ or _cursed one_.
 For these guys controlling the world?
 No, thank you."
@@ -573,7 +573,7 @@ Such extraordinary weapon ca be only made by...
 
 "Then it is either work of elves or dwarves?"
 
-Demi-humans of foreign gods race, such as elves, angles and dwarves, may posses strong magic power.
+Demi-humans of sidhes race, such as elves, angles and dwarves, may posses strong magic power.
 But comparing to demons, they are not good at firing magic.
 That's why they create magic tools that hold strong power.
 If Sid's sword is too their work, then it could explain its ability to cut magic, but...

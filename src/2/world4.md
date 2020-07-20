@@ -131,7 +131,7 @@ Its roots were so deep that would be on par with height of adult.
 And its trunk were so big that would fully cover your field of vision at short distance.
 Trunk itself looked old: dry and cracked, and tree's roots were starting to wither at their ends.
 Despite that leafs looked freshly and vividly green even now.
-The reason was that these ancient trees were homes to foreign gods since ancient times.
+The reason was that these ancient trees were homes to sidhes since ancient times.
 
 "Elves and angels are always emitting small amount of magic power.
 And since it continued like that for many hundred years, these trees grew big like that.
@@ -185,7 +185,7 @@ But, that's not a rescue operation. First we'll have to confirm his current situ
 _TL Note:_ You know, I think there is no need to save some retard like Dante...
 
 There can be no rescue operation until <ruby>emperor's<rt>Dante</rt></ruby> condition will determined.
-Whether he lost in forest, or have been caught by foreign gods, or maybe killed together with all of his people.
+Whether he lost in forest, or have been caught by sidhes, or maybe killed together with all of his people.
 There were a lot possible scenarios to consider.
 So their first goal was to confirm what happened.
 
@@ -277,7 +277,7 @@ All the while carefully looking at ancient trees.
 
 "Still it is quite strange, she looks exactly like human."
 
-There was single question that they had about Commander's aide Qubiley - does she belong to foreign gods races?
+There was single question that they had about Commander's aide Qubiley - does she belong to sidhes races?
 When Rinne saw Qubiley first time, she had some suspicions.
 Elven feature was their long ears, and angels could be recognized by their wings.
 Dwarf's skin is like a solid rock.
@@ -292,7 +292,7 @@ There are lot of people around, so I wasn't not very confident."
 "One more thing, Rinne, you said that you felt magic power from Commander's aide?"
 
 "Yup, very weak magic power.
-But foreign gods should have holders of far superior magic power, so I think she's the weakest among elves."
+But sidhes should have holders of far superior magic power, so I think she's the weakest among elves."
 
 Was <ruby>commander's aide<rt>Qubiley</rt></ruby> a elf?
 Cutting own ears, and disguising both her smell and skin.
@@ -345,7 +345,7 @@ With serious face Rinne started to look around as if to show what she mean.
 
 "You know this forest is completely filled with weak magic power.
 Most likely it belongs to elves, drawfs and fairies.
-So what I mean is that I can only understand that there are foreign gods."
+So what I mean is that I can only understand that there are sidhes."
 
 "Finding someone in particular will be difficult?"
 
@@ -385,7 +385,7 @@ On the tree's trunk was floating magic circle, which was shining with faint whit
 
 _Demons magic had purple colour._
 
-_So this white belongs to foreign gods._
+_So this white belongs to sidhes._
 
 Magic circle was flashing again and again.
 Regardless how long they waited, it wouldn't activate.
@@ -508,7 +508,7 @@ Rinne, are there any traps on this road?"
 
 Rinne followed road, entangled by trees roots.
 The sweet scent of forest was so strong that it was almost chocking.
-Ground and hundreds of various plants completely covered the area, but Rinne's sense of smell would still be able to spot foreign gods.
+Ground and hundreds of various plants completely covered the area, but Rinne's sense of smell would still be able to spot sidhes.
 
 "Ah."
 
@@ -523,7 +523,7 @@ And complexity of its patterns was on entirely different level.
 As soon as he saw it, Kai remembered something similar from MDA's records.
 
 "[<span title="jp. 審門 I'm not sure how to translate it">Judgement gate</span>].
-It is teleportation device of foreign gods...!"
+It is teleportation device of sidhes...!"
 
 "I remember it from Urza.
 Demons were using teleportation.
@@ -535,7 +535,7 @@ And then she carefully placed  her foot on it, but nothing changed in the light 
 
 _TL Note:_ I'm not sure it is actually good idea to test it yourself, Jeanne...
 
-"As I thought it is only usable by foreign gods.
+"As I thought it is only usable by sidhes.
 Most likely it leads to elven den, so it would be great if we were able to activate it."
 
 Jeanne sighed.
@@ -551,13 +551,13 @@ But both were already wrapped into the light.
 And then it expanded towards Kai and Rinne.
 Up until it covered even Saki and Ashlan.
 
-_What is meaning of this? It is supposed to be activated by foreign gods only._
+_What is meaning of this? It is supposed to be activated by sidhes only._
 
 _There are none here and yet... Ah I see!_
 
 It was Rinne.
 He met a gaze of confused Rinne.
-Her body has foreign gods <span title="jp. 因子 it might sound strange, but I decided to leave it as it is.">factor</span>.
+Her body has sidhes <span title="jp. 因子 it might sound strange, but I decided to leave it as it is.">factor</span>.
 But who would expect that it would catch even Rinne by surprise.
 
 "Kai!"
@@ -605,7 +605,7 @@ But then brushes shook at the same time.
 
 "Oh, what a pretty butterfly! Wait, wait, become Silk's friend!"
 
-The one who jumped out of brushes was small person of foreign gods.
+The one who jumped out of brushes was small person of sidhes.
 With big golden eyes, gradient hair that changed from fluorescent green to light pink and height around Kai's waist.
 She was wearing sorceress like long robe and hat, almost like out of fairy tail.
 
@@ -680,7 +680,7 @@ There was beautiful woman with long light hair.
 The one who was supposed to be lost alongside <ruby>emperor<rt>Dante</rt></ruby>, Commander's aide Qubiley.
 But now she was walking out of two ancient trees.
 
-"I'm glad to see you're safe and sound, Commander's aide. No, should I say foreign gods spy?"
+"I'm glad to see you're safe and sound, Commander's aide. No, should I say sidhes spy?"
 
 "Qubiley will suffice, paladin Jeanne."
 
@@ -762,7 +762,7 @@ Saki and Ashlan became speechless in amazement.
 Rinne raised a question to voice her doubts.
 
 "Are you going to betray your race?
-Aren't bonds within foreign gods supposed to be strong?"
+Aren't bonds within sidhes supposed to be strong?"
 
 "Angels already betrayed <ruby>us<rt>elves</rt></ruby>."
 
@@ -775,7 +775,7 @@ And she squeezed her next words from her tightened lips.
 <br>
 
 Elven hidden village.
-It was place where foreign gods were living and the only thing that was known about it is that it is not present on mankind maps.
+It was place where sidhes were living and the only thing that was known about it is that it is not present on mankind maps.
 In short it was [unexplored region] for humans.
 
 "It is first time for humans entering this village.
@@ -839,9 +839,9 @@ The elven girl, who has been introduced by Qubiley, sighed.
 
 _This prideful attitude..._
 
-_Fits image of foreign gods._
+_Fits image of sidhes._
 
-If demons were known for their love for battles, foreign gods were known for their high pride.
+If demons were known for their love for battles, sidhes were known for their high pride.
 But, once you put it into perspective.
 Someone like that who speak frankly is far easier to deal with than for example Qubiley who pretends to be human with her beautiful smile.
 
@@ -868,14 +868,14 @@ There were several hundreds of them, carefully listening to conversation between
 Shrine maiden took a seat on big leaf that was laying out.
 
 "Heaven lord has changed.
-Once such calm and strong person, who illuminated the path for foreign gods like a sun..."
+Once such calm and strong person, who illuminated the path for sidhes like a sun..."
 
 "Elves are no longer necessary to him?"
 
 "The same about dwarves and fairies.
 We are beneath angels."
 
-Foreign gods were consisting of four races.
+Sidhes were consisting of four races.
 And everything went wrong once Heaven Lord Alfreyja suddenly declared that they are not equals, but beneath angels.
 
 "Of course it was unacceptable.
@@ -1125,7 +1125,7 @@ In worst case scenario they'll have to fight Angel's leader Alfreyja.
 There was no necessity to fight, and even risking own head with such deal.
 But right now he didn't hear Reiren's muttering something like that. _TL Note:_ `だが今のレーレーンの呟きはそう聞こえなかった` I'm a bit unsure here as it is kinda hard to grasp, whether it supposed to mean that Kai kept his thoughts about Alfreyja to himself, or whether she didn't mention it.
 
-"And I heard you hold hopes for us to defeat foreign gods hero."
+"And I heard you hold hopes for us to defeat sidhes hero."
 
 "I'll give a warning to thou."
 
@@ -1149,7 +1149,7 @@ Understand this much."
 
 "I understand that much. In first place I had no intention of fighting together."
 
-If elves are to attack angel palace, then foreign gods will descend into civil war.
+If elves are to attack angel palace, then sidhes will descend into civil war.
 That was the reason why Reiren wasn't planning to participate in battle.
 Moreover, the same could be said about dwarves and fairies.
 If heaven lord Alfreyja wrath would fall onto elves, two other races had no reason to incur angels wrath.
@@ -1197,7 +1197,7 @@ What are you intending to do?"
 The elven girl who was serious until now, looked back at him with a grin.
 
 "This strategy of our is itself a treason against angels.
-Are thee perhaps worrying whether I have ambition to become foreign gods hero once Alfreyja shall be slain by thee?"
+Are thee perhaps worrying whether I have ambition to become sidhes hero once Alfreyja shall be slain by thee?"
 
 "Yeah, after all you're cunning."
 
@@ -1223,9 +1223,9 @@ Kai was waiting to make sure he is alone.
 
 Kai looked at the sky above.
 As for other races, demon hero Vanessa knew about Sid.
-And so it made Kai wonder about foreign gods.
+And so it made Kai wonder about sidhes.
 If elven shrine maiden knew nothing then likely the same could be said about rest of elves.
-But it might be different for foreign gods hero.
+But it might be different for sidhes hero.
 
 [He predicted that some strange phenomena is going to happen with world.]
 
@@ -1241,7 +1241,7 @@ _That makes Alfreyja a prime suspect._
 _TL Note:_ Personally I think Kai is too optimistic about it.
 
 Changing to results of Great War in true world.
-And then drawing a scenario where angels decided to dominated other races among foreign gods.
+And then drawing a scenario where angels decided to dominated other races among sidhes.
 So far he could understand
 But...
 

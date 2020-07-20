@@ -6,7 +6,7 @@ The reason for it to be assumption is quite simple.
 It was one of [unexplored regions] which humans are yet to step on and investigate.
 Taking as example world's largest forest <span title="jp. シィエル・ミリ">Ciel Mir</span>, humanity only investigate at most 20% of it.
 There are even reports indicating that there dozens of undiscovered animals, insects and plants.
-And this gigantic sea of trees is current domain of Foreign gods.
+And this gigantic sea of trees is current domain of Sidhes.
 
 "Angels built themself palace above clouds,
 Fairies set up themself a village near beautiful lake,
@@ -16,7 +16,7 @@ Well that's what I heard though."
 Said Ashlan, while trying to recall it.
 As they were driving through ruins of small buildings, the car had to slow down to avoid damaging wheels from all of the rubble lying down.
 
-"In fact, foreign gods doesn't seem to like human cities.
+"In fact, sidhes doesn't seem to like human cities.
 Contrary to demons, they do not live in human settlements at all."
 
 "I heard there are not many guards around... I hope it is actually true."
@@ -33,13 +33,13 @@ Said Kai who looked ahead through front window, while trying to calm down Saki, 
 "...Uh."
 
 "I haven't saw real thing yet, but are they so alike?
-I mean foreign gods and humans appearances."
+I mean sidhes and humans appearances."
 
 "Ah, yup, might be alike."
 
 Rinne, who was by Saki side, interjected.
 
-"Since they hold magic power, they have completely different scent, so foreign gods can easily recognize humans.
+"Since they hold magic power, they have completely different scent, so sidhes can easily recognize humans.
 But for humans it might be easy to mistake them for their own."
 
 "And in reality there were such cases of accidental shooting."
@@ -61,7 +61,7 @@ But I find it impossible to translate, so I'll be just noting it down for conven
 
 Io Federation outskirts.
 There was 8 ward Cassiopeia hold industrial area.
-Before humanity have been defeated by foreign gods and had to withdraw, there were factories that produces the newest weaponry.
+Before humanity have been defeated by sidhes and had to withdraw, there were factories that produces the newest weaponry.
 And Io Resistance HQ was within depths of this ward.
 
 [Stop] - came Jeanne's order.
@@ -71,7 +71,7 @@ One by one cars started to stop, not in the building shadow, but in the middle o
 "Is that really ok? Stopping at place where we're so easy to be spotted..."
 
 "Right, if it would be demons they'd destroyed us alongside ruins, no questions asked.
-I hope foreign gods are not here."
+I hope sidhes are not here."
 
 Both Saki and Ashlan were looking around in worry.
 For these two who grew up in underground city in constant battles with demons, it was unthinkable to leave cars in broad day.
@@ -132,16 +132,16 @@ Yet unknown plants were flourishing through buildings and ground.
 
 "I see now. These are... Plants from elven forest...!"
 
-Foreign gods lived in forests, and they disliked buildings made by humans.
+Sidhes lived in forests, and they disliked buildings made by humans.
 So one would wonder how they would expand their territories.
 Just by covering it completely in forest.
 
-Humans of Io Federation lost to foreign gods.
+Humans of Io Federation lost to sidhes.
 But contrarily to demons, they didn't immediately move into abandoned by humans cities.
-Instead foreign gods started planting there their forest.
+Instead sidhes started planting there their forest.
 There is no need to stand watch, they could just wait until city will be consumed by forest.
 
-"And so it will become foreign gods habitant..."
+"And so it will become sidhes habitant..."
 
 "That's right."
 
@@ -246,9 +246,9 @@ On other hand, Rinne, still not understanding the whole situation, was in the mi
 "Even though Kai and me would be more than enough..."
 
 "We still do not know situation.
-Moreover we do not know location of foreign gods hero, so we have to gather information."
+Moreover we do not know location of sidhes hero, so we have to gather information."
 
-Foreign gods hero [Heaven Lord] Alfreyja...
+Sidhes hero [Heaven Lord] Alfreyja...
 Covered in multiple layered barriers, owner of so-called divine protection.
 Known as [Unsinkable angel].
 This was formidable enemy, who people says was able receive direct hit from Io Federation most powerful artillery without a single scratch.
@@ -304,7 +304,7 @@ Jeanne frown.
 He looked at the second floor of hospital, covered in greenery, and sighed.
 
 "Our general loath this scenery quite a lot.
-After all this is what foreign god wishes.
+After all this is what sidhe wishes.
 Headquarters, which we could call our home, are being polluted this way."
 
 Then he started to walk once again.
@@ -475,7 +475,7 @@ Despite that, Jeanne hold herself and shook her head.
 Without even letting me know."
 
 "If <span title="Jeanne uses here and below 貴官 which is very respectful pronoun you for when you talk to someone with rank">you</span> suggest... No, let us stop the pointless quarrel.
-We are ready to fight together with you against foreign gods.
+We are ready to fight together with you against sidhes.
 And I'm sure it is not your desire to let them retain their control over this country, right?"
 
 "Of course."
@@ -489,7 +489,7 @@ He was clearly irritated by Jeanne not responding to obvious provocation.
 
 "Advice, to me?"
 
-"Suppose we defeat foreign gods and take back Io Federation.
+"Suppose we defeat sidhes and take back Io Federation.
 Then whose achievement it is going to be?
 That's not for me or you to decide.
 This will be decided by our soldiers and people who witness the struggle."
@@ -532,7 +532,7 @@ _TL Note_: She is either saint or spy, cannot really imagine any other reason fo
 "If you have any requests, please let us know through Resistance <span title="jp. 通信・連絡部門, I don't exactly get this one">communication department</span>.
 And if you have business with His Majesty, I'd be happy if you'd come to me first."
 
-"Understood. Then I'd like us to start discussing state of affairs in our conflict with foreign gods..."
+"Understood. Then I'd like us to start discussing state of affairs in our conflict with sidhes..."
 
 "This is your job, Tsekhman."
 
@@ -609,7 +609,7 @@ It is smaller, comparing to the gun you got, Ashlan, and instead it is designed 
 
 It could be due to difference between the enemies they had to face.
 Demons got gargoyles with thick skin.
-On other hand foreign gods got only bodies made out of flesh, which is not very tough.
+On other hand sidhes got only bodies made out of flesh, which is not very tough.
 Therefore, even lower caliber would work against them.
 
 _Still elven spirit garments and angel barriers would be troublesome._
@@ -633,7 +633,7 @@ And he also participated in daily strategy meeting."
 
 They only just met recently, but Kai already got impression that at his core, staff officer was both strong and intelligent soldier.
 
-"He shared information on front with foreign gods and their army preparations, without trying to hide anything.
+"He shared information on front with sidhes and their army preparations, without trying to hide anything.
 Staff officer... I think he actually was really looking forward for Jeanne's assistance."
 
 "Staff officer you say?"
@@ -789,7 +789,7 @@ If staff officer Tsekhman shall become responsible for army's tactics, then Io s
 Farin answered with all seriousness.
 
 "For Dante, the most important thing is his own skin.
-He might be their Commander, but he had zero battle experience against foreign gods.
+He might be their Commander, but he had zero battle experience against sidhes.
 He is only giving off mark orders from his headquarters and his subordinates are quite tired of that situation."
 
 "I can imagine."
@@ -799,7 +799,7 @@ He is only giving off mark orders from his headquarters and his subordinates are
 Female warrior stood up, and left the stabbed sword as it is.
 
 "As for tomorrow Jeanne-sama decided to head to elven forest.
-She is planning to explore the forest which became nest to foreign gods."
+She is planning to explore the forest which became nest to sidhes."
 
 "Understood. Then me and Rinne..."
 
@@ -819,11 +819,11 @@ For Kai it was first time seeing such gesture from her.
 
 "Then you're going to stay at base too?"
 
-"If Jeanne-sama will not return from the forest, I'm going to burn it all down and cut down remaining foreign gods.
+"If Jeanne-sama will not return from the forest, I'm going to burn it all down and cut down remaining sidhes.
 I'm already resolved to it."
 
 Farin turned around and he could see her profile.
-Her strong will to destroy the foreign gods were coming from absolute loyalty to the master.
+Her strong will to destroy the sidhes were coming from absolute loyalty to the master.
 Before Kai could say anything Urza's strongest warrior already returned back.
 
 ---
@@ -873,7 +873,7 @@ She slowly raised her head.
 
 "And how do I look like?"
 
-"As Jeanne left for reconnaissance into foreign gods territory, she came back hour later which made you worried."
+"As Jeanne left for reconnaissance into sidhes territory, she came back hour later which made you worried."
 
 "I'll lecture Jeanne-sama later on."
 
@@ -892,7 +892,7 @@ The only one who would remain calm, when so many soldiers were eagerly stomping 
 
 "Once we'll finish preparations.
 It was easy to attack Vanessa since she was staying in capital.
-But it will be different with foreign gods."
+But it will be different with sidhes."
 
 Elven forest, dwarves hamlet, fairies hideout and angels garden.
 All of these were unknown territories to humans.
@@ -920,7 +920,7 @@ I ignored since it is unpleasant, but should I've told earlier?"
 "...No, I think it is fine to pretend that you didn't notice."
 
 He shook his head in response to Rinne.
-Right now Io Resistance cooperation was necessary for them in order to fight foreign gods.
+Right now Io Resistance cooperation was necessary for them in order to fight sidhes.
 So he wanted to avoid instigating that man by prying too much into him.
 
 "Well then, Rinne, I'll be back soon, so wait for me."
@@ -941,7 +941,7 @@ The reason why he was looking through small window like that was because he was 
 
 In the place he was looking at, more than hundred soldiers gathered around figure of young knight.
 Who just returned from elven forest...
-Which was south of 8th ward Cassiopeia and became a home to foreign gods.
+Which was south of 8th ward Cassiopeia and became a home to sidhes.
 
 "Going to scout in such place? Even though no knows just what kind of traps are awaiting there...!"
 
@@ -1243,7 +1243,7 @@ My soldiers loyalty is already started bending towards that Commander."
 "...T-that...!"
 
 "It is annoying, but surely if I'll face battlefield myself, you'll admit me.
-I'm going to head to where foreign gods are."
+I'm going to head to where sidhes are."
 
 "..."
 

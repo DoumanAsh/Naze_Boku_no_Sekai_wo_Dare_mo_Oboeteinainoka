@@ -131,7 +131,7 @@ In the true world, Ciel Mir forest doesn't exist.
 
 It was burned down completely.
 During the Great War majority of the forest was burned in battles.
-Moreover, with the disappearance of the foreign gods who were managing the forest, the ecosystem had gotten wrecked.
+Moreover, with the disappearance of the sidhes who were managing the forest, the ecosystem had gotten wrecked.
 
 In the true world there was no longer any forest.
 
@@ -171,7 +171,7 @@ She(Jeanne) understood the anxiety and fears of her subordinates, who were chall
 
 Reiren gave a prompt response.
 
-"In the first place, if the forest were actually so dangerous, the foreign gods wouldn't even approach it.
+"In the first place, if the forest were actually so dangerous, the sidhes wouldn't even approach it.
 But oh well, thee can leave it to me.
 Even I have no desire to get myself killed after all.
 So I'm going to choose the safest route."
@@ -345,7 +345,7 @@ There is certainly no living being like that in this forest."
 
 Elven shrine maiden spread her hands.
 
-"This land belongs to foreign gods.
+"This land belongs to sidhes.
 We're in the east of great continent, while cryptids like dragons reside in the west.
 They are on completely opposite sides of the continent."
 
@@ -373,13 +373,13 @@ Cannot say which kind, but I'm certain it is not a dragon."
 "...Truly?"
 
 The elf became speechless.
-This meant that a giant cryptid was able to trespass onto their, foreign gods', territory.
+This meant that a giant cryptid was able to trespass onto their, sidhes', territory.
 It was analogous to what humans would call burglars breaking into their house.
 
 "Then what about this cryptid's size!?
 If such a thing were to cross the border, the angels would have definitely noticed it!"
 
-Among the foreign gods who lived in the forest were elves, dwarves and fairies.
+Among the sidhes who lived in the forest were elves, dwarves and fairies.
 On the other hand angels, who lived in their sky palaces, watched over the Io territory from the sky.
 For Reiren it was obvious to place faith in their watch.
 
@@ -561,12 +561,12 @@ And if Rinne is with her then she will not be able to pull any tricks that easil
 This was inevitable.
 Jeanne's worry was also in line with Reiren's own words from a few moments ago.
 
-[Foreign gods keep their promises.]
+[Sidhes keep their promises.]
 
 So they would abide by their one year truce agreement, and Reiren was sent to accompany them for that purpose.
 This is what the elven elder told them, but Kai couldn't trust these words completely.
 
-_From the foreign gods' point of view, humans are just inferior._
+_From the sidhes' point of view, humans are just inferior._
 
 _So do they even intend to keep their promise with such humans... Jeanne's concern is natural._
 
@@ -650,7 +650,7 @@ But she meant not the grey armour itself, but rather what was under it.
 The thin silk that was covering her skin.
 It was the elven battle attire - clothes which emitted faint light, which made Jeanne a [Light Knight]
 
-_I knew that it was one of the greatest treasures that got stolen from foreign gods and holds resistance against magic._
+_I knew that it was one of the greatest treasures that got stolen from sidhes and holds resistance against magic._
 
 _But I didn't really give it much thought actually._
 
@@ -885,7 +885,7 @@ It is called [Magic bloodline]. _TL Note_ `法力血界系` Maybe need a better 
 
 _ED Note:_ Please sensei, the Chuuni is overflowing day by day! :D
 
-In their case, the magic producing organs also possessed by demons and foreign gods, were small blood veins.
+In their case, the magic producing organs also possessed by demons and sidhes, were small blood veins.
 And this was the most prominent feature of the cryptid race.
 
 "There is a dull glitter from the red vein on his forehead."
@@ -1169,7 +1169,7 @@ The elven shrine maiden placed both of her hands onto the trunk of a large tree.
 There was a small magic circle, which could be used to activate a teleportation trap.
 
 "Where does thou think it is?
-This is the foreign gods' domain."
+This is the sidhes' domain."
 
 This was the elven trap which had entrapped emperor Dante before.
 The magic circle under the Behemoth's feet, slowly started to emerge.
@@ -1414,7 +1414,7 @@ Several of these could be found in the true world too."
 
 During the aftermath of the great war, when humans had started to reclaim territories previously owned by the four races, they had discovered mysterious ruins, evidently man-made.
 
-"In most cases scientists believed it to be a work of foreign gods and leftovers of curses.
+"In most cases scientists believed it to be a work of sidhes and leftovers of curses.
 Still, a lot of unknown factors remain.
 Rinne, you should know about it too."
 
@@ -1498,10 +1498,10 @@ Think about it, you're day-dreaming."
 
 In all actuality both Jeanne and Farin had stopped when they heard the voice.
 
-Humans were hearing it, while the foreign god was unable to.
+Humans were hearing it, while the sidhe was unable to.
 
 Which led to an obvious question.
-How about the person carrying the blood of both humans and foreign gods?
+How about the person carrying the blood of both humans and sidhes?
 Could she hear that voice too...
 
 "Rinne. Listen, did..."
@@ -2084,7 +2084,7 @@ _I guess it would be better not to talk with Reiren about what happened inside._
 _It's not a topic to discuss with other races._
 
 Meeting one of the gods that govern the fate.
-Reiren, who belonged to foreign gods, was unable to hear the voice that they had heard from the statue.
+Reiren, who belonged to sidhes, was unable to hear the voice that they had heard from the statue.
 
 Moreover, the content of what they just discussed wasn't something that one would find easy to believe.
 

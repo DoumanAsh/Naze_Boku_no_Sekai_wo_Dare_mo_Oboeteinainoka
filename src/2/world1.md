@@ -174,7 +174,7 @@ Or at least that's what supposed to be.
 
 Hero [Dark Empress] Vanessa who leads, demon race, wielders of powerful magic.
 
-Hero [Heaven Lord] Alfreyja who leads foreign gods, composed of angels and elves.
+Hero [Heaven Lord] Alfreyja who leads sidhes, composed of angels and elves.
 
 Hero [Spirit Sovereign] Rikugen Kyouko who leads spirits, very peculiar creatures like ghosts.
 
@@ -317,7 +317,7 @@ And since then they hid in so-called Human Cities in order to live.
 
 _And this is world-wide phenomena._
 
-_Not only demons, but also foreign gods, cryptids and even spirits took away human cities._
+_Not only demons, but also sidhes, cryptids and even spirits took away human cities._
 
 But with defeat of demon hero Vanessa situation changed.
 Now, demons are escaping from this capital.
@@ -835,7 +835,7 @@ Succubus narrowed down her eyes as if delighted.
 "Ah, right right, just wanted to instigate you a bit: we'd welcome you fighting against other 3 races.
 In fact, I'd say we even support you."
 
-"With foreign gods, cryptids and spirits...?"
+"With sidhes, cryptids and spirits...?"
 
 "You are anyway planning to do so, right?
 Humans here only took away one small capital.
@@ -954,7 +954,7 @@ Well, it is fine, one day I'll just take it by force."
 Demoness ascended to rooftop with her wings.
 
 "But since you picked my interested I'll give you advice.
-If you're going to foreign gods dominion, then beware of Heaven Lord Alfreyja.
+If you're going to sidhes dominion, then beware of Heaven Lord Alfreyja.
 I heard that guy was behaving weirdly recently."
 
 "...What do you mean?"
@@ -1235,7 +1235,7 @@ These four were leading their respective races, which made humanity afraid.
 
 Demon hero [Dark Empress Vanessa].
 
-Foreign god [Heaven Lord Alfreyja].
+Sidhe [Heaven Lord Alfreyja].
 
 Cryptid hero [Fang King Rath=IE].
 
@@ -1536,7 +1536,7 @@ That was carried enough strength so that even Rinne's mouth became stiff.
 
 _TL Note:_ This is a bit confusing, maybe need to rethink it `重圧感を湛えた女戦士の宣告。リンネさえ口元を引き締めるほどに、その声には有無を言わさぬ力があった。`
 
-"Foreign gods are different from demons, I suspect you know."
+"Sidhes are different from demons, I suspect you know."
 
 "...Yeah."
 
@@ -1544,7 +1544,7 @@ _TL Note:_ This is a bit confusing, maybe need to rethink it `重圧感を湛え
 They use traps, decoys, ambushes.
 And then use far stronger weapons - magic tools."
 
-If demons are [monsters] for humans then foreign gods would be a [<span title="jp. 上位互換 This is a bit unclear but I think author mean in it in a sense that humans are just downgrade version">higher tier</span>].
+If demons are [monsters] for humans then sidhes would be a [<span title="jp. 上位互換 This is a bit unclear but I think author mean in it in a sense that humans are just downgrade version">higher tier</span>].
 It seems that will be completely different battlefield comparing to the one in Urza Federation.
 
 "I'd like you to be in your best possible condition.

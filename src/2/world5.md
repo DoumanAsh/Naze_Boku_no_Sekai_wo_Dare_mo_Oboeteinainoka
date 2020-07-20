@@ -260,7 +260,7 @@ _TL  Note:_ `こう見えて鍛えておるわ` I think author shortened last se
 
 Elf said with a smug.
 Even though she was speaking, her speed never dropped down as they were crossing angel palace main gate.
-Then foreign gods girl jumped into opened window in palace wall.
+Then sidhes girl jumped into opened window in palace wall.
 The window had no glass to it.
 Most likely it was just a [hole] to let in wind and sunlight.
 
@@ -279,7 +279,7 @@ _TL Notes:_ Seems a strange countermeasure to be honest, but that's is written b
 
 "But then we'd be troubled. Dwarves, fairies and elves do not possess wings."
 
-Among foreign gods were their comrades who walked ground.
+Among sidhes were their comrades who walked ground.
 For their sake Heaven Lord Alfreyja prepared special pathway.
 And right now through exactly such pathway Reiren was running.
 
@@ -354,7 +354,7 @@ And the one who shouted in surprise were Saki and Ashlan, who were in the end of
 
 "It is just process of elimination.
 This fortress is highly difficult to invade from outside.
-Only their comrades foreign gods can enter: elves, dwarves, fairies.
+Only their comrades sidhes can enter: elves, dwarves, fairies.
 And if they are not perpetrators, then the only possible answer is angels themself."
 
 "..."
@@ -365,7 +365,7 @@ Elf remained silent as she crossed past gigantic 4 meters tall door and continue
 
 _TL Note:_ I'm a bit unsure what author means by `大きく右に曲がる通路` to be honest
 
-"Alfreyja required submission out of others among foreign gods, right?"
+"Alfreyja required submission out of others among sidhes, right?"
 
 "...That's right."
 
@@ -412,7 +412,7 @@ It blown off in front of light that shined through the ceiling.
 It's white surface collapsed.
 And from there massive winds down poured onto altar, smashing it into pieces.
 Remaining strength of wind scattered against all surrounding walls.
-It affected not only Kai and other humans, but even Reiren who was supposed to belong to foreign gods.
+It affected not only Kai and other humans, but even Reiren who was supposed to belong to sidhes.
 
 "Argh...!"
 
@@ -421,7 +421,7 @@ As her hood was lifted, both her face and beautiful hair were exposed.
 
 "Oh dear? My my, My my." _TL Note:_ It is ara-ara type of girl.
 
-From broken ceiling, winged foreign god has descended.
+From broken ceiling, winged sidhe has descended.
 It was angel with four wings.
 Beautiful female angel with cold grey eyes and wavy hair of flax colour.
 In her hand was battle axe, clearly not suitable for such delicate arms.
@@ -488,7 +488,7 @@ After all there was no mistake to Alfreyja-sama's judgement."
 
 Angel, with battle axe in her hands, flapped her wings.
 
-"Angles stand atop of foreign gods.
+"Angles stand atop of sidhes.
 Every other race are nothing more but a slave.
 If you're going to defy us...
 Then I shall eliminate you with my own hands!"
@@ -590,7 +590,7 @@ It wouldn't be strange for angels to hide themself behind these gigantic pillars
 "If thee are asking about angels who are loyal to Alfreyja, then the answer is [all].
 Among angels in angel palace everyone hold respect for Alfreyja."
 
-On other hand, foreign god already inflicted punishment upon such subordinates.
+On other hand, sidhe already inflicted punishment upon such subordinates.
 And cruelly thrown them out into courtyard.
 
 "If among these who we still haven't saw, then that would be archangel Raphael."
@@ -660,7 +660,7 @@ I entered through it once."
 
 Tightly grasped her silver sword, commander of Urza Resistance stepped forward.
 
-"Let us challenge the foreign gods hero."
+"Let us challenge the sidhes hero."
 
 "...Who would think it would come to this."
 
@@ -738,7 +738,7 @@ He was trying to yell something, but the coffin let no sound escape.
 
 The elven girl roared.
 
-"Scum like thee has no qualification to lead the foreign gods.
+"Scum like thee has no qualification to lead the sidhes.
 Neither elves, dwarves, fairies or angles.
 And now I shall be the one to deliver thy ending."
 
@@ -946,10 +946,10 @@ You should know that pretty well."
 The lighting disappeared.
 Although she fell to her knees, the knight gritted her teeth to keep her consciousness.
 
-"Foreign gods hero uses magic as source of power.
+"Sidhes hero uses magic as source of power.
 As long as you're using a magic tool, this spirit garment makes for the best counter measure against angels."
 
-Since this equipment belongs to foreign gods, angels took no measures against it.
+Since this equipment belongs to sidhes, angels took no measures against it.
 Originally it was impossible to think of angels and elves fighting against each other.
 
 "Weakling, to whom are you saying it."
@@ -1079,7 +1079,7 @@ _Certainly, it seems absurd._
 
 _Just how much magic power this angel holds to carry on like that_
 
-For foreign gods the organ that produces magic power, is not capable of invoking magic directly.
+For sidhes the organ that produces magic power, is not capable of invoking magic directly.
 Therefore they have to make magic tools to serve as their weapons, that are capable of creating pseudo magic spells.
 
 "The efficiency of magic tools is hardly high.
@@ -1144,7 +1144,7 @@ Or maybe that angel was indeed the culprit behind it, whom Vanessa mentioned abo
 
 "What are you talking about?"
 
-In response the foreign gods hero returned a dubious look.
+In response the sidhes hero returned a dubious look.
 
 "This is my new power. And world reincarnation? What is it?"
 
@@ -1193,7 +1193,7 @@ Trespasser, who are you?"
 "..."
 
 On Rinne's back were tenma wings.
-The archangel already understood that Rinne's body held factors of multiple races, including foreign gods and demons.
+The archangel already understood that Rinne's body held factors of multiple races, including sidhes and demons.
 
 "Archangel Raphael."
 
@@ -1360,7 +1360,7 @@ They could only go ahead, while she was preparing to answer, she didn't take her
 "I fought and lost. That is all."
 
 "Which means you let us go.
-And what if as result, the foreign gods hero gets defeated?"
+And what if as result, the sidhes hero gets defeated?"
 
 "..."
 
@@ -1370,7 +1370,7 @@ But that was only for a moment.
 "I doubt it is possible for humans...
 But, even if by some miracle it does happen, it will be result of Alfreyja-sama's own will."
 
-For the foreign gods alliance to collapse due to internal strife would be the worst possible scenario.
+For the sidhes alliance to collapse due to internal strife would be the worst possible scenario.
 Compared to that, even if Heaven lord Alfreyja would fall, there will be hope to revive their races' alliance.
 This was the bitter result of discussion among close aides of Alfreyja.
 
@@ -1391,7 +1391,7 @@ The beautiful female angel fixed her gaze above at the ceiling with fear in her 
 
 -------------------------------------------------------------------------------
 
-[Unforeseen state of 'shock' is detected in foreign gods hero.
+[Unforeseen state of 'shock' is detected in sidhes hero.
 Estimated to be the effect of prohibited word 'Sid'.]
 
 [Executing 'Zero Code']
@@ -1446,7 +1446,7 @@ And due to that he lost any chance of counterattack.
 [...]
 
 At last the ragged doll figure sinked into the black hole like a bottomless swamp, and disappeared.
-Same as how the foreign gods hero had disappeared.
+Same as how the sidhes hero had disappeared.
 
 _Alfreyja vanished._
 
@@ -1472,7 +1472,7 @@ While his heavenly garments were somewhat rugged, most likely due to Zero Code, 
 "Wait, Reiren!"
 
 The angel looked strange.
-Jeanne, who noticed strangeness in the foreign god's hero, stopped elf.
+Jeanne, who noticed strangeness in the sidhe's hero, stopped elf.
 
 "Look at his wings.
 It looks to me like the feathers are falling over..."
@@ -1484,7 +1484,7 @@ Just like leaves falling off a tree.
 Just like muscles disappearing from a strong body.
 The wings, which lost all feathers, which were beautifully white, faded...
 
-[I'm Alfreyja reincarnation. Now resuming the role of foreign gods hero.]
+[I'm Alfreyja reincarnation. Now resuming the role of sidhes hero.]
 
 In the angel's eyes there was no longer any light of consciousness.
 The wings, from which the feathers fell off, became a mere shadow of itself.
@@ -1520,7 +1520,7 @@ He spread both of his hands and looked up.
 He used his hands as if to replace the no longer moving wings.
 
 [Everyone except me.
-First I ought burn down all corrupted foreign gods who walk the ground.]
+First I ought burn down all corrupted sidhes who walk the ground.]
 
 It was the declaration of war.
-It was the announcement of complete [genocide] of all foreign gods from the fallen angel Alfreyja.
+It was the announcement of complete [genocide] of all sidhes from the fallen angel Alfreyja.
