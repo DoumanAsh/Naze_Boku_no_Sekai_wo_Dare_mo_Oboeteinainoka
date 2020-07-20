@@ -2,7 +2,7 @@
 
 The stronghold Ruin S Fulham.
 
-By its walls twenty military cars departed towards the western part of the country.
+From its walls twenty military cars departed towards the western part of the country.
 Mixed force of Urza and Yurun resistance armies...
 
 Hundred people in total.
@@ -17,21 +17,21 @@ Hearty voice of the Lion King Balmung echoed throught Kai's car at a very loud v
 "So noisy!"
 
 Reiren screamed.
-For elves, who possessed many fold sharper hearing than humans, it would seem that loud voice of the Lion King was too loud.
+For elves, who possessed many fold sharper hearing than humans, it would seem that the loud voice of the Lion King was too loud.
 
 "Kai, what is this loud voice?
 Thee ought to tell that person to speak quietly!"
 
 "Radio's volume is already at its lowest though..."
 
-Besides the person in question was a such giant.
+Besides the person in question was that giant.
 
 On the battlefield where you may not get a hand on radio, being able to command soldiers with your natural voice alone -
 for a commander it was one of these excellent talents.
 
 [You've been already informed about it a day before yesterday,
-this time goal of our expedition is not battle.
-We are to check on our traps for spirits.]
+this time goal of our expedition is not a battle.
+We are to check our traps for spirits.]
 
 Light trap - to lure spirits by means of artificially created light.
 
@@ -39,16 +39,16 @@ As beings that lacked organs like eyes and nose, spirits used their only organ, 
 
 It was speculated that due to <span title="jp. 走光性 is sort of reflexive behaviour for some organisms that attracts them to light/heat. Author phrases it a bit weirdly, but basically he wants to say that spirits are by nature akin to moths and plants">phototaxis</span> they are able to detect cities where humans hide, due to them being source of heat.
 
-Therefore... This small scale experiment to use this trait.
+Therefore... This small experiment was meant to use this trait of theirs.
 
 [And last thing for you members of Urza's Resistance.
 We're going to pass through the plains, aiming for the city ahead.
 That said it had been invaded dozens of years ago, now that land is just ruins.
 Spirits set up one of their nests there, likely to be used as a breeding ground.]
 
-The number of traps installed was nine.
+The number of traps to be installed was nine.
 
-Its been installed 1km, 10km and 20km from the spirits' nest.
+It was to be installed 1km, 10km and 20km from the spirits' nest.
 Furthermore each made with various amount of heat and light: strong, medium and weak - making it total of nine.
 
 _How much they prefer of light and heat?_
@@ -72,9 +72,9 @@ I mean <span title="jp. 一網打尽 Means in general catching/rounding up all o
 "I think so."
 
 "If <span title="spirits">they</span>'d learn about our trap what are we going to do?
-Next time we set the big trap, but their bunch would be cautious and avoid approaching it, then there would be <span title="jp. 元も子もねぇ This is a interesting way to say that your work would produce no profits">no meaning</span> to it."
+Next time we set a big trap, but their bunch would be cautious and avoid approaching it, then there would be <span title="jp. 元も子もねぇ This is a interesting way to say that your work would produce no profits">no meaning</span> to it."
 
-"It is fine cuz their heads, not well."
+"They are not good with their heads, it is fine."
 
 From the back seat...
 
@@ -97,14 +97,14 @@ What makes four races special is...
 Their powerful innate abilities in magic and physical strength, as well as extremely high intellectual curiosity.
 
 Naturally that includes elves, dwarves and angels.
-But high ranking demons are also capable of speaking human language,
-and even part of cryptids, like dragons, is capable of comprehending human speech.
+But high ranking demons were also capable of speaking human language,
+and even some part of cryptids, like dragons, was capable of comprehending human speech.
 
 However.
 Spirits completely lack any means of communication.
 
 Or rather one had to wonder if they even posses clear intelligence.
-Even in the true world, where the great war had ended, spirits are considered as primitive organisms that move on their instincts.
+Even in the true world, where the great war had ended, spirits were considered as primitive organisms that moved on their instincts.
 
 "Remember traps placed by foreign gods in the elven forest?
 Even if thee know about traps, whether thee would be able to avoid them is another matter."
@@ -127,12 +127,12 @@ Whether it is concrete or metal spirits can melt it and attack from there."
 
 "Stop scaring me!?"
 
-"Saki, you should probably know it too."
+"Saki, you should probably know it already."
 
 Spirits' bodies can be made of various things such as [light], [mist] or [viscous liquid],
 and by consuming own body spirit can activate special magic of equal value.
 
-Although it is know to be similar to demons' curses, Kai's first thought was Rinne's magic.
+Although it is know to be similar to demons' spells, Kai's first thought was Rinne's magic.
 The one that she used to bring down Vanessa together with herself.
 
 [This liquid is your _life_ itself.
@@ -144,21 +144,21 @@ It is going to flow until your life itself will disappear.]
 The magic that consumes the life upon its activation.
 Thinking about it now he thought that magic roots may lay in spirits' magic.
 
-_At any right spirits' magic is worrisome._
+_At any rate spirits' magic is worrisome._
 
-_It is not like demons' destrucitve magic, but rather roundabout and far harder to get read on it._
+_It is not like demons' destrucitve magic, but instead roundabout and far harder to get read on it._
 
 If it is a fire, then it is hot.
 If it is a ice, then it is chilling.
 
-From such appearance of the <span title="Art as if magic">art</span> it is hard to get read on effects of spirits' magic.
+From appearance of such spells it is hard to get read on potential effects of spirits' magic.
 
 _TL Note:_ This is somewhat weird to me, but I don't think I missed anything here.
 
 "Well, there is no need for a worry.
 After all range of spirits' magic is quite short.
 At most maybe five meters, I think?
-As long as thee is not all too close, thee shall not bask in it."
+As long as thee is not all too close, thee shall not be basked in it."
 
 "T-that's so... If so I'm relieved.
 If they get close, I can run away."
@@ -166,7 +166,7 @@ If they get close, I can run away."
 "Still there are always exceptions.
 There appears to be spirits' magic with a range over 50 meters."
 
-"I totally cannot have peace of mind!?"
+"That absolutely not going to calm me down!?"
 
 Saki's expression was becoming darker and darker as she was talking with Reiren.
 But then.
@@ -176,7 +176,7 @@ Once we cross the railroad bridge ahead, we'll be able to see our destination.]
 
 It was Lion King Balmung.
 
-[Along the southern country border lays Spirit' territory.
+[Along the southern border of the country lays Spirit' territory.
 Great waterfall Gracial Fall - This river runs down from that great waterfall.]
 
 "Isn't it a cryptids' territory."
@@ -184,14 +184,14 @@ Great waterfall Gracial Fall - This river runs down from that great waterfall.]
 In response to the Lion King's radio, Reiren whispered to herself.
 
 [While abundant with large quantities of water, it cannot be be used by humans as it comes from the nest of spirits.
-...That's to say is rather useless information.
+...That's to say right now it is rather useless information.
 We're heading towards the <span title="ruins of">city</span> as per our plan.]
 
 A great steel bridge spanned above the vigorously flowing stream.
 
 Once it was a railroad that run from the east to the south of the country,
 but now there were no trains running.
-Once passing these railway tracks, beyond...
+Once they pass these railway tracks, beyond...
 
 Was group of buildings, emitting faint light.
 
@@ -207,14 +207,14 @@ Receiving binoculars from Saki, he peered in the direction of a road ahead.
 It was similar to the spirits' nest he saw few days before.
 However, this time nest was still in use, so it was glowing with far more poisonous color.
 
-[My friends of Urza Resistance, here is your stop. Stop.]
+[My friends of Urza Resistance, here is our stop. Stop.]
 
 They were at distance where you could barely check the situation.
 
 While Kai's company's car stopped, commander Balmung's leading car together with two escorting cars carried on.
-As per plan only three cars will advance further as a scout.
+As per plan only three cars will advance further as scouts.
 
-[...Carry according to the plan.]
+[...Carry on according to the plan.]
 
 Radio switched from hearty commander's voice to cool commander's voice.
 
@@ -242,15 +242,15 @@ In the direction of the ruins where spirits' nest was.
 
 He jumped out of the car towards the Rinne.
 
-Young girl, whose hair was being shaken by winds mixed with dust, eyes were still captivated by ruins, remaining unmoved.
+Young girl's, whose hair was being shaken by winds mixed with dust, eyes were still captivated by ruins, remaining unmoved.
 
 "By nothing you mean..."
 
 "It is probably empty.
 It is not as dry as the nest we saw before, so without mistake it is been used, I think?
-But for the most part I don't feel magic power."
+But for the most part I don't feel any magic power."
 
-Kai was looking through binoculars, unable to see anything unusual aside from shining buildings alone.
+Kai was looking through binoculars, unable to see anything unusual aside from shining buildings itself.
 
 _But she is right._
 
@@ -267,42 +267,42 @@ Even if <span title="Enemy race">enemy</span> would be approaching, they wouldn'
 
 "Kai, is something wrong?'
 
-As if feeling that Kai being outside of the car means something is wrong, Jeanne dashed outside of the Cadillac One, half running.
+As if feeling that Kai being outside of the car meant that something is wrong, Jeanne dashed outside of the Cadillac One, half running.
 
 "There might be no spirits in that nest.
-Possibly it is completely empty."
+Likely it is completely empty."
 
 There was Lion King's car heading towards the ruins.
-They going to notice it soon, or maybe they already noticed it.
-The fact that any sign of spirits disappeared already from the nest ahead.
+They were going to notice it soon, or maybe they already noticed it.
+The fact that any sign of spirits in the nest ahead already disappeared.
 
 "Jeanne-sama, is something wrong?"
 
-"It is becoming a bit strange.
+"It became rather strange.
 Could they really abandon that nest?"
 
 Farin and Reiren.
-As they were peeking at the situation from within the car, one by one they headed outside.
+As they were peering at the situation from within the car, one by one they headed outside.
 
 "Shall we go and investigate that nest?
-And, isn't dangerous?
-If spirits were to lurk within building's shadow, they might severely attack."
+But, that's rather dangerous, isn't?
+If spirits were to lurk among building's shadows, they might cause a devastating attack."
 
 "...If that's the case, we cannot let Balmung-dono to go alone."
 
 Nodding in agreement to elf's words, Jeanne grasped radio tightly.
 
 "We shall head out too.
-With our combined forces investigation will be reliable."
+With our combined forces our search will be successful."
 
 -------------------------------------------------------------------------------
 
 <a href="#Part2" id="Part2" class="Bookmark"></a>
 
-Ruined capital city <span title="jp. ユングベルク">Jungberg</span>.
+Ruined capital city <span title="jp. ユングベルク">Yungberg</span>.
 During the spirits' great invasion it had fallen and was transformed into the nest.
 
-Once these 50cm thick concrete wall was a city wall, now its been scrambled without a single trace, leaving a gate alone,
+Once city wall was 50cm thick concrete wall, now its had been scrambled without a single trace, leaving a gate alone,
 covered in hyphae like shining buildings.
 
 "Are you all right, Balmung-dono?"
@@ -311,7 +311,7 @@ covered in hyphae like shining buildings.
 
 Lion King turned his head in response to Jeanne's hail.
 
-He held in his hand a <span title="jp. 大鎚 Literally big hammer">maul</span>, made of metal, likely being a weapon of Lion King's soldier.
+He held in his hand a <span title="jp. 大鎚 Literally big hammer">maul</span>, made of metal, likely being a weapon of Lion King as a soldier.
 Such heavy maul would be difficult to lift even with both hands for a delicate woman, but this man could calmly hold it with a single arm.
 
 _TL Note:_ I know it makes a little sense to use woman to compare his strength, but that's how author wrote it so...
@@ -324,8 +324,8 @@ For me, of all people, to be unable to notice it before actually approaching the
 While caressing his beard, Yurun's Resistance Commander continued with a bitter look.
 
 "It is empty.
-We're yet to make a complete check, but it is strange to not spot sign of spirits after going through a single city block.
-Even if we set the trap, there is a little sense to that without having a target to catch."
+We're yet to make a complete sweep, but it is strange to not see a single sign of spirits after going through a single city block.
+Even if we set the trap, there is a little sense to do while we are without a target to catch."
 
 "Then shall we investigate...?"
 
@@ -343,9 +343,7 @@ while two girls standing by Kai's side were looking into a complete different di
 "...Fumu. This smell."
 
 "But I don't feel any magic though?
-And smell is slightly off."
-
-_TL TODO:_ I'm a bit tired, re-check `臭いもブレてるし`, not sure why kana all of the sudden.
+And smell is <span title="jp. ブレてるし blurry, but it is rather weird to say so I changed">slightly off.</span>"
 
 "Unless we check it ourselves, we cannot know for sure.
 I'm also not well versed when it comes to spirits."
@@ -403,12 +401,12 @@ Sometimes they lurk in gaps among the rubble."
 "I see."
 
 "Upon meeting them, first distance yourself.
-'Still, saying that, you never know how <span title="battle">it</span> may turn out."
+Still, saying that, you never know how <span title="battle">it</span> may turn out."
 
-_TL TODO:_ The second sentence `とはいえ、こればかりは言ってどうにかなるものではないがな` is a bit confusing. Putting it simply it says: `advice won't help`
+_TL TODO:_ The second sentence `とはいえ、こればかりは言ってどうにかなるものではないがな` is a bit confusing. Putting it simply says: `advice won't help`
 
 With maul in his hand Balmung advanced over the main street.
-His vigilance in checking every suspicious thing, be it melted traffic lights or twisted fences, was without doubt a behaviour befitting experienced soldier.
+His vigilance in checking every suspicious thing, be it melted traffic lights or twisted fences, was without doubt a behaviour befitting of a experienced soldier.
 
 _When facing demons we wouldn't need to be so careful._
 
@@ -464,9 +462,9 @@ Indeed that was so.
 That was the reason for Balmung to be taken aback,
 and Kai was speculating on the reason of <span title="Why they left traces">that</span>.
 
-_To live traces like that._
+_To leave traces like that._
 
-_Was it because that rushed to move all at once in a large group?_
+_They moved such large group at once, was it because they were in such rush to travel?_
 
 One had to wonder what could be a reason.
 Why would spirits to be so impatient.
@@ -483,14 +481,14 @@ Soldiers around them stirred with discomfort.
 With all gazes focusing on him, Kai pointed the footprints left by the migration.
 
 "These rising up particles of light are remnants of magic power.
-I never saw in records any mention of power being used in such large quantities during the migration."
+I never saw in records any mention of such large quantities of power being used during the migration."
 
 "..."
 
 "Spirits ability to appear out of nowhere.
 I think we have a lifetime chance to solve this mystery."
 
-Still it posed a risk.
+However it posed a risk.
 If they chase after them right now, there was also a chance to be noticed and attacked.
 
 "I'm fully aware of that, but..."
@@ -503,11 +501,11 @@ This is too one of our important battles."
 
 "With two parties."
 
-With sword's point... Shamshir's pointed end, Farin stabbed remaining mark.
+With sword's point... Shamshir's pointed end, Farin stabbed remaining <span title="Left by spirits">trace</span>.
 
 "Split our group into two.
-Standby squad  to burn remnants of the nest here, and another pursuit squad.
-It should be fine to split roughly fifty fifty.
+Standby squad to burn remnants of the nest here, and another squad to pursuit them.
+It should be fine to split us roughly fifty fifty.
 I leave personnel selection to you."
 
 "What a boring <span title="jp. 常套策 furi. セオリーPlan is more appropriate but theory is what author wants">theory</span>.
@@ -536,10 +534,10 @@ With ten cars here that's quite a great roving, don't you think?"
 
 "Say that to other nine cars...Oh"
 
-Ashlan made a smooth turned handle greatly to the right.
+Ashlan smoothly turned handle greatly to the right.
 
 Going through the ruins of abandoned city, spirits's footprints were leading straight to the west.
-However, due to grass being overgrown it was rather troubles as they couldn't see ground.
+However, with grass being overgrown it was rather troublesome as they couldn't see ground.
 
 Glowing footprints were being hidden within the grass.
 
@@ -557,7 +555,7 @@ Rinne, who was looking through the window, once again moved to back seat.
 
 She said in low voice.
 Whispering in secret so that Saki and Ashlan wouldn't hear.
-Though with Reiren on the right, she could probably hear her whispering.
+Though with Reiren on the right, Rinne's whispering could probably be heard by her.
 
 "We're drawing close, huh?"
 
@@ -566,14 +564,14 @@ Though with Reiren on the right, she could probably hear her whispering.
 "Scared? You, Rinne?"
 
 "For Kai's left shoulder.
-You're not going to be reckless and get it shredded?"
+You're not going to be reckless and get it torn off, right?"
 
 "I'm not. It is all right,
 and pain is almost gone too."
 
 Rinne was looking with her upturned eyes full of worry.
 
-Putting his hand left shoulder, Kai loosened bandages in front of her without a hesitation to show <span title="That it is ok">it</span>.
+Putting his hand on the left shoulder, Kai loosened bandages in front of her without a hesitation to show <span title="That it is ok">it</span>.
 
 "O-oi, Kai!?"
 
@@ -717,7 +715,7 @@ And then there was also the fact that spirits' march was heading towards the gra
 He was thinking it wasn't a coincidence.
 
 "Their tracks are following in a direction of that black pyramid.
-It would be conspicuous to head there on cars, so would it be reasonable for us to get off here?"
+It would be conspicuous to head there on cars, so wouldn't it be reasonable for us to get off right here?"
 
 Farin joined them from behind, already holding in her hand shamshir, ready for battle.
 
@@ -738,7 +736,7 @@ to start engines in case emergency escape would be necessary.
 "Weren't you the one who said to be careful?
 If it is indeed their base, there is no guarantee that our vanguard shall survive."
 
-"Well, after all I suggested that we should get off here."
+"Well, since it was I who suggested that we should get off here."
 
 Lion King remained silent.
 
@@ -777,16 +775,16 @@ And then Lion King Balmung.
 "Good grief... Thee shouldn't forget about me."
 
 "Do not overdo it.
-From now on it is going to be dangerous, so it would be better for you to remain behind."
+From now on it is going to be dangerous, so it would be better for you to stay behind."
 
 Reiren was representative of the foreign gods.
-If something major would happen to the elven shrine maiden, that could affect cease fire treaty between foreign gods and humans of Io.
+If something serious was to happen to the elven shrine maiden, that could affect cease fire treaty between foreign gods and humans of Io.
 
-_If due humans' incompetence Reiren is going to face a risk of losing her life._
+_If due humans' incompetence Reiren is going to risk losing her life._
 
 _Without mistake Io Resistance shall face elven anger._
 
-Being fully aware that she belongs to the enemy race, Kai had to protect Reiren's life as well as his human companions.
+Even while he was fully aware that she belonged to the enemy race, Kai had to protect Reiren's life as well as his human companions.
 
 Considering that, Kai was walking at the head of the line.
 
@@ -795,7 +793,7 @@ Considering that, Kai was walking at the head of the line.
 With a <span title="jp. スキップ調 I think it means sort of running pace that is close to your maxium.">tempo run</span> she chased after Kai, and in no time Reiren reached the head of the line.
 
 "It is better be here than staying behind.
-Besides wind is nice on these great plains.
+Besides wind is nice on these plains.
 After all sitting still forever in that narrow thingy called car would dull even my body."
 
 "Got it. But do not go too far ahead."
@@ -815,7 +813,7 @@ _TL Note:_ sentences above are not well sounding, but that's how author intended
 "Guh!?"
 
 Intense light <span title="jp. 灼くnot literal meaning, it is so strong that it blinded her">burned</span> Reiren eyes.
-This something jumped out, aiming at staggering elf.
+Then [something] jumped out, aiming at staggering elf.
 The moment it entered Kai and Rinne field of vision, they started moving.
 
 "Come here, elf!"
@@ -824,14 +822,14 @@ The moment it entered Kai and Rinne field of vision, they started moving.
 
 Rinne forcibly pulled up a arm of petite elf.
 
-In their stead Kai jumped out and he swung his Drake Nail downward aiming at this [something] with all of his strength.
+In their stead Kai jumped out and swung his Drake Nail downward aiming at this [something] with all of his strength.
 ...But it went through
 
 Almost as if he was cutting a air, Drake Nail's blade gave no response on contact.
 
 _I know about you._
 
-_Your race always been like that._
+_Your race had always been like that._
 
 The race against which neither a gun or sword were effective.
 
@@ -850,9 +848,9 @@ Its body was constantly releasing electric energy as magic, making it a dangerou
 
 Upon blast Will-o'-the-wisp's body was scattered, but it was yet to be destroyed completely.
 
-"Spirits ambush!?"
+"Spirits' ambush!?"
 
-"Jeanne, be careful. It is still not down."
+"Jeanne, be careful. It is yet to be defeated."
 
 A range of its electric discharge was about 3 meters.
 As he was shouting back reply to Jeanne, he himself jumped back outside of Will-o'-the-wisp's range of attack.
@@ -870,7 +868,7 @@ Like animals preying on anyone who approach their [home], called the graveyard.
 
 "Everyone, fire!"
 
-Deformed slime, that was approaching, had been enveloped in fire.
+Deformed slime, that was approaching, had been enveloped in flames.
 
 Soldiers, that was gathered on left and right of Balmung, readied their flamethrowers, and thrown fire all at once.
 Wave of fire, that died part of plains in red, swept both the slime and the Will-o'-the-wisp.
@@ -891,7 +889,7 @@ A lump of pale flames.
 
 Rather than being dispersed in flames of flamethrower, it was becoming bigger as it bathed itself in these flames.
 
-"It is an <span title="jp. 霊魂火 furi. イグニス">ignis</span>! That damn thing was hiding in that group of Will-o'-the-wisps!"
+"It is an <span title="jp. 霊魂火 furi. イグニス">ignis</span>! That damn thing was hiding among Will-o'-the-wisps!"
 
 "Stop <span title="jp. 放射 author uses here, but in all actuallity it would be weird to say anything other than fire in english">fire</span>, it is just going to swell!"
 
@@ -946,13 +944,13 @@ Then this experienced soldier glanced towards <span title="Kai">him</span> with 
 "You got good <span title="jp. 勘 Specifically Balmung praises his ability to detect graveyard which turned out to be spirits base.">senses</span>.
 Hope you'll continue with it."
 
-The moment the graveyard became visible, Kai requested to all cars to stop.
+The moment when the graveyard became visible and Kai requested to all cars to stop.
 Had they continued at that speed, they would find themself surrounded by spirits in this place without even noticing.
 
 "It is as you said, that black building is rather suspicious...
 Let's go."
 
-Lion King led their formation.
+Lion King led their column.
 
 Deep into the great plain, following escaping spirits.
 At that rate they were going to reach the graveyard.
@@ -980,7 +978,7 @@ And in addition to these who escaped flamethrower's flames, these scattered in a
 Or are they threating us..."
 
 "Does it look like it?
-It would be better to give it a more closer look."
+It would be better to give it a better closer look."
 
 Elven shrine maiden, who stood by Balmung's side, said.
 Like that of human commander, her forehead shown a rather <span title="Well you could say they are looking and thinking rather hard">profound wrinkles</span>, her lips slightly trembling.
@@ -996,7 +994,7 @@ Likely their bodies are already burned out, aren't they?"
 
 "That I understand. What I want to hear is why fusion... It cannot be!"
 
-"Noticed?"
+"Got it now?"
 
 Elven shrine maiden made a big sigh.
 
@@ -1010,9 +1008,11 @@ But the question was whose [flesh restoration] it was.
 
 "No way..."
 
-Without even realizing it a laugh escaped Kai's lips, like he was trembling with excitement.
+Without even realizing it a laugh escaped Kai's lips, like that of trembling with excitement.
+Cold sweat, which wouldn't amount a droplet of water, couldn't help but to start to swell onto his chest in a blink of eye
 
-_TL TODO:_ `水滴一粒にも満たなかった悪寒が、胸中、みるみる肥大化していくのを禁じ得ない` Come up with something english like
+_TL Note:_ `水滴一粒にも満たなかった悪寒が、胸中、みるみる肥大化していくのを禁じ得ない` I'm honestly confused by `悪寒` as it is really just chills rather than cold sweat.
+But from sentence itself it would seem like author meant cold sweat
 
 He had a bad feeling.
 Such big number of spirits was gathered to restore someone.
@@ -1032,10 +1032,10 @@ Kai shouted almost hurting his own throat.
 "I'm pretty sure that at the center of that group is no other than spirits' hero!"
 
 Resistance's equipment wouldn't be enough for that.
-Today's goal was to investigate traps, not spirits' extermination.
-Without weaponry for large scale battle, and without doubt soldiers were also unprepared.
+Today's goal was to check out traps, not spirits' extermination.
+They didn't have weaponry for large scale battle, and without doubt neither soldiers were prepared for that.
 
-If they battle there it would lead to massive sacrifices.
+If they'd battle here it would lead to massive casualties.
 
 "Retreat! We're falling back to capital's ruins, and joining with squad standing by!"
 
@@ -1060,10 +1060,10 @@ Grass cracked.
 They could  hear <span title="I have no idea what is this sound">zuzuzu</span> as if giant snake was sliding over land.
 A pale blue swarm of mucus was approaching them like a wall, pushing aside plains' grass.
 
-He thought whether it already catch up with them.
+He wondered whether it already catch up with them.
 And the moment when he readied himself pale blue slime manifested itself there.
 
-It had transparent blue body, like an [sea].
+It had transparent blue body, like a [sea].
 One could wonder if comparing its solidified body to that of a jelly would be appropriate.
 
 [...]
@@ -1098,7 +1098,7 @@ He thought maybe it was repeating words like a parrot.
 Slime in a form of pale blue girl moved her right hand.
 And then at the point of its elbow something made a noise.
 
-"Get down!"
+"Scatter!"
 
 Someone shouted these words.
 
@@ -1133,7 +1133,7 @@ Like a gum the slime shrunk back her right hand.
 
 Her attack missed.
 Whether she understood that or not, next she raised her left hand.
-In face on human side not a single one raised voice in alarm.
+In face of that no one on human side raised voice in alarm.
 
 But it went without saying.
 Unless they evade it, they are going to be annihilated.
@@ -1151,7 +1151,7 @@ _Just how heavy is that swollen left arm!?_
 It probably could even knock down angel in air.
 
 It was as in records of the great war.
-Originally spirits' hero wasn't someone humans fight.
+Originally spirits' hero wasn't someone humans could fight.
 
 But even so...
 
@@ -1170,7 +1170,7 @@ And then blown away mass of mucus was enveloped in flames.
 
 Body of pale blue girl waved.
 
-"It seems working, huh?"
+"It seems to be working, huh?"
 
 Only a small fracture of mucus mass that composed Rikugen Kyouko disappeared.
 But he also understood something.
@@ -1253,12 +1253,12 @@ The moment everything became dyed in crimson red, Kai's Drake Nail cut empty air
 
 In response to sword's name <span title="jp. 憑依転生 furi. メタモルフォーゼ">metamorphose</span> happened.
 
-It took less than a 0.1 second for the black bayonet transformed into shining sword.
+It took less than a 0.1 second for the black bayonet to be transformed into shining sword.
 With its semi-transparent blade it was as beautiful as a gem.
 
 This heavenly blade...
 
-With a ding it cut up hellfire breath emitted by Rikugen Kyouko.
+With a ding it cut hellfire breath emitted by Rikugen Kyouko.
 Splitting apart the heat wave, which melted into thousands small flames.
 
 "Wha!?"
@@ -1406,7 +1406,7 @@ Unless four races destroy cryptids, the world shall belong to cryptids.]
 The Lion King's doubts were natural.
 
 Rikugen Kyouko was speaking of joining forces as something natural.
-But if it wasn't for Kai intercepting fire breath with the Code Holder, Yurun Resistance wouldn't be left without sacrifices.
+But if it wasn't for Kai intercepting fire breath with the Code Holder, Yurun Resistance wouldn't be left unscratched.
 
 "Weren't you hostile to us just now?"
 
@@ -1433,7 +1433,7 @@ The Lion King was grinding his teeth with apparent anger and distress.
 These soldiers were continuously fighting to liberate the Yurun.
 And now at the very last moment spirits' side made a proposal.
 
-There were also likely some soldiers who had grudge against spirits.
+Likely There were also some soldiers who had grudge against spirits.
 
 Moreover there was only handful of Yurun Resistance soldiers at the moment.
 Many were awaiting the Lion King at fortress Ruin S Fulham.
@@ -1448,7 +1448,7 @@ There is no doubt that cryptids are sending out minions all over the world."
 
 Light Knight Jeanne broke the silence.
 
-"Soon after defeating Vanessa there was intrusion by wyvern when we were crossing Urza's border. And we were attacked by tat wyvern."
+"Soon after defeating Vanessa there was intrusion by wyvern when we were crossing Urza's border. And we were attacked by that wyvern."
 
 "The same was in Io.
 Behemoth spoiled the elven forest."
@@ -1463,16 +1463,16 @@ Flamethrowers will be insufficient against cryptids."
 "..."
 
 Soldiers met each other gazes.
-They just became aware of it.
+They just noticed it.
 
 If Rikugen Kyouko words were truthful, then even if they defeat spirits, Yurun's liberation would be unlikely.
 Instead it would be just invaded by cryptids.
-In which case Yurun Resistance's preparations against spirits would be fairly useless against them.
+In which case Yurun Resistance's preparations against spirits would be fairly useless.
 
 Defeating spirits would just make situation even worse.
 
-"This proposal took into account upcoming threat.
-For humans there is no way to avoid joining forces."
+"This proposal that took into account upcoming threat.
+It is inevitable for us humans to join forces."
 
 Jeanne's words were directed towards soldiers, standing behind the Lion King.
 It would hold a little meaning for only the Lion King alone to accept it.
@@ -1501,7 +1501,7 @@ But in fact...
 
 [Human over there.]
 
-With her indifferent tone
+With her indifferent tone.
 As if to indicate that she has no interest in the Lion King's distress, Rikugen Kyouko's gaze fell onto the Kai.
 
 [Kyouko has inquiry for you. What are you of Sid?] _TL Note:_ She indeed has weird manner of speaking: `キヨウコはお前に尋ねる。お前はシドの何？』`
@@ -1516,12 +1516,15 @@ Don't change the subject!"
 
 Balmung gritted his teeth in anger at being rebutted by her directly.
 
-Rikugen Kyouko presented the threat of cryptids from on behalf of spirits.
+Rikugen Kyouko presented the threat of cryptids on behalf of spirits.
 So for her talk was over.
 Rest was up to humans to decide.
 
 "...I'll put replying to your proposition on hold.
-But we shall finish our fight here." _TL TODO:_ Second sentence is a bit unclear `この場は武器を納めてやる`
+But we shall finish our fight here."
+
+_TL Note:_ Second sentence is weirdly phrased `この場は武器を納めてやる`, as if saying `we'll lower our weapons here`, but `納めて` is rather used to settle things up.
+So I'm rather unsure how to phrase it correctly
 
 After long, very long silence passed.
 Yurun Resistance's Commander nodded with anguishing look.
@@ -1579,11 +1582,11 @@ Then she walked with in a new manner.
 
 [Sid. The most detestable human. Enemy of all spirits.
 However he brought _wisdom_ to Kyouko.
-Kyouko studied to understand that human's speech.]
+Kyouko studied to understand words of that human.]
 
-_Fate's counter attack started._
+_Fate's counter attack is started._
 
-_Everything is my fault. The future is brought to life by my mistake._
+_Everything is my fault. My mistake brought upon us this future._
 
 "...Is that true?"
 
