@@ -85,7 +85,7 @@ He got approximate picture, but right now he needs to know situation with all po
 As they were going through dim underground passage, Ashlan pointed to a ruined walls of the building.
 
 "This world is filled hordes of natural enemies to mankind.
-And especially troublesome are four races: Demons, Cryptids, Foreign gods and spirits.
+And especially troublesome are four races: Demons, Cryptids, Sidhes and spirits.
 We lost to them in last war.
 It is been 30 years ago by now."
 
@@ -190,7 +190,7 @@ They were bewildered.
 "Neither knife or gun could work against Cryptid's dragons.
 As for spirits, bullets just pass through.
 Then there is demon magic that can vaporize buildings.
-And elves of foreign gods could create magic tools that are superior to our weaponry.
+And elves of sidhes could create magic tools that are superior to our weaponry.
 Moreover the main reason are leaders of these four races who are just incredible strong"
 
 "You mean four heroes?
@@ -721,11 +721,11 @@ Something ancient were engraved on them.
 It looked almost like ancient temple.
 One could only wonder who would made such passage.
 
-"Human work? Or maybe... Only foreign gods I guess.
+"Human work? Or maybe... Only sidhes I guess.
 I remember that elves and dwarfs tend to build even greater buildings than we're."
 
 But this was demons graveyard.
-Foreign gods were sealed in a different place.
+Sidhes were sealed in a different place.
 Besides Kai could remember that ruins they left behind felt somewhat different.
 
 "...Is this some special place made by demons?"

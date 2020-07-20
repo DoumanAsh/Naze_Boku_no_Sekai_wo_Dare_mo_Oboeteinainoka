@@ -7,7 +7,7 @@ Moreover it even reached outside of its borders:
 
 - To Schultz Resistance Army that fought against cryptids west of Federation;
 - To Yurun Resistance Army that fought against spirits south of Federation;
-- To Io Resistance Army that fought against foreign gods east of Federation.
+- To Io Resistance Army that fought against sidhes east of Federation.
 
 Through Resistance Army, the news of Vanessa's fall will spread among humans on these territories.
 
@@ -102,7 +102,7 @@ She was still wearing her armour.
 But she decided to take off hair clip, that she used while pretending to be a male, and let her hair loose.
 
 "There are three other territories remaining.
-They are dominated by various other races: cryptids, spirits and foreign gods.
+They are dominated by various other races: cryptids, spirits and sidhes.
 And there is resistance armies that fight against their dominance."
 
 "And we're going to cooperate with other Resistance armies in order to help them develop large-scale strategies."
@@ -185,7 +185,7 @@ This world is somewhat scary."
 Kai nodded in response to girl who tightly hold onto his clothes.
 3 heroes remained:
 
-- Foreign gods have their hero **Heaven Lord Alfreyja**
+- Sidhes have their hero **Heaven Lord Alfreyja**
 - Cryptids have their hero **Fang King Rath=IE**
 - Spirits have their hero **Spirit Sovereign Rikugen Kyouko**
 

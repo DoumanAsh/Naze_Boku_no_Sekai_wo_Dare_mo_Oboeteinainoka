@@ -50,7 +50,7 @@ Only the sound of the seconds ticking away echoed in the room, from the clock in
 After all, it is a waste of time, people and resources."
 
 Tsekhman wondered what was the meaning behind these words:
-By [battle], did he mean their fight against the foreign gods?
+By [battle], did he mean their fight against the sidhes?
 After pondering for a short while, staff officer Tsekhman carefully said:
 
 "Your Majesty is an excellent commander.
@@ -74,7 +74,7 @@ So I set up my course on leading Resistance armies across the world, starting fr
 
 "Then how about it?
 We've been knocked out for 4 days.
-And when we came back to our senses, that man, Jeanne, already got us truce with the foreign gods."
+And when we came back to our senses, that man, Jeanne, already got us truce with the sidhes."
 
 Going to the elven forest in order to rescue the emperor, and even achieving truce.
 Being so sudden it seemed unbelievable.
@@ -87,7 +87,7 @@ Dante had no idea.
 It would seem they are returning this night."
 
 There was a matter of signing a treaty with the elven elder.
-It was the first cease-fire agreement between humans and foreign gods.
+It was the first cease-fire agreement between humans and sidhes.
 According to the emperor's secret plan, he was the one who was supposed to do the honours himself.
 
 But if one would ask if he planned to compete for this important duty,
@@ -207,7 +207,7 @@ Before turning into dust and disappearing, heaven lord Alfreyja said these words
 
 _Who would think..._
 
-_The foreign gods hero would ask for a favour._
+_The sidhes hero would ask for a favour._
 
 It was an obscure message.
 Same as Reiren, he couldn't completely understand the meaning behind it.
@@ -274,7 +274,7 @@ _There was a talk of Dante being violent since birth..._
 _That's why his subordinates never noticed when it became worse._
 
 It was exactly opposite of Alfreyja.
-Because the foreign gods hero was known as a gentle and calm person, his change was could be sensed by other angels and elves.
+Because the sidhes hero was known as a gentle and calm person, his change was could be sensed by other angels and elves.
 
 "That's right, speaking of medicine..."
 
@@ -438,7 +438,7 @@ Thee did the same, didn't thee?"
 "..Yeah, we've discussed it with Io Resistance."
 
 Looking at Jeanne, who answered like that, there was no Farin by her side.
-As being responsible for negotiations with foreign gods, Farin has been finalizing details of the agreement in the village.
+As being responsible for negotiations with sidhes, Farin has been finalizing details of the agreement in the village.
 
 "And then, Kai.
 As we've been discussing yesterday.
@@ -451,17 +451,17 @@ I imagine thee have an idea about what."
 
 Overtaking Jeanne, Reiren started walking towards the village's center.
 
-One year ceasefire agreement - [Io Resistance and Foreign gods promise to perform no acts of aggression towards each other's territories.]
+One year ceasefire agreement - [Io Resistance and Sidhes promise to perform no acts of aggression towards each other's territories.]
 
-The majority of the country territory shall remain in possession of the foreign gods as it is.
+The majority of the country territory shall remain in possession of the sidhes as it is.
 On the other hand only 8th ward Cassiopeia, where Io Resistance has its base, at the very least will be held by them.
 
 _Elves have Qubiley on their side..._
 
-_If the foreign gods feel like it, they can attack Resistance's positions at any time._
+_If the sidhes feel like it, they can attack Resistance's positions at any time._
 
 With the truce, the anxiety about this situation should disappear for Io Resistance.
-And the same could be said about the foreign gods, who right now want to avoid fighting with humans.
+And the same could be said about the sidhes, who right now want to avoid fighting with humans.
 They had no wish to be targeted by spirits and cryptids while being exhausted from crushing the Io Resistance army.
 Coincidentally, both sides had the same wish.
 
@@ -483,7 +483,7 @@ At the elven village's plaza.
 When Kai arrived there, he could see gathered there Farin, Saki and Ashlan, in discussion with the elder.
 And up in the tree...
 
-"Forgive me, thee might be worried about it, but this matter concerns all foreign gods.
+"Forgive me, thee might be worried about it, but this matter concerns all sidhes.
 And that's why many are curious about it."
 
 Elves, dwarves, fairies and angels.
@@ -501,12 +501,12 @@ Besides her Kai could also spot the archangel, who had fought against Rinne.
 "Regarding the ceasefire, we've already reached a conclusion with this human."
 
 The elder glanced towards Farin.
-Despite being surrounded by many foreign gods, she remained calm.
+Despite being surrounded by many sidhes, she remained calm.
 
 "We do not have a habit of keeping records in paper.
 Everyone here shall be witness to this agreement."
 
-The elder looked up at foreign gods.
+The elder looked up at sidhes.
 
 "From now on for the duration of year, humans shall not trespass this forest.
 And so we shall not trespass humans city.
@@ -529,7 +529,7 @@ In response to these words Kai replied back with a small nod.
 "Just saying it in advance, but I told you everything about rasterizer the day before yesterday."
 
 "As I recall, first it attacked the demon's hero.
-And next was the foreign god's hero...
+And next was the sidhe's hero...
 As for the latter, I myself witnessed everything with my own eyes from the very beginning."
 
 With a meek look on her face, elven elder made a stiff expression with her mouth.
@@ -647,7 +647,7 @@ But it wasn't something they could tell to their enemies.
 
 "I'm sorry, but I cannot tell you."
 
-"I understand. You're planning to leave Io and considering possibility of the foreign gods breaking the ceasefire agreement.
+"I understand. You're planning to leave Io and considering possibility of the sidhes breaking the ceasefire agreement.
 Something among these lines?"
 
 "..."
@@ -656,7 +656,7 @@ Jeanne remained silent.
 She wasn't planning to deny it.
 After all it was exactly as the elder had said.
 Thanks to the elven spy Qubiley, they were aware of Io Resistance's state of affairs.
-They had no way to counter, if the foreign gods would decide to attack.
+They had no way to counter, if the sidhes would decide to attack.
 
 "I want to ask you something too. Why are my plans of such interest to you?"
 
@@ -674,7 +674,7 @@ We wish to know what happened with Alfreyja-dono."
 
 The reason behind Heaven Lord Alfreyja's change.
 The one who holds the answer to this puzzle was none other than the cryptids hero Rath=IE.
-And the foreign gods wanted to learn more about it.
+And the sidhes wanted to learn more about it.
 
 "Whether it is spirits or cryptids.
 We have enough knowledge about both.
@@ -697,7 +697,7 @@ Obviously it means traversing our forest and grasslands."
 "...I understand. It is as you said, we did have a guide."
 
 Jeanne made a bitter smile.
-Compared to Urza, the foreign gods territories covered almost all of Io.
+Compared to Urza, the sidhes territories covered almost all of Io.
 It would be essential for them to have a guide if they'd be traversing through this thick forest.
 
 "I'd like to ask for your help."

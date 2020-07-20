@@ -826,14 +826,14 @@ It should've been made by enormous strength and no trace of broken pieces could 
 "It didn't collapse naturally..."
 
 "Might be demons, or maybe angles and elves.
-Hey, Saki, watch out properly now, we're near foreign gods territory."
+Hey, Saki, watch out properly now, we're near sidhes territory."
 
 Io Federation.
-Once they pass the great wall, it will be territory of foreign gods.
+Once they pass the great wall, it will be territory of sidhes.
 There were angles who could rival demons in magic power.
 And then there were elves and dwarves who hold equally powerful magic tools.
 Last was fairies who could meddle with nature
-The alliance of these four races were called foreign gods.
+The alliance of these four races were called sidhes.
 
 [My friends, we're about to cross national border. On the other side of the wall will be Io Federation.]
 
@@ -848,7 +848,7 @@ Like small fort were standing solemn national border gate.
 Roof was already collapsed, and several holes could be found in walls.
 Through leading car advanced.
 
-[My friends, as you know foreign gods reside in vast forest.
+[My friends, as you know sidhes reside in vast forest.
 We ought to avoid dangerous encounters until we meet up with Io Resistance.]
 
 "...Heard it, Ashlan?"
@@ -858,7 +858,7 @@ We ought to avoid dangerous encounters until we meet up with Io Resistance.]
 Said Ashlan while taking out new gum.
 Despite his carefree remark, Kai could see his expression to stiffen.
 
-[Foreign gods are even more cunning than we, humans, are.]
+[Sidhes are even more cunning than we, humans, are.]
 
 It looked like it spoke to <span title="jp. 内心 Not sure about context here.">inner thoughts</span> of Ashlan.
 And Jeanne's voice was tensed as if she spoke from personal experience.
@@ -873,6 +873,6 @@ And Ashlan, who was so tensed, definitely was aware of the danger.
 [Let us proceed carefully.
 To face our next opponent we would require calm mind rather than bravery.]
 
-They were going to challenge foreign gods - who were known to be the worst possible enemy for humanity
+They were going to challenge sidhes - who were known to be the worst possible enemy for humanity
 
 _TL Note:_ I'm still not sure how to TL `人間の上位互換`

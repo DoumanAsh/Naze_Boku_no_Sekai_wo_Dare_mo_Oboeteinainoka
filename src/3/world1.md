@@ -19,14 +19,14 @@ Under it was a body that had undergone training for countless days, radiating a 
 
 "As one would expect from Io's unexplored region..."
 
-The forest where Kai was currently in, was the territory of the race called foreign gods.
+The forest where Kai was currently in, was the territory of the race called sidhes.
 They comprised of elves, dwarves, fairies and angels.
 Far wiser than humans, and in possession of magic tools far more powerful than human weaponry.
 Often called as a [better version of humans].
-And on this land, humans had been dominated by foreign gods for over a hundred years.
+And on this land, humans had been dominated by sidhes for over a hundred years.
 
 But right now...
-Foreign gods showed no hostility towards the humans who had entered the forest.
+Sidhes showed no hostility towards the humans who had entered the forest.
 Across the forest could be heard the chirping of birds, and there were no signs of ferocious animals.
 It was a calm and relaxing place.
 A true tranquillity.
@@ -77,7 +77,7 @@ He pointed towards bushes deep in the forest.
 "Jeanne, are you going back?"
 
 "No, I'll tag along.
-I've been sitting the whole time while in discussion with the foreign gods, now my body feels stiff.
+I've been sitting the whole time while in discussion with the sidhes, now my body feels stiff.
 So I feel like taking a short walk."
 
 They walked through the animal trail,
@@ -87,7 +87,7 @@ moving forward with withered grass under their feet.
 
 He wanted to ask what, but before that Jeanne heaved a sigh and continued.
 
-"So for the foreign gods it might be normal to sit down for about a month without eating anything when they have serious discussions.
+"So for the sidhes it might be normal to sit down for about a month without eating anything when they have serious discussions.
 They tend to carry on, without sleeping or even a single drop of water."
 
 "I cannot imagine."
@@ -131,19 +131,19 @@ Jeanne's expression stiffened.
 "In Urza, thanks to Kai we were able to take back the capital alone.
 But the rest of it is still under the control of demons.
 As for Io... Well.
-It was only because of Alfreyja's rampage that we ended up cooperating with the foreign gods.
+It was only because of Alfreyja's rampage that we ended up cooperating with the sidhes.
 Either way, both remain strong."
 
-Both demons and foreign gods.
+Both demons and sidhes.
 Even though their respective heroes were lost, they were able to retain their strength.
 
 _With demons we got only the promise of non-interference for arbitary time._
 
-_With foreign gods we attained one year ceasefire agreement._
+_With sidhes we attained one year ceasefire agreement._
 
 Both had their own merits and demerits.
 The non-interference promise with demons could continue for several years, but no one knew when it was going to end.
-With foreign gods they were able to conclude a concrete ceasefire agreement, but it was only for a mere year.
+With sidhes they were able to conclude a concrete ceasefire agreement, but it was only for a mere year.
 
 "Let us not lose our focus.
 Up until now it has been going so smooth, that my subordinates are starting to feel restless.
@@ -208,9 +208,9 @@ For long living races like elves, it is not much different from just memories of
 She was able to clearly recall it.
 
 [Everyone except me.
-First I ought burn down all corrupted foreign gods who walk the ground.]
+First I ought burn down all corrupted sidhes who walk the ground.]
 
-Who could believe that these were words spoken by the foreign gods hero.
+Who could believe that these were words spoken by the sidhes hero.
 It was obvious that at that time heaven lord Alfreyja had lost his mind.
 Whether it was brainwashing or confusion.
 Reiren couldn't possibly know details behind it.
@@ -231,7 +231,7 @@ The one who caused the heaven lord Alfreyja to change.
 It was highly likely that the culprit behind it was the [Fang King] Rath=IE.
 And it was a duty, bestowed upon Reiren, to ascertain it with her own eyes.
 
-"That's right. It is a honourable mission for the foreign gods.
+"That's right. It is a honourable mission for the sidhes.
 So accompanying humans, so to speak, is a honourable duty to become the elves' representative...
 Right, if I think about it like that..."
 
@@ -317,7 +317,7 @@ It didn't just look like angel wings, but now she thought it was exactly the sam
 
 "Mu... the colour is good, touching feels the same. They are exactly like that of angel."
 
-Both angels and elves belonged to foreign gods race.
+Both angels and elves belonged to sidhes race.
 So she wondered if that's the case then wouldn't the girl with elven skin and angel wings belong to the same race.
 But the answer was no.
 Reiren noticed a few other scents from this girl.
@@ -471,7 +471,7 @@ It became a history where [humanity was defeated in the great war].
 
 Hero [Dark Empress] Vanessa, who led demons, wielders of powerful magic.
 
-Hero [Heaven Lord] Alfreyja, who led the foreign gods alliance, comprised of angels and elves.
+Hero [Heaven Lord] Alfreyja, who led the sidhes alliance, comprised of angels and elves.
 
 Hero [Spirit Sovereign] Rikugen Kyouko, who led spirits, ghost-like existences.
 
@@ -523,7 +523,7 @@ Reiren, who finished changing, was now in her seven layered silk garments.
 It was an elven magic tool.
 Once activated, each of the layers could act as powerful protective barriers.
 
-"I'm going to accompany thee as a representative of foreign gods.
+"I'm going to accompany thee as a representative of sidhes.
 And in order to avenge Alfreyja-dono we're going to attack western country, where cryptids are.
 Right?"
 
@@ -557,9 +557,9 @@ Kai pointed towards the animal trail, that led to the village, and walked deep i
 -------------------------------------------------------------------------------
 
 Io Federation...
-It is a big country in the eastern part of the continent, and at the moment it was under control of the foreign gods.
+It is a big country in the eastern part of the continent, and at the moment it was under control of the sidhes.
 Humans, who lost in the war, had to reconstruct ruins into cities and live in hiding, somehow scraping by.
-Each of the 18 human cities is guarded by Resistance soldiers, who serve as defence for the people from the foreign gods invasion.
+Each of the 18 human cities is guarded by Resistance soldiers, who serve as defence for the people from the sidhes invasion.
 
 The headquarters of the Resistance was in 8th ward Cassiopeia.
 It was at the site of what was once a large scale factory, and in one of the areas there...
@@ -583,7 +583,7 @@ Normally being by Jeanne's side as her guard, right now she had to separate with
 
 "And the reason is...
 Defeating Vanessa in Urza and forcing demons to leave you alone.
-And now achieving a ceasefire agreement with the foreign gods.
+And now achieving a ceasefire agreement with the sidhes.
 You do not want to lose your momentum here?"
 
 "That's right. However..."
@@ -597,7 +597,7 @@ Up until now it has been going too smooth."
 "..."
 
 "Even with the loss of Vanessa, the demons remain strong.
-And then the ceasefire with the foreign gods too, wasn't the result of an actual victory in war, but instead they suggested it themselves."
+And then the ceasefire with the sidhes too, wasn't the result of an actual victory in war, but instead they suggested it themselves."
 
 "That's..."
 
@@ -605,7 +605,7 @@ And then the ceasefire with the foreign gods too, wasn't the result of an actual
 
 Behind the old soldier, a plump man turned away from a window, slowly turning towards Farin.
 
-"Reclaiming Urza's capital, and then achieving truce with foreign gods in this country...
+"Reclaiming Urza's capital, and then achieving truce with sidhes in this country...
 Despite achieving so much, he has no intention to relax even a bit?"
 
 "Indeed. And I share the same opinion.
@@ -615,7 +615,7 @@ And as for the remaining two heroes, we ought to remain vigilant."
 
 Said Commander Dante, who looked like a bored child.
 This self-proclaimed emperor was known to be a lump of conceit and pride.
-He had ambition to become a hero, leading the mankind, but instead the foreign gods used it against him and let him taste humiliation of being taken a prisoner.
+He had ambition to become a hero, leading the mankind, but instead the sidhes used it against him and let him taste humiliation of being taken a prisoner.
 And the one who freed this Dante was Jeanne.
 
 Even though he was thankful to his rival for saving his life, but just admitting the achievements of his rival was an annoyance for him.
@@ -632,7 +632,7 @@ Plus on top of that, we cannot talk with them."
 
 What that meant... is that truce was not possible.
 They do not posses intelligence that would make them temporarily retreat like demons,
-or seeking peace like foreign gods.
+or seeking peace like sidhes.
 The kind of species that would fight until the very end.
 
 "How are you planning to drive away those monsters?"

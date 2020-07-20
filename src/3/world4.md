@@ -89,7 +89,7 @@ Among four races they are the only one incapable of human speech."
 
 Shrine maiden, who was by the right side of Kai, nodded in agreement.
 
-"We are... I mean, foreign gods learnt human language not because of wanting to have a dialogue with humans.
+"We are... I mean, sidhes learnt human language not because of wanting to have a dialogue with humans.
 But because sophisticated language, first invented by humans, was a quite handy tool.
 Naturally it wasn't taught by humans, just self-learnt."
 
@@ -106,7 +106,7 @@ Spirits completely lack any means of communication.
 Or rather one had to wonder if they even posses clear intelligence.
 Even in the true world, where the great war had ended, spirits were considered as primitive organisms that moved on their instincts.
 
-"Remember traps placed by foreign gods in the elven forest?
+"Remember traps placed by sidhes in the elven forest?
 Even if thee know about traps, whether thee would be able to avoid them is another matter."
 
 Both Rinne and Reiren approved of setting light traps.
@@ -699,7 +699,7 @@ Lion King get off from the cadillac one.
 
 "It is not like I'm not aware of it.
 With such weird aura to it.
-But I think it was something left behind by foreign gods and demons long ago."
+But I think it was something left behind by sidhes and demons long ago."
 
 "No, that's..."
 
@@ -777,8 +777,8 @@ And then Lion King Balmung.
 "Do not overdo it.
 From now on it is going to be dangerous, so it would be better for you to stay behind."
 
-Reiren was representative of the foreign gods.
-If something serious was to happen to the elven shrine maiden, that could affect cease fire treaty between foreign gods and humans of Io.
+Reiren was representative of the sidhes.
+If something serious was to happen to the elven shrine maiden, that could affect cease fire treaty between sidhes and humans of Io.
 
 _If due humans' incompetence Reiren is going to risk losing her life._
 
@@ -1060,7 +1060,7 @@ Grass cracked.
 They could  hear <span title="I have no idea what is this sound">zuzuzu</span> as if giant snake was sliding over land.
 A pale blue swarm of mucus was approaching them like a wall, pushing aside plains' grass.
 
-He wondered whether it already catch up with them.
+He wondered whether it already caught up to them.
 And the moment when he readied himself pale blue slime manifested itself there.
 
 It had transparent blue body, like a [sea].
@@ -1394,7 +1394,7 @@ Balmung had a loathsome expression on his face.
 "You're hoping for humans and spirits join forces.
 Is that what you want to say?"
 
-[Not only humans. Foreign gods too.]
+[Not only humans. Sidhes too.]
 
 Slime's gaze fell onto Reiren but no one among soldiers noticed the glance.
 
@@ -1484,7 +1484,7 @@ The lion King spoke as if he was vomiting blood.
 
 "What should I do.
 What is the way to save people of Yurun.
-I want to ask you, who fought against demons and foreign gods, to lend me your wisdom."
+I want to ask you, who fought against demons and sidhes, to lend me your wisdom."
 
 "Change the order of who we have to defeat. That's it."
 

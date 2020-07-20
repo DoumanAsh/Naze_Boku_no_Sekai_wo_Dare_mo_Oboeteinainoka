@@ -93,13 +93,13 @@ Fairies might be a somewhat different case, but thee couldn't have forgotten whe
 
 Although their bodies have an organ that can produce magic power, they have no means to release it.
 Therefore they cannot use magic.
-In this regard foreign gods are similar to humans.
+In this regard sidhes are similar to humans.
 Due to that, they created magic tools to assist themselves in manipulating magic powers.
 
-"Magic tool is what did start foreign gods.
+"Magic tool is what did start sidhes.
 There is nothing to be ashamed about the magic tool, instead we shouldst be proud of it!
 Forgetting that, and being joyous about using magic without assistance of magic tool.
-Is that not a true disgrace to the foreign gods!"
+Is that not a true disgrace to the sidhes!"
 
 [Silence.]
 
@@ -259,14 +259,14 @@ I would have no means to oppose."
 [...]
 
 "But now is my chance.
-In place of Io's humans and all of foreign gods I challenge you.
+In place of Io's humans and all of sidhes I challenge you.
 With all of my spirit!"
 
 [Huh!]
 
 He scorned.
 
-[All of foreign gods? I have no need for such weaklings!]
+[All of sidhes? I have no need for such weaklings!]
 
 Magic power started making noise in air.
 The fallen angel's sword that was clashing with Code Holder, started getting even more supply of magic power.
@@ -549,7 +549,7 @@ What was this thing that [supposed to exist].
 
 "Look for it!"
 
-With his body crumbling, the foreign god's hero looked over his subordinates and took a short rest.
+With his body crumbling, the sidhe's hero looked over his subordinates and took a short rest.
 
 "As for World reincarnation, that rasterizer is related to it.
 Summoning this creature...
@@ -568,16 +568,16 @@ Even though you're enemies, you used your own body to to protect the elf."
 "!"
 
 Elven shrine maiden swallowed her breath.
-A human protected one of the foreign gods.
+A human protected one of the sidhes.
 It was something that originally would be unthinkable.
 But hearing Alfreyja's words made her self-consciousness about it.
 
 "Who would think that a human will be the one to deliver our salvation...
 But, this is the will of the world."
 
-Foreign god's hero exhaled with certain vigour.
+Sidhe's hero exhaled with certain vigour.
 
-"All of us among foreign gods.
+"All of us among sidhes.
 We never forget friends and foes, and never shall we forget a debt of our brethren.
 Therefore, human, I can do nothing but to recognize you.
 And that's why..."
@@ -588,6 +588,6 @@ His strong body petrified, crumbling and turning into dust.
 "I ask you, break the cycle of hatred in this world...!"
 
 And then his body disappeared.
-These were the last words of the foreign god's hero.
+These were the last words of the sidhe's hero.
 
 An hour later, Heaven Lord Alfreyja's fortress Angel Palace fell down and then disappeared.

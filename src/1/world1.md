@@ -81,7 +81,7 @@ These buildings are so called graveyard, where mankind imprisoned other races ag
 
 Wielders of strong magic, <span title="悪魔(Akuma)">Demon</span> race.
 
-Powerful demi-humans, like angels, elves and dwarves, <span title="蛮神(Banshin)">Foreign gods</span> race.
+Powerful demi-humans, like angels, elves and dwarves, <span title="蛮神(Banshin)">Sidhes</span> race.
 
 Ghost-like, <span title="聖霊(Seirei)">Spirit</span> race.
 
@@ -245,13 +245,13 @@ He was fighting against different from Kai training doll, but got seriously kick
 Kai looked at robotic dragon, and replied in his normal tone.
 
 Hundred years ago.
-Various races: Demons, Foreign gods, Cryptids and Spirits - were ruled by strongest among their kind.
+Various races: Demons, Sidhes, Cryptids and Spirits - were ruled by strongest among their kind.
 Each could has own title: Elder, Leader or Commander.
 But in human language there was a single way to refer to these mightiest: _Four Heroes_.
 
 Demon's hero **Dark Empress Vanessa**
 
-Foreign god's hero **Heaven Lord Alfreyja**
+Sidhe's hero **Heaven Lord Alfreyja**
 
 Cryptid's hero **Fang King Rath=IE**
 

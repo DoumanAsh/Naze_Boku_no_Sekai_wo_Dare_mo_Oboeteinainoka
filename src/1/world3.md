@@ -159,8 +159,8 @@ _It feels like something between elf's and human's_
 
 She had elf ears, and then on her back were wings like that of angel and demon.
 
-"She has features of elves and angels which belong to foreign gods I think.
-Then she is half between demons and foreign gods?
+"She has features of elves and angels which belong to sidhes I think.
+Then she is half between demons and sidhes?
 Still, other than she looks like a human..."
 
 Yes, surprisingly the fallen winged girl looks like a human.
@@ -173,7 +173,7 @@ To add, she had mysterious charm.
 
 _TL Note:_ I must say, author description of girls is sometimes quite weird in their details.
 
-"Is she a mix between human, foreign gods and demons? No... That's impossible"
+"Is she a mix between human, sidhes and demons? No... That's impossible"
 
 There were no cases of children being born from parents of different races.
 Then, what about this girl Rinne?
@@ -637,7 +637,7 @@ Who would expect to meet someone, who shared this pain, here.
 
 "I... Have no idea about my own race.
 That's why I've been always alone.
-Because foreign gods, spirits and cryptids, all say: you're different."
+Because sidhes, spirits and cryptids, all say: you're different."
 
 "Demons too?"
 
