@@ -1,14 +1,16 @@
 ![Cover](./midashi06.jpg)
 
+_TL Note:_ Not edited by Potla
+
 Yurun, Great Plain Grand Arc...
 
-The huge black building [Graveyard].
+There was a huge black building [Graveyard].
 In truth these ruins were built up by composing several millions carved into cubic form out of the rock that wasn't reflecting light.
 
 But it was yet to be know who left it.
 
 [Rath=IE, whom I met at the west border, said:
-'You're going to disappear. Though it would be better for you to be sealed away at that place <ruby>there<rt>true world</rt></ruby>']
+'You're going to erased. Though it would be better for you to be sealed away at that place in the true world']
 
 They were on their way heading to the graveyard.
 Together with Kai and Resistance were Reiren and Rinne.
@@ -17,7 +19,7 @@ And leading them...
 [But Kyouko didn't understand it.
 That place? To be sealed?
 I had no idea what it meant, but it struck me.
-That's why I thought to search the most suspicious looking place.]
+That's why Kyouko thought to search the most suspicious looking place.]
 
 It was Rikugen Kyouko.
 
@@ -57,7 +59,7 @@ His unfaltering courage in face of spirits' hero was certainly praise worthy.
 On other hand Rikugen Kyouko shown no indication of getting angry.
 
 Next to the Liong King were Urza Resistance's Commander Jeanne and Farin.
-Rinne and Reiren were in the them.
+Rinne and Reiren were following behind.
 Looking at them from behind, Kai unintentionally clenched his fists.
 
 This was a tension coming from thoughts of when war among three races would break out.
@@ -80,7 +82,7 @@ _TL Note:_ Totally paranoia.
 They're not going to wait a minute longer and withdraw."
 
 Just in case he'd be unable to return...
-The Lion King Balmung considered that spirits betray and attack them inside the graveyard.
+The Lion King Balmung considered that spirits may betray and attack them inside the graveyard.
 
 "Got it?"
 
@@ -90,7 +92,7 @@ Spirit's reply was as usual vague. _TL Note:_ No, I think she just doesn't care
 
 And while watching this exchange...
 
-"Reiren, I want to ask you one thing: say is there the graveyard in Io?"
+"Reiren, I want to ask you one thing: say, is there the graveyard in Io?"
 
 "I've never seen."
 
@@ -120,13 +122,13 @@ Reiren asked Rikugen Kyouko.
 "Oii!?"
 
 [Kyouko still doesn't remember all about the graveyard.
-Rath=IE mentioned the graveyard, so I remembered about its existence.
-But I don't remember its role.]
+Rath=IE mentioned the graveyard, so Kyouko remembered about its existence.
+But Kyouko don't remember its role.]
 
 Spirits' hero then looked at Kai.
 
-For slimes whose body was composed of mucus cells, there was no such thing as human's five senses.
-Even if these [eyes] were able to mimic that of human, it wasn't supposed to see him at all.
+For slime whose body was composed of mucus cells, there was no such thing as human's five senses.
+Even if these [eyes] were able to mimic that of a human, it wasn't supposed to see him at all.
 
 Yet.
 He couldn't help but feel a intense spark of intelligence in these.
@@ -146,7 +148,7 @@ As Kai started walking, Rikugen Kyouko too walked after him, in a manner that sh
 "Yeah. Urza's graveyard had a secret passage there."
 
 He beckoned both Jeanne and Farin.
-Liong King Balmung, who was at the end of their formation, reluctantly followed them, while watching Rikugen Kyouko
+Liong King Balmung, who was at the end of their formation, reluctantly followed them, while watching Rikugen Kyouko.
 Walking around outer perimeter of the graveyard, towards the other side.
 
 "...As I thought."
@@ -170,9 +172,9 @@ _As with the demons' graveyard where I found Rinne._
 
 "When I found the graveyard in Urza, I also entered it from the back side.
 As you can probably see, this building is so big that it would be a pain to search through it,
-however this entrance leads to the shortest rout to the center."
+however this entrance leads to the shortest route to the center."
 
-"Is it dark there?"
+"Is it dark in there?"
 
 Sunlight couldn't reach inside the graveyard.
 As he stepped in, the Lion King immediately frowned.
@@ -258,8 +260,8 @@ At Io it was gigantic behemoth.
 
 And then cryptids's <ruby>hero<rt>Rath=IE</rt></ruby> himself appeared in the Yurun in order to get rid of the spirits.
 
-"Early she mentioned attack on cryptids. So to speak turning conflict of five races into conflict of four races.
-Isn't that what Rikugen Kyouko is suggesting?"
+"Early she mentioned attacking cryptids. So to speak turning conflict of five races into conflict of four races.
+Maybe we should do as Rikugen Kyouko is suggesting?"
 
 "...I'll consider that."
 
@@ -286,7 +288,7 @@ _TL Note:_ Sentence is rephrased a bit. `抑揚まじりの声で相づちを打
 
 "...What makes you think so?"
 
-[In this world there are no other place for it.]
+[In this world it is the only place where you can find it.]
 
 While it was rather simple answer, it did make sense.
 
@@ -340,7 +342,7 @@ Beautiful voices of Rinne and Rikugen Kyouko created a harmony.
 "O...oi, Rinne? It is dangerous so do not go on alone!"
 
 Footsteps' sounds of half-running Rinne echoed from solid stone floor.
-She was pushing through the complicated road of the maze almost without a single hesitation.
+She was pushing through the complicated road of the maze almost as if there was no hesitation.
 
 _TL Note:_ Second sentence is simplified a bit. Original `隔壁によって迷路状に入り組んだ通路を、まるで躊躇わず突き進んでいく`
 
@@ -408,7 +410,7 @@ Kai together with everyone else disappeared from the [world], leaving behind Rei
 
 _TL Note:_ Text on picture is `秘奥領域「無座標界　第３相」`.
 Where `無座標界` is annotated with furigana Zero.
-It can be roughly translated as Secret Region [Zero Phase 3].
+It can be roughly translated as Secret Region [Zero World Phase 3].
 I'm not really sure as it is just weird name.
 
 There was endless sea of rainbow clouds...
@@ -418,7 +420,7 @@ There was endless sea of rainbow clouds...
 The Lion King Balmung used own fist to hit his forehead.
 But even if he'd strike strong enough to leave red mark, he wouldn't wake up.
 
-It was reality.
+It was a reality.
 
 Far from a dream, in front of their eyes dreamlike dimension spread. _TL Note:_ This is a bit weird sounding `夢以上に夢のような異空間が目の前に広がっていた。`
 
@@ -431,7 +433,7 @@ The Lion King Balmung's voice pierced through this infinite area.
 It was a complete change from the gloomy graveyard, anywhere you look, it was a fleeting world of the clouds filling the sky.
 Moreover these clouds weren't just white, they were glittering slightly with rainbow colors.
 
-"Completely agree with you, Balmung-dono"
+"I feel you, Balmung-dono"
 
 Jeanne assented with a vexing.
 
@@ -443,7 +445,7 @@ Saying that Jeanne's voice started to get hoarse, making it hard speaking with h
 
 "Farin, your opinion?"
 
-"...If you're meaning to ask for an explanation, we have someone more qualified for that role, I think."
+"...If you're meaning to ask for an explanation, I think we have someone more qualified for that role."
 
 The one who was in Farin's line of sight.
 
@@ -481,7 +483,7 @@ Being unable to speak truth without restraint...
 For Kai it was quite troublesome thing.
 
 Just talking about [world where the great war was finished] had been quite suspicious,
-but he knew that saying something about such otherworldly place would just make him lose all trust.
+but he knew that saying something about such otherworldly place would just make him lose all the trust.
 
 "Both me and Rinne were escaping from the rasterizer's chase, and soon enough we escaped outside of the graveyard."
 
@@ -530,8 +532,8 @@ Angels' palace is able to fly into the sky thanks to enormous magic power, but h
 "Specifically?"
 
 "Not a magic power.
-Having said I don't think there is no trick to it or source of that.
-I'm not very sure about it."
+Having said that I think there is source of that, or maybe trick to it.
+But I'm not very sure what is it."
 
 Like leaves floating on the water.
 This stone floor too was floating along the boundary of vast sea clouds.
@@ -544,9 +546,9 @@ So then, Kai, let us depart!"
 
 "...And you're hiding behind me because...?"
 
-"It is but my noble desire to leave it in thee capable hands to lead.
+"It is but my noble desire to leave it in thy capable hands to lead us.
 By no means it is out of a fear.
-After all it is my duty to be brain here.
+After all it is my duty to be a brain behind you here.
 Also just making sure: it is not out of the fear, understood?"
 
 Clinging from behind to Kai, she tightly grasped his jacket, not letting it go.
@@ -556,14 +558,14 @@ but it would seem to certain elf had no time to notice it.
 
 "Hey, Kai, that spirit is moving forward..."
 
-"...Likely the one with the most guts among us too."
+"...Likely the one with the most guts among us."
 
 If they'd look.
 They would see that they've been left behind by hundred meters by no other than spirits' hero.
 
 While it wasn't clear whether spirits know of wariness, but once teleported to this place, she shown no sign of timidness.
 
-"You cannot, flat board, get off from Kai!"
+"You cannot, flat board, get off the Kai!"
 
 "Isn't it fine?
 Or what, could it be thee is so scared that makes thee want to cling to Kai?"
@@ -601,14 +603,11 @@ Kai nodded in response to the blue girl who turned around.
 Holding Code Holder in his hand, he carried on.
 
 They ignored forks.
-
-_How nostalgic... Wait, that's a bit wrong way to put it._
-
-_At first I had no idea what to do, making me feel lost._
+For a moment he remembered how he found himself lost here.
+Wondering how far this place went he thrust himself foolishly into exploring it.
 
 He wondered if it was already one hour, or maybe two.
-
-Then around the time when lively exchange between Rinne and Reiren diminished.
+Around the time when lively exchange between Rinne and Reiren diminished.
 
 [There]
 
@@ -633,7 +632,7 @@ _At first I had no clue what to do, even lost._
 The girl with tenma's wings.
 
 He remembered being wary of her as he had no clue what was her race.
-If at that time he'd do even single thing differently, then without doubt he wouldn't be able to arrive to this point with Rinne by his said.
+If at that time he'd do even a single thing differently, then without doubt he wouldn't be able to arrive to this point with Rinne by his side.
 
 [...Hee?]
 
@@ -642,11 +641,11 @@ At the end of the stairs, which was less than ten steps, there were three solemn
 
 Voice of Rikugen Kyouko, who looked at the center, had gotten slightly hoarse.
 
-[There is angel statue.]
+[There is a angel statue.]
 
 It was a stone statue of the six winged angel [Heavenly Lord] Alfreyja.
 
-Even though he was supposed to be disappear.
+Even though he was supposed to be gone.
 The archangel's image was installed here, carved as if it was petrified form of his.
 
 "What!?"
@@ -667,7 +666,7 @@ Rath=IE said he was supposed to be destroyed, so then this is?]
 
 She slowly ascended onto altar.
 
-With her hand, made of blue mucus, she attempted to touch stone image of the Heavenly Lord Alfreyja...
+With her hand, made of blue mucus, she attempted to touch the stone image of the Heavenly Lord Alfreyja...
 
 "Stop it. Do not touch."
 
@@ -676,19 +675,19 @@ Reiren's sharp words interrupted it.
 "Spirit, what are thee trying to do!?
 Even if it costs me my life, I will not let thee to touch Alfreyja-dono."
 
-[...How folly.]
+[...What a folly.]
 
 "What?"
 
 [Kyouko couldn't be know whether it is Alfreyja or not.
-Only thought it is well made stone statue.
+Only thought it is a well made stone statue.
 However, such reaction of yours made it clear to Kyouko.]
 
 This stone statue was Heavenly Lord Alfreyja himself.
 
 For spirits' hero it was the greatest adversary.
 But now he became completely defenseless.
-With how he was at that time his destruction would be trivial.
+With how he was at this time his destruction would be trivial.
 
 [If you wanted to be wary of Kyouko, instead you ought to pretend not to recognize it.]
 
@@ -706,7 +705,7 @@ she did nothing harmful to the stone statue.
 
 [Want Kyouko to attack?]
 
-"N-no! I mean that it is yet to be decided if this petrification can be fixed or not.
+"N-no! I mean that it is yet to be decided if this petrification can be cured or not.
 It is a mere petrification.
 This can be done with some demons' magic."
 
@@ -725,7 +724,7 @@ She spoke while caressing the stone statue.
 
 [It is not a simple petrification.
 Rather it looks like a complete freeze.
-Most likely stone covers only surface.]
+Most likely stone covers only a surface.]
 
 "Wha... I-is that so?"
 
@@ -740,7 +739,7 @@ Reiren remained silent in front of the angel statue.
 "I'm thinking too. It is just..."
 
 Then he recalled.
-This appearance of the Heavenly Lord transformed into [something] like a stone status.
+This appearance of the Heavenly Lord transformed into [something] like a stone statue.
 It was almost like...
 
 'Stone doesn't speak. If it does, then it is no longer stone. What are you?
@@ -759,7 +758,7 @@ And then the current image of the Heavenly Lord overlapped with that statue.
 He wondered if it was a coincidence.
 
 However, the Heavenly Lord Alfreyja was completely frozen in place, without any signs of being aware.
-Kai couldn't deny that while similar, it was quite different too.
+Kai couldn't deny that while similar, but it was also quite different.
 
 _Regardless, what is this place?_
 
@@ -775,7 +774,7 @@ The Lion King climbed the altar.
 As they just discussed, it would seem to be more than a simple petrification.
 And investigating it will take some time."
 
-"No, no time for that."
+"No, no need for that."
 
 Bearded big man raised metal maul with his strong hands.
 
@@ -792,22 +791,22 @@ For such statue a single hit..."
 Reiren was clinging onto back of the large man.
 Maybe because Reiren was rather small even among elves, but it looked like a child clinging to the adult, wanting to remain together.
 
-"Got it, little one. I'll get you some sweets later. Now it is fine?"
+"Got it, little one. I'll get you some sweets later. Now is it fine?"
 
 "Thee treating me like a child!?
-Kai, Jeanne, thee don't stand silent there, cannot you say something!?"
+Kai, Jeanne, thee don't stand silent there, cannot thee say something!?"
 
 "Ah... Balmung-dono?"
 
-Urza Resistance commander stepped in to mediate with the solder whose maul was ready to swing down at any time.
+Urza Resistance commander stepped in to mediate with the soldier whose maul was ready to swing down at any time.
 
 "It would benefit us to carry on investigation of the stone statue.
 If we destroy it now, we would lose important source of information."
 
 "Mu... You might be right."
 
-"There might be something else out there.
-We should make it our priority to continue investigation."
+"There also might be something else out there.
+We should make it our priority to continue our search."
 
 Jeanne looked in the direction of the stone corridor once again.
 This altar wasn't the final destination.
@@ -819,13 +818,13 @@ There might be other altars like this one too."
 Above the commander, who was disguised as a man...
 It was at that time that something strange happened.
 
-'Foreign instruction invaded the <span title="jp.無座標界, furi. ゼロ">Zero</span>.
+'Foreign instruction invaded the <span title="jp.無座標, furi. ゼロ">Zero</span> World.
 Detected it close to the erased hero...'
 
 Out of nowhere swirling black point appeared.
 From within a hole, similar to that of whirlpool, widening it in silence [something] appeared.
 
-'Danger of interference with new world require [caution].'
+'Danger of interference with new world. [Caution] is advised.'
 
 'Initiate expulsion by Rasterizer class 1 [Destruction will]'
 
@@ -844,7 +843,7 @@ It being disorderly combined together looked awfully unbalanced.
 It was a reverberant voice.
 While having such repulsive appearance, this voice was fit to that of lovely girl.
 
-_This time it is different from before guy._
+_This time it is different from guy before._
 
 _Another specimen!?_
 
@@ -875,8 +874,8 @@ If so it would make my work quick."
 
 "...Whatever you mean, spirit?"
 
-[No one will be able to defeat, if that beast and this thing would combine forces.
-To begin with this thing in front of your eyes is strong.]
+[If that beast and this thing would combine forces, no one will be able to defeat them.
+To begin with this guy in front of you is strong.]
 
 Rikugen Kyouko faced against the rasterizer...
 Towards the monster with its creepy smile, spirits' hero spoke once again with piercing cold tone.
