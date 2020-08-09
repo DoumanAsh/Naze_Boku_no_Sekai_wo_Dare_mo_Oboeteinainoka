@@ -26,4 +26,5 @@
     - [World.3 Yurun Resistance](./3/world3.md)
     - [Intermission Possible? Impossible?](./3/intermission.md)
     - [World.4 Sage of this world](./3/world4.md)
+    - [World.5 Graveyard - Where Fate sleeps](./3/world5.md)
 * [Glossary](./glossary.md)

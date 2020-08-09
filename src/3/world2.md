@@ -1636,15 +1636,15 @@ I have no strength to bring you any harm.]
 The female bodyguard pointed the edge of her shamshir.
 Towards the head of hooded female image, far above.
 
-"Stones don't speak.
-If they do, then they are no longer stones.
+"Stone doesn't speak.
+If it does, then it is no longer stone.
 What are you?"
 
 [I'm...]
 
 The voice echoed throughout the sanctuary.
 
-[I'm the existence of the world, where the great war had ended.]
+[I'm the being of the world, where the great war had ended.]
 
 "W-what?"
 
