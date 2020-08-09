@@ -674,7 +674,7 @@ Hero sword actually existed.
 Like 10 years ago Kai rushed toward sword in order to get hold of it.
 And then deep voice of old man resonated through whole graveyard.
 
-_The one who were entangled by a hateful fate, do not let go of this sword._
+_You, who was entangled by hatred of the fate. Never let go of this sword._
 
 _<span title="jp. 世界座標 but I use its furigana">Code Holder</span>'s key..._
 
